@@ -1,3 +1,56 @@
+###  Публикация: 1377584   (851126) от 22.04.2020
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (304) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A429A179684BC169AF7FA33288D149D375CB3375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002844   (846665) от 01.04.2016
+
+Обои - Wallpapers collection [03.2016] [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев за Март 2016
+Обои без водяных знаков сайтов агрегаторов (допускаются только авторские).Формат: JPGРазрешение файлов: 1920x1080 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6396F685A1D1FA0BB7BD19B2EA28EC6171ED556D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378364   (846024) от 25.04.2020
 
 Иконки - Behance - Humanitarian Icons v2 - 78661699 [PNG, AI, SVG]
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CFCE1BBAEFA5C7B3240DB41042EA54BF2F12447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654757   (823081) от 11.05.2013
-
-Рисованная графика - Artworks by Donald Rust (Pin-Up Style) [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Donald Rust.Разрешение файлов: от 311x480px до 640x1469px.Формат: JPG.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D3D2FC79EECB11A69EE557403CEC0659B3F68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197072   (815286) от 07.01.2018
-
-Обои - Ultra HD 8K Wallpapers 70 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои в ULTRA высоком разрешении 8K для рабочего стола.Формат: JPGРазрешение файлов: 7680x4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C34CD2EE36560B88AE090AE1F5487745A487932
 ```
 
 https://mybot314.ru/tekegram_catalog/

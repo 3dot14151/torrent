@@ -1,3 +1,114 @@
+###  Публикация: 1570326   (442092) от 17.08.2022
+
+Microsoft Windows 10.0.19044.1889, Version 21H2 (Updated August 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1889.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F22AD56C8E9051BAB6A2705CE995FDC6716763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322747   (439171) от 02.09.2019
+
+Microsoft Windows 10.0.18362.295 Version 1903 (August 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.295 (Updated August 2019).
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780E59D8EA62F569EE3381CD24E65EB99F358F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250210   (426127) от 27.09.2018
+
+Microsoft Windows 10 10.0.17763.1 Version 1809 (October 2018 Update) - Оригинальные ESD образы от Microsoft [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 (версия 1809) - следующее крупное обновление функций, которое выйдет в в начале октября 2018 года под официальным названием Windows 10 October 2018 Update, это его подписанная RTM версия которая скорее всего и станет финальной ориентировочно 2 октябряЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEF79F82FB2C848DC34F484C7819D21116AE7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146475   (420496) от 16.10.2009
+
+Windows Vista Ultimate SP2 by IDimm v.05 [русский]
+
+>>ОС Windows
+>>Сборки Windows Vista
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из сборки удалено:Драйверы для видеоадаптеров - всё равно свои ставить.
+Драйверы для принтеров - Удалены все дрова, кроме дров для Canon, Epson, HP, Samsung, Xerox и общих
+Windows Media Center - Мне он не нужен, а вам?
+ДВД-студия Windows - Есть более “крутые” программы для работы с видео.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 709908   (420423) от 12.10.2013
 
 Microsoft Windows Server 2012 R2 RTM by W.Z.T [En]
@@ -587,117 +698,6 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2B3268D01B09938E30F13C8E3D9EDF55D6B65FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176953   (364791) от 24.10.2017
-
-Windows 10 Домашняя 1709 x64 NVDA для незрячих. 2017.10.3 [Ru]
-
->>ОС Windows
->>Сборки Windows для незрячих
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на базе оригинального дистрибутива Windows 10 home x64 Rus v 1709,
-Главное отличие данного дистрибутива - это возможность устанавливать систему вслепую.
-После выбора загрузки компьютера с USB Flash дистрибутив сам ответит на все вопросы программы установки, создаст 2 или 3 раздела или отформатирует первые два раздела и установит систему.
-После чего (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155639CDCD46D8A3FDEEAC5ED002B46F75B4FC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177017   (364686) от 24.10.2017
-
-Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.15.170928-1534) VisualStudio aka MSDN.
-Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) официально доступно с 17 октября 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EDC4574FA0FB99F8A20EFC7EF011C774EEBFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253557   (362893) от 18.10.2018
-
-Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362893.jpg" />
-</div>
-
-
-###  Подробнее
-
-За основу для этих сборок были взяты оригинальные образы ru_windows_10_consumer_edition_version_1803_updated_aug_2018_x64_dvd_910ae7a5 и ru_windows_10_consumer_edition_version_1803_updated_aug_2018_x86_dvd_d1b36c95. Установлены все важные и рекомендуемые обновления на момент создания сборки 09 октября 2018 года.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0217AAE32D248E5CA8902951B5C4233696E578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177263   (362289) от 25.10.2017
-
-Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Оригинальные образы от Microsoft VLSC [Ukr]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.15.170928-1534) VLSC.
-Осеннее обновление Windows 10 Fall Creators Update (Redstone 3) официально доступно с 17 октября 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68F87BB366C34D942BC490BEFD83720256B4D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

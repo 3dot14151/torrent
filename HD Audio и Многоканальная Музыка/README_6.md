@@ -1,3 +1,235 @@
+###  Публикация: 1606807   (1044308) от 23.01.2023
+
+Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044308.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
+A3 Zgadzam Sie Na Ten Swiat
+A4 Slowa Do Matki
+A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607185   (1044158) от 25.01.2023
+
+Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044158.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Добром За Добро
+A2 Наказ Сыну
+A3 Симфония, Часть 1
+A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607410   (1044058) от 26.01.2023
+
+Рок-группа «Мост» - Музыка Сергея Баневича (1983) [FLAC 2.0|192/24|image+.cue] <Art Rock, Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044058.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ночной Полет
+A2 Ау, Улетевшее Детство
+A3 Корабль
+A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Pop RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607472   (1044025) от 26.01.2023
+
+Falkenbach - Studio Albums (6 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Viking/Black/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Falkenbach — немецко-исландский метал-проект.
+Группа на самом деле представляет сольное творчество Маркуса Тюммерса (Vratyas Vakyas). По происхождению немец, большую часть своей жизни он прожил в Исландии. Потом переехал в Германию, сейчас живёт в Дюссельдорфе, где у него собственная студия звукозаписи Skaldik Art, специализирующаяся на поддержке молодых языческих (   Читать дальше...   )1996 - ...En Their Medh Riki Fara...
+1998 - ...Magni Blandinn Ok Megintiri...
+2003 - Ok Nefna Tysvar Ty
+2005 - Heralding The FirebladeЖанр: Viking/Black/Folk MetalПродолжительность: 04:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5FE7B3487FF74257B3A15564CCA03BF213E88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608024   (1043805) от 28.01.2023
+
+Alice in Chains - Studio Albums (8 releases) (1990 - 2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Grunge, Heavy/Sludge Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alice in Chains — американская рок-группа из Сиэтла, образованная Джерри Кантреллом и Лейном Стейли в 1987 году. В начале 90-х годов коллектив получил широкую известность на волне роста популярности гранжа, наряду с Nirvana, Pearl Jam и Soundgarden.1990 - Facelift
+1992 - Dirt
+1995 - Alice In Chains
+1999 - Music Bank(   Читать дальше...   )Жанр: Grunge, Heavy/Sludge Metal, Hard RockПродолжительность: 11:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573515   (1043800) от 28.01.2023
+
+Lake of Tears - Studio Albums (9 releases) (1994 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Doom/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lake of Tears (с англ. — «Озеро слёз») — шведская группа, играющая в жанрах готик-метал и дум-метал с элементами психоделического рока и прогрессивного метала.1994 - Greater Art
+1995 - Headstones
+1997 - A Crimson Cosmos
+1999 - Forever AutumnЖанр: Doom/Gothic MetalПродолжительность: 06:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608205   (1043653) от 30.01.2023
+
+The Dogma - Studio Albums (3 releases) (2006-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1043653.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Dogma — прогрессив-метал/пауэр-метал группа из Анконы, Италия.2006 - Black Roses
+2007 - A Good Day to Die
+2010 - Black WidowЖанр: Symphonic Gothic/Power MetalПродолжительность: 02:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245C1B0A9C1653B600171059B943283EFB304FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608241   (1043618) от 30.01.2023
+
+VA - Для вас, женщины! Женский портрет (1987) hand made remastered [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043618.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:52] 1. Валерий Леонтьев - Женский Портрет
+[3:12] 2. Алла Пугачева - Я приглашаю вас на праздник
+[4:18] 3. Александр Барыкин и группа Карнавал - Когда мы влюблены
+[3:43] 4. Юлия Воронко - Ты приехал(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C080D4DA169E3DDF0714D7834666988662187729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609809   (1042934) от 05.02.2023
 
 Type O Negative - Studio Albums (8 releases) (1991 - 2007) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic/Doom Metal>
@@ -506,238 +738,6 @@ Christopher Tin - Calling All Dawns (2009) [DTS 5.1 CD-DA|44.1/16|image+.cue|Aud
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E25A3186DD1CFEA7D013FB692AF5FF6C82838B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043283   (1037630) от 21.01.2021
-
-E Nomine - Die Prophezeiung (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Monumental Dance, Electronic, Trance>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seit Anbeginn der Zeit... (Intro) (2:21)
-02. Die Verheissung (Interlude) (0:24)
-03. Deine Welt - Album (3:18)
-04. SchwarzerTraum (Interlude) (0:16)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA59F34912EE8D1C8EF5690DF64319F1EAF82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615418   (1037581) от 26.02.2023
-
-Catamenia - Studio Albums (10 releases) (1998 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Black Metal, Melodic Death/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1037581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Catamenia — финская мелодик-блэк-метал-группа из Оулу. Группа была образована в 1995 году вокалистом Микой Тённингом, гитаристами Рику Хопеакоски и Сампо Уккола, басистом Тимо Лехтиненом, клавишником Хейди Риихинен и барабанщиком Тони Тервоандом.1998 - Halls Of Frozen North
-1999 - Morning Crimson
-2000 - Eternal Winter's Prophecy
-2002 - EskhataЖанр: Melodic Black Metal, Melodic Death/Gothic MetalПродолжительность: 08:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615691   (1037291) от 27.02.2023
-
-Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1037291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
-2016 - Absence
-2017 - Fields of Isolation (EP)
-2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441372   (1037096) от 23.01.2021
-
-Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037096.jpg" />
-</div>
-
-
-###  Подробнее
-
--A1 Trapper Man
--A2 Back On The Dance Floor
--A3 Nobody's Child
-(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58592041013DB29AC5E67E57DE0393A99BF0E287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615941   (1037002) от 28.02.2023
-
-Dolly Roll - Dolly Roll/Happy Coctail (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037002.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Link A Lany
-A2 Csodalatos Kama Szutra
-A3 Florida Expressz
-A4 Szombatesti Szivtipro(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B531F24191ECDCC901C567BAAC7E3139A07AB739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615897   (1036974) от 28.02.2023
-
-The Verve - Studio Albums (4 releases) (1993-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Britpop, Alternative rock, Neo-psychedelia>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1036974.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Verve — британская рок-группа, образованная в 1990 году в Уигане, Большой Манчестер, Англия.1993 - A Storm In Heaven
-1995 - A Northern Soul
-1997 - Urban Hymns
-2008 - ForthЖанр: Britpop, Alternative rock, Neo-psychedeliaПродолжительность: 10:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7786679D3A83B3BCD4A4E9ABA6283C0D5148E3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615765   (1036917) от 28.02.2023
-
-Квартет Аккорд - Песня О Беспризорном Мальчишке (1974) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня О Беспризорном Мальчишке Из К-ф «Генералы Песчаных Карьеров»
-(Л. Оливейр – русский текст Ю. Цейтлина)
-02. Уйди Сама
-(Д. Джандиэри – И. Кашежева)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C3B4CC76A76978711873EEC5BDD1DE5B869C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616139   (1036717) от 01.03.2023
-
-VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036717.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 В. Бельченко - Признаюсь Я
-А2 Ж. Рождественская – Свет В Окне
-А3 О. Пирагс – Летние Каникулы
-А4 К. Георгиади - Судьба Моя(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

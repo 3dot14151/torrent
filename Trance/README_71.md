@@ -1,3 +1,90 @@
+###  Публикация: 908096   (31723) от 07.01.2025
+
+VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren pres Rising Star - Safe Inside You (feat Betsie Larkin) [03:21]
+02. Gareth Emery - Dynamite (feat Christina Novelli - MaRLo) [04:12]
+03. Andrew Rayel - We Bring The Love (feat Sylvia Tosun) [02:58]
+04. Cosmic Gate & Emma Hewitt - Going Home (Gareth Emery) [03:09](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2810102C450DA58DB4107FF9A0838F43800C53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009655   (31718) от 07.01.2025
+
+Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobina - Speed Breaker (05:28)
+ 02. Bobina with Natalie Gioia - Addicted (03:35)
+ 03. Bobina with Kyle Richardson - Love Is The Answer (03:10)
+ 04. Bobina - Music Box (Album Mix) (06:52)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B745988951118D55D373C76CC54CF4265C5ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824760   (31716) от 07.01.2025
+
+VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rafael Frost - Never Been Hurt Before - Radio Edit
+002. Dart Rayne - Incomplete - Radio Edit
+003. Beat Service - When You Won't Come Home - Radio Edit
+004. Tenishia - Lifetime When Right - Radio Edit(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC14C730011382CE1C0C583BF8BD550C0F07BC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419422   (31708) от 07.01.2025
 
 VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
@@ -658,93 +745,6 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [MP3|320 Kbps] <Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F89ADDB6EDD97843D657C06B475A193F50E18F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792351   (20907) от 19.04.2025
-
-VA - Black Hole Trance Music 04-25 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Enter The Portal (Extended Mix) (07:47)
-02. Driftmoon - Show Me (Extended Mix) (06:46)
-03. XiJaro & Pitch & JKult - United in Dreams (Extended Mix) (07:05)
-04. Johan Gielen, Airscape & Shakespeakers - Nordic Chant (Extended Mix) (05:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB074C6E28A4C7A78B678B8D671AD0CA51FEC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792980   (20694) от 21.04.2025
-
-VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polzn Bladz - Achoired Taste (Extended Mix) [7:19]
-02. James Pound - Game Changer (Extended Mix) [7:26]
-03. Trance X - A State Of Mind (Extended Mix) [6:32]
-04. Polzn Bladz - Ecomium (Extended Mix) [7:37](   Читать дальше...   )Жанр: TranceПродолжительность: 03:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983B49B3C8CDB3F74C0097F8F4A9680B6B236F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793472   (20386) от 24.04.2025
-
-VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Message In A Bottle (Extended Mix) [6:20]
-02. Adip Kiyoi - Admire (Extended Mix) [6:32]
-03. Alex M.O.R.P.H. & Roman Messer - Tranquillity (Extended Mix) [7:03]
-04. EpicFail & ILSE - Worth It (When it's You) (Extended Mix) [6:23](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
 ```
 
 https://mybot314.ru/tekegram_catalog/

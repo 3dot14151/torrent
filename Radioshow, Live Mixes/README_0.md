@@ -1,3 +1,148 @@
+###  Публикация: 458778   (1068350) от 07.05.2026
+
+VA - Mixadance 001-500 (2004-2014) <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068350.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Mixadance (Vol.1-7)
+2005 - Mixadance (Vol.8-60)
+2006 - Mixadance (Vol.61-111)
+2007 - Mixadance (Vol.112-164)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Electro ProgressiveПродолжительность: 471:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1155674BE076473110D0D2C309B72EF4A7BE6892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868587   (1068139) от 01.05.2026
+
+VA - Ori Uplift - Uplifting Only Episode 690 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duezher – Meet You In Autumn (Intro Mix)
+02. Madwave & XiJaro & Pitch – Nothing Set In Stone (Orchestral Uplifting Classic)
+03. Kelly Andrew – The Incursion (Afternova Remix)
+04. NyTiGen & Trance Reserve – Let Me Sing(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9FE21977021D16106F1E47909A734E92A8E51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868585   (1068138) от 01.05.2026
+
+VA - Armin van Buuren - A State Of Trance 1275 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unfiltered Special
+01. Jon Hopkins & Ólafur Arnalds – Forever Held
+02. Basil O’Glue – Course Of No Return
+03. Basil O’Glue – What Never Happened (F-Act Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4BE3E2BFB917023250E2F41DF2A028DD0EC1CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867347   (1066934) от 25.04.2026
+
+VA - Ori Uplift - Uplifting Only Episode 689 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Dinner – Epic (Intro Mix)
+02. Aurosonic & Sharon Valerona – Horizon (Dmitry Chelnokov Remix)
+03. New World – Fields Of La Tourette (Orchestral Uplifting Classic)
+04. Shadows&Nightmares – Ephemeral Life (Pre-release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0203E837AEB7BBBF68A1875A1998A23925462CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867214   (1066753) от 24.04.2026
+
+VA - Armin van Buuren - A State Of Trance 1274 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ K-Mixx – Intergalactic
+02. PARAFRAME – Strong
+03. Justmylørd & Julia Temos – The Edge
+04. Lee Coulson – Dealing With It(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BF64B19430EC11201BD888EE08E2E25FAFCEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865827   (1065516) от 17.04.2026
 
 DJ Sinatra - Deep n Funky Show #10 Guest Mix by Booka Shade (2015) [mp3|320kbps|tracks] <House>
@@ -600,151 +745,6 @@ VA - Armin van Buuren - A State Of Trance 1265 (2026) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEFE925C23FF6B4FC80412F627925169DC46EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853439   (1056836) от 13.02.2026
-
-VA - Ori Uplift - Uplifting Only Episode 679 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TOTY #22: LR Uplift, Julia Violin - Atlantis
-02. TOTY #22: Ruslan Khatmullin - Fortune
-03. TOTY #22: Ruslan Khatmullin - Romantic Wave
-04. TOTY #22: Phil Dinner - The Battle(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A99958FC12269A8D76777C93B704E5B1E599E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853432   (1056835) от 13.02.2026
-
-VA - Armin van Buuren - A State Of Trance 1264 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super8 & Tab ft. Anton Sonin – Black Is The New Yellow (Simon Gregory Remix)
-02. TYGR TYGR & MRPHLNDR – Save Me
-03. Ruben de Ronde & Amber Revival – River In Me
-04. OTTAGON & KhoMha – Metanoia(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1126A94DBA7B388CF23F73144310A80BAC7390D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852238   (1055875) от 06.02.2026
-
-Lost Frequencies - Tomorrowland Friendship Mix (2026-02-05) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies & CIEL. & Radio Cargo - Listen To Me
-02. Lost Frequencies & Argy ft. rhys from the sticks - Summer Skies (Lost Frequencies Deluxe Mix)
-03. MEDUZA - No Sleep
-04. Delta Vaults & Jordan Arts - Drowning(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B23DD34D49AFFFFC8EA067F15605AFAFB4D0A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852225   (1055870) от 06.02.2026
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, In Search Of Sunrise, HERE at Outernet London (2026-02-05) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz x BLR - Ten Seconds Before Sunrise
-02. Robert Nickson pres. RAHB - Heliopause 2025
-03. Markus Schulz & Matt Fax - The New World
-04. Markus Schulz - Remember This (ID Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BD10CDB48059921378A0493B1E34741AA52E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851951   (1055733) от 05.02.2026
-
-MORTEN - Live In Lisbon, Portugal (2026-01-30) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Trippie Redd - Locked In
-02. Prophecy - Suelta
-03. MORTEN & Rafael Cerato - Backstage Pass
-04. MORTEN & David Guetta - Lucky(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5E570188AE7C82508FB47A53F88AFF9BF1937D
 ```
 
 https://mybot314.ru/tekegram_catalog/

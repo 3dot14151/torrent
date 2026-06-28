@@ -1,3 +1,119 @@
+###  Публикация: 1423560   (299056) от 13.11.2020
+
+Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hugo (2001) Italian Version [FLAC|Lossless|image + .cue] <Musical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il tempo delle cattedrali (3:20)
+02. I clandestini (3:32)
+03. Zingara (5:22)
+04. Bella (4:36)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333646   (298941) от 27.10.2019
+
+Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby for You (6:04)
+02. Dreamland (6:03)
+03. Cradle Song (4:28)
+04. In a Silent Place (5:55)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6073EF9C6422A229E5416AC40CF62FDFC2061C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961636   (298919) от 02.12.2015
+
+Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Lands (feat. Juliana & Chris Conway)
+02. Return of the King (feat. Juliana)
+03. Merlyn and the Dragons
+04. The Quest Begins(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0358E3FB3A9DF7EF06D001CD0E2133D5FD3A5AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333631   (298743) от 27.10.2019
+
+VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Spa Music - Sleeping Waves (5:51)
+2.Karushanti, Deep Sleep - Tao of Sleep (6:04)
+3.Musica Relajante - Two Flames (6:00)
+4.Vi-Starrs, Namaste - Echoes from the Wreck (8:27)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334027   (298732) от 27.10.2019
 
 Ultimate Pop Hits and Piano Tribute Players - New Pop Covers on Piano (2019) [MP3|320 Kbps] <Instrumental>
@@ -629,122 +745,6 @@ Ray Conniff - Ray Conniff All Time Christmas Favourites (2018) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD379B543FB418DCF4D2A45B121AD43E27F8343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333848   (296822) от 28.10.2019
-
-Tron Syversen - Peaceful Journey (2011) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Dream (5:32)
-02. Rivers (6:08)
-03. The Beginning (7:32)
-04. Amorous (5:39)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF403CC86D2DD395B45643572858A18B6940EF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960388   (296796) от 03.12.2015
-
-Бряц-Band - 2 альбома (2005-2008) [MP3|320 кб/с]<Folk, Rock, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Boney M
-02 Тарантіноманія
-03 Реальні мультики
-04 Искала тебя(   Читать дальше...   )Жанр: Folk, Rock, InstrumentalПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078825   (296246) от 03.12.2016
-
-Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brake (Main Title) (02:09)
-02. Roulette (03:36)
-03. The Blind Watchmaker (03:26)
-04. Inside The Box (01:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D647FE65F73448567476B529CD50E4DB19E2739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078826   (296135) от 03.12.2016
-
-Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [FLAC|Lossless|tracks+.cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brake (Main Title) (02:09)
-02. Roulette (03:36)
-03. The Blind Watchmaker (03:26)
-04. Inside The Box (01:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7465D7E8F39689A91D64DE287ED80E69D85A9DF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

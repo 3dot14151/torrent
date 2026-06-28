@@ -1,3 +1,32 @@
+###  Публикация: 1251824   (413351) от 03.10.2018
+
+Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come To Me (03:52)
+02. 81 (05:34)
+03. Run (04:03)
+04. The Ice Queen (06:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B16B144E0088A28B07F3724E845170ABD6A3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573425   (412371) от 31.08.2022
 
 Tommy McLain - I Ran Down Every Dream (2022) [MP3|320 Kbps] <Roots, Country, Blues, Swamp Rock>
@@ -716,35 +745,6 @@ Springer & Cagle - Everyday Blues (2018) [MP3|320 Kbps] <Blues Vocals, Female Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A8C84A7419649FA6A89F3F252D22BB3A691729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413424   (385391) от 08.10.2020
-
-James Brown - Messing With The Blues , 2CD (1990) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like It Is, Like It Was (The Blues) (04:57)
-02. Don't Cry Baby (Undubbed Version) (03:01)
-03. Caldonia (Version 1) (02:55)
-04. Somebody Done Changed the Lock on My Door (Undubbed Version) (03:39)(   Читать дальше...   )Жанр: BluesПродолжительность: CD1,CD2  01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD3A7C5E15337B88B4F7717DE86C648C75EE7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

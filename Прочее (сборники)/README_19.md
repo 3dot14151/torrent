@@ -1,3 +1,212 @@
+###  Публикация: 612967   (979992) от 06.02.2013
+
+VA - Итоговый Независимый Хит–Парад - «Чартова Дюжина 2011» (2011) [MP3|128-320 кб/с]<Rock, Punk-Rock, Folk-Rock, Soft-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979992.jpg" />
+</div>
+
+
+###  Подробнее
+
+14. Калинов Мост - Толокно (3:16)
+ 15. KняZz - Человек-Загадка (4:53)
+ 16. Би-2 - Ее Глаза (из Шекспира) (4:52)
+ 17. Алексей Мурашов и Максим Леонидов - Полмили до дна (4:05)
+ 18. KняZz - В пасти тёмных улиц (4:16)
+ 19. Lumen - Не надо снов (3:19)
+ 20. Мураками - Нулевой километр (3:36)
+ 21. Глеб Самойлоff & The Matrixx - Опасность (3:28)
+ 22. Кипелов - Власть огня (4:47)
+ 23. Алиса - Дождь и Я (4:10)(   Читать дальше...   )Жанр: Rock, Punk-Rock, Folk-Rock, Soft-RockПродолжительность: 05:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2606C3BC7CC99342B160436E79B98AEE24D64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356023   (979615) от 29.01.2020
+
+VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2 Chainz, Future - Dead Man Walking (2:15)
+2.3-ий Январь - Фиолетовые мотыльки (3:12)
+3.Arash, Ilkay Sencan - Mary Jane (3:18)
+4.Kygo, Avicii, Sandro Cavazza - Forever Yours (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4CAC05BD670BFE4B05A8C3970FACCAFEC775B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973658   (979200) от 09.01.2016
+
+VA - Road, Darkness & Music (2016) [MP3|320 кб/с] <House, G-House,  Progressive, Trance, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979200.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexandre Bergheau - Home Is Where My Heart Is (Original Mix)
+002. Joseph Terruel - It's Only Love Doing It's Thing
+003. Therr Maitz - Doctor (Artur Montecci Remix)
+004. Sergio Gress, Alexey Sharapoff - Hands Up (Original Mix)(   Читать дальше...   )Жанр: House, G-House,  Progressive, Trance, TechnoПродолжительность: 04:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72D67ED92511DB2D5FFD1E1540135DD8665D1AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973733   (979140) от 09.01.2016
+
+VA - 100x Winter 2015 (5CD) (2016) [MP3|320 кб/с] <Club , Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979140.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Ellie Goulding - Love Me Like I Do [04:01]
+02. Felix Jaehn ft Jasmine Thompson - Ain't Nobody (Loves Me Better) [04:03](   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 06:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B7586A2FDC0C1E13364B1451F866CC6016964F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973710   (979138) от 09.01.2016
+
+VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sirias - Firestone (Workout Mix 114 BPM) [05:00]
+02. Billie Tasker - Hideaway (Workout Mix 123 BPM) [04:38]
+03. Stephan Baker - Waves (Workout Mix 120 BPM) [03:39]
+04. Billie Tasker - Am I Wrong (Workout Mix 120 BPM) [04:55](   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AA90CE515BA82E3C3082BBC9ED7566CDD96F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974040   (978163) от 10.01.2016
+
+VA - Dance Tropic (2016) [MP3|320 кб/с] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Turbotronic - Bba Ra Bam (Radio Edit)
+002. TK - Hello (A.R. Mix)
+003. 2NICA - Moorland (Satour Remix)
+004. Mario Sem - Run Again (Stephan F Remix Edit) (feat. John Mood)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 06:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24272E0D939A056CCC55576A71024CB80885DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973823   (977993) от 10.01.2016
+
+VA - Хиты на KISS FM. ТОП 40 (2016) [MP3|320 кб/с] <Club, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Disciples - How Deep Is Your Love (3:32)
+02. Imany - Don't Be So Shy (Filatov & Karas Remix) (3:09)
+03. Adele - Hello (eSQUIRE Remix) (3:49)
+04. Tiesto & KSHMR feat. Vassy - Secrets (Radio Edit) (3:14)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 03:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA3DE3E737E61A8D86A298E5222F7EF784C6A43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614665   (977909) от 08.02.2013
 
 VA - Модный Зимний Выпуск Зарубежный (2013) [MP3|256 кб/с]<Pop,Dance>
@@ -557,209 +766,6 @@ VA - 500 Лучших И Самых Ярких Композиций За 10 Ле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D63E2F6417EBD1A98F124B5A7BEFB405E743650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975716   (971487) от 15.01.2016
-
-VA - Дискотека 2016 Dance Club Vol. 147 от NNNB (2016) [MP3|320 кб/с] <Dance, Club, House, Trance, Pop, Dubstep, Breaks, Drum’n’Bass, Trap, Chill Out>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foxes - Amazing (Cahill Radio Edit)
-02. Flashtronica - I Can`t Stop (Diego Power Real Deep Remix)
-03. Armin Van Buuren, W&W - If It Ain’t Dutch (Radio Edit)
-04. Luke Bond vs. Cartel - Once More (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, House, Trance, Pop, Dubstep, Breaks, Drum’n’Bass, Trap, Chill OutПродолжительность: 11:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D022F85BAB8BF5336FCBB1A4B4AA946B9326D707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975768   (970938) от 16.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brando - Love Is A Fantasy (Radio Remix) (04:17)
-02. Boris Zhivago - Love In Russia (Radio Remix) (04:45)
-03. Birizdo I Am - Maybe Baby (Radio Edit) (04:04)
-04. Casanova - Angel Eyes (Short Version) (04:31)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F6500CDE5AD50243039720FC5330E0AF30D02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975900   (970928) от 16.01.2016
-
-VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House, Electro, Bigroom, Dutch, Dirty, Bounce>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970928.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. W & W And Moti - Spack Jarrow (Original Mix) 04:31
-002. Showtek Feat. Vassy - Satisfied 04:19
-003. Global Deejays & Frontload - Get Up! 04:28
-004. Starjack Feat. Mimoza - Thunder (Starjack Club Mix) 05:30(   Читать дальше...   )Жанр: Club, House, Electro, Bigroom, Dutch, Dirty, BounceПродолжительность: 09:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19BCBF1115E9901188A467B791EB382F38CCF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976080   (970872) от 16.01.2016
-
-VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (Club Mix) [06:52]
-02. Magazine 60 - Rendez-Vous Sur La Costa Del Sol (Maxi Version) [05:21]
-03. Boney M. - Gotta Go Home (Club Mix) [04:26]
-04. Dance Department - Paradise (Extended Dance Remix) [08:03](   Читать дальше...   )Жанр: Disco, Italo Disco, EurodiscoПродолжительность: 05:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55827469263974D2E5A65392B657DD1D23032A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358033   (970630) от 06.02.2020
-
-VA - 100 Greatest BRIT Awards Winners (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - New Rules
-002. Stormzy - Blinded By Your Grace, Pt. 2 (feat. MNEK)
-003. Little Mix - Shout Out to My Ex
-004. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FF9610D4ABC7E6C90D4B0A4F5FCCC784A24180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976432   (969830) от 17.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 5 (2015) [MP3|208 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D. White - One Wish (Extended Mix) (05:20)
-02. Liebe - I Believe In You (04:14)
-03. Italover - Forever Alone (04:09)
-04. Ken Laszlo - Tin Box (06:01)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 04:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6738A91D9649A3F99CA649AED76ED6231261D4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976501   (969725) от 17.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 6 (2015) [MP3|201 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kristian Conde - Light In The Dark (06:23)
-02. Tonschatz - Magic Energy (Single Version) (03:45)
-03. Mode One - Ocean Of Love (06:14)
-04. D.J. Savage - I Bridge New Life (Extended Version) (07:36)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 05:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8F1DE2D1B76FFE262AEEABA816383D4E4D372D
 ```
 
 https://mybot314.ru/tekegram_catalog/

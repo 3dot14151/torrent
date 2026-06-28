@@ -231,6 +231,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603431   (1045724) от 09.01.2023
+
+VA - Sexy Disco Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Society - Cumbia Buena (Club Mix)
+02. Danny Darko - Running Up That Hill
+03. Dark Society - Love Grows
+04. Danny Darko - Uptown Girl (West End Girls)(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 00:51:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F55DEF693A4DCBB5C9930180F9D168C232154DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604595   (1045314) от 14.01.2023
 
 The Magic Disco Machine - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Funk, Disco>
@@ -717,35 +746,6 @@ VA - Keep It Disco Vol. 08 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3FAA8B2E37625F24579B949AED76ED24B79010D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615597   (1037576) от 26.02.2023
-
-VA - Disco House Vol. 3 (2023) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Afrobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Moy - Tribal Garden
-02. Cut Wax - A CW V1
-03. Dj Moy - NY City
-04. Phil Disco - Disco Deluxe From Tokyo(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, AfrobeatПродолжительность: 02:09:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E6BC0737166666709B856B8FCEBC37A6EEC2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

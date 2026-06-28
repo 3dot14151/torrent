@@ -1,3 +1,227 @@
+###  Публикация: 1856333   (1059090) от 28.02.2026
+
+Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том серии «Программирование: введение в профессию» включает две основные части.
+
+В первую часть книги вошли избранные сведения из истории вычислительной техники, обсуждение некоторых областей математики, непосредственно используемых программистами (таких как алгебра логики, комбинаторика, позиционные системы счисления), математических основ программирования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МАКС ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FEDDA9D56C479C9681607C1A4CF08EA9ED181A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856324   (1058953) от 27.02.2026
+
+Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058953.jpg" />
+</div>
+
+
+###  Подробнее
+
+AI-powered applications are rapidly becoming the new normal. Personal productivity assistants, coding agents, smarter search, and automated reporting tools are popping up everywhere. The LangChain ecosystem, and standards like MCP are driving this new gold rush. This book helps you claim your spot.
+
+This is your hands-on guide to creating real, production-ready language (   Читать дальше...   )Жанр: Artificial Intelligence, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FACBF5B8E728A6E81A307E40048636B6DB6847C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856302   (1058946) от 27.02.2026
+
+Tilman M. Davies | The Book of R. A First Course in Programming and Statistics. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058946.jpg" />
+</div>
+
+
+###  Подробнее
+
+This long-awaited second edition folds years of updates into its beginner-friendly lessons on using R for data and statistical analysis.
+
+The Book of R is a comprehensive, beginner-friendly guide to R, the world’s most popular programming language for statistical analysis. Even if you have no programming experience and little more than a grounding in the basics of (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Probability & Statistics, Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C0084613BEC0D53A96A394E1FB99AD4874A579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856341   (1058939) от 27.02.2026
+
+Mabrouk Mahdhi | Mastering ASP.NET Core 10. Web Applications Made Easy with the Biggest Update Yet. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058939.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASP.NET Core 10 is finally here. Dive into the most encompassing update to Microsoft’s framework for developing web apps using the all-new .NET 10 framework. This book continues the legacy of the classic, bestselling ASP.NET Core manual but with 100% new material. Create modern, high-performance web apps with ease.
+
+In this completely new manual, gain a deeper understanding (   Читать дальше...   )Жанр: Microsoft .NET, Web Development & Design Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4D35B14D394D5E7B44A958260C29E5851E8B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856211   (1058656) от 27.02.2026
+
+Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Excel 2019 Levels 1&2 (2020) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058656.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Benchmark Series is designed for students to develop a mastery skill level in Microsoft Word, Excel, Access, and PowerPoint. Its graduated, three-level instructional approach moves students to analyse, synthesise, and evaluate information. Multi-part, projects-based exercises build skill mastery with activities that require independent problem solving, which (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Office Guides, Software Suite BooksЯзык: АнглийскийИздательство: Paradigm Education SolutionsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD9C25D42392F67A870614634DB2686683BA19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856212   (1058655) от 27.02.2026
+
+Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master Microsoft Excel's many capabilities (English Edition) (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Improve your daily work efficiency and productivity using Microsoft Excel
+Key Features
+Get familiar with some of the most useful basic and advanced features in Excel.
+Discover important Excel functions that can quickly and easily perform calculations and analysis.(   Читать дальше...   )Жанр: Microsoft Excel Guides, Computer ScienceЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF2F6A3B44437ABF28B27E9A6FEDBA9DBE2078F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856213   (1058654) от 27.02.2026
+
+Ritu Arora | Mastering Advanced Excel - With ChatGPT Integration. Learn Formulas and Functions, Advance Pivot Tables, Macros, VBA Coding, ChatGPT Integration with exercises (English Edition) (2023) ...
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unleash the power of Excel for advanced data analysis, automation, and productivity
+Key Features:
+Build a solid foundation in Excel by learning the basics, including the creation and formatting cells, sheets, and workbooks.
+Explore advanced Excel techniques, including formulas, data analysis, and VBA macros.(   Читать дальше...   )Жанр: Microsoft VBA, Microsoft C & C++ Windows Programming, Microsoft Certification GuidesЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC333B6CD659A6B91DEC9881D69D397AB31F79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856214   (1058653) от 27.02.2026
+
+Robinson Cortez | Microsoft Office 365 Bible 2024. Harness the Full Power of Office 365 for Seamless Workflows, Enhanced Collaboration, and Unparalleled Success (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ready to ascend to the pinnacle of productivity with Microsoft Office 365? Look no further than "Office 365 Bible" – your gateway to becoming a virtuoso of Word, Excel, Outlook, PowerPoint, Publisher, Access, OneNote, and OneDrive.
+Inside, You'll Discover:
+Word Wizardry: Forge flawless documents with advanced formatting, collaborative prowess, and savvy (   Читать дальше...   )Жанр: Компьютерная литература, Microsoft OfficeЯзык: АнглийскийИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844518D162CC5718CEA43D23A9124CA341DACACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856216   (1058652) от 27.02.2026
 
 Альберто Феррари, Марко Руссо | Анализ данных при помощи Microsoft Power BI и Power Pivot для Excel (2020) [PDF]
@@ -467,220 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77ECAD8121E1CDFE07A61B47B03B88ADAC310B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852868   (1056564) от 12.02.2026
-
-Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056564.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852864   (1056563) от 12.02.2026
-
-В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852863   (1056562) от 12.02.2026
-
-В.М. Фомичев | Сборник задач по криптологии (2019) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит типовые задачи по криптологии, опирающиеся на базовые знания из дискретной математики, теории сложности алгоритмов и теории вероятностей. Выборочно даны ответы на вопросы, поставленные в задачах, в некоторых случаях - с комментариями, указывающими на способ решения задачи. Материалы сборника предназначены для использования при проведении семинарских (   Читать дальше...   )Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55D1D2381B3D1D88D1D2D94749BB583A42CFD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852862   (1056561) от 12.02.2026
-
-А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852861   (1056560) от 12.02.2026
-
-Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852860   (1056559) от 12.02.2026
-
-Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reason confidently about distributed systems.
-
-Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852858   (1056558) от 12.02.2026
-
-Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just the Docker you need to know in 22 bite-sized lessons!
-
-In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852857   (1056557) от 12.02.2026
-
-Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
-Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
-Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
 ```
 
 https://mybot314.ru/tekegram_catalog/

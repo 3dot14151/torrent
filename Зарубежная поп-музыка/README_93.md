@@ -1,3 +1,32 @@
+###  Публикация: 1749886   (43358) от 16.09.2024
+
+VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puma - Do It Right
+02. Loverman - Touch My Body
+03. U96 feat Dea-Li - Electric Love
+04. Robin Cook - Reagge In The Night(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749880   (43353) от 16.09.2024
 
 VA - DJ Hits Vol. 3100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
@@ -713,35 +742,6 @@ Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C192A4884CEBD46D29514165D29D33F5F66E4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756660   (39566) от 22.10.2024
-
-Amanda Lear - Amanda Lear / Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Pack
-02. Queen Of Chinatown
-03. The Lady In Black
-04. These Boots Are Made For Walkin(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358D744369D7B0D7297AE65616F308E0A6756B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

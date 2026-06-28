@@ -1,3 +1,90 @@
+###  Публикация: 947970   (415728) от 18.10.2015
+
+VA - 50 Vocal Trance Hits (2015) [MP3|320 кб/с]<Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UCast & Susana - To Another Day (Radio Edit) (03:57)
+02. Beat Service & Ana Criado - An Autumn Tale (Kaimo K Radio Edit) (04:20)
+03. ReOrder & Katty Heath - Love Again (Radio Edit) (03:44)
+04. Dan Chase & Cynthia Hall - Life Won't Let Us Fall (Radio Edit) (04:27)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DCCBB7FDF7775AAAB728A118810DED8ACD597D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251643   (415604) от 02.10.2018
+
+VA - Only Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Liquide - New Dawn (Radio Mix)
+02. Fischer & Miethig - Rush Night 2014 (Mindsoundscapes Radio Cut)
+03. Aural Project - Fine Tune (Radio Cut)
+04. Boki & Met - Midnight Sun (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D41A1472DDA5B37CB8CCBBFA6A66D0F313AE2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167653   (415252) от 21.09.2017
+
+VA - Trance Collection By Yeiskomp Records Vol 22 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DenBray - Ashes (Original Mix) (04:34)
+02. Libra - Lighthouse (Original Mix) (07:35)
+03. Paipy - Namaskara (Original Mix) (08:48)
+04. Elian West - Andromeda Galaxy (Original Mix) (08:43)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01BEEB048F5AE81F8549DF4014EF7A38FFC2987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167647   (415101) от 21.09.2017
 
 VA - Black Hole Trance Music 09-17 (2017) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - A State Of Trance Top 20 - October (Selected By Armin Van Buuren) ADE Speci
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EED359F4957D130F1BFE934A8CA9152B65F4EF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253134   (388030) от 07.10.2018
-
-VA - Body Of Work - The Best Of Denise Rivera (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blizzard & Denise Rivera - Love Is In The Little Things (Original Mix)
-02. Ruslan Radriges & Denise Rivera - The Voice Of Freedom (Original Mix)
-03. Cosmic Gate feat. Denise Rivera - Body Of Conflict (Vocal Edit)
-04. Ferry Corsten - Possession (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E826E786B908A47F594BA4D5814616DBB8B09695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253138   (387591) от 07.10.2018
-
-VA - Best of Chill out Vocal Trance 2019 (2018) [MP3|320 Kbps] <Trance,Vocal Trance,Chillout>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Katty Heath – My Good Place (Mark Otten Downtempo Remix)
-02. Sue McLaren – Haunted (Zetandel Chillout Remix)
-03. Nicholas Gunn – Older (feat. Alina Renae)
-04. Raz Nitzan & Maria Nayler – Nothing Breaks Like a Heart (Seven24 & S.a.T Remix)(   Читать дальше...   )Жанр: Trance,Vocal Trance,ChilloutПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2342778C3B8D82FECB8E14FB9732C7B51B3DF676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253211   (385552) от 08.10.2018
-
-VA - Amsterdam Dance Essentials Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utku Erbay - Gonna Be Free (Original Mix)
-02. Eric Senn - Days To Come (Original Mix)
-03. Angelica S - Monologue Of The Soul (Science Deal Remix)
-04. James Dust - Bagged (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8950F8879A3E1C7AFACE13485FC11B85226A3A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

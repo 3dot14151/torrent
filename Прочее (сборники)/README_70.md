@@ -1,3 +1,206 @@
+###  Публикация: 1221127   (698499) от 22.04.2018
+
+VA - Золотые русские романсы (2018) [MP3|256 Kbps] <Романсы, Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698499.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Валентина Пономарёва - А напоследок я скажу
+002. Галина Иванова, Олег Иванов - Да ну да най
+003. Гульнара Исмаева - На заре ты её не буди
+004. Александр Вертинский - Дорогой длинною(   Читать дальше...   )Жанр: Романсы, Поп, РокПродолжительность: 05:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C89CE9A46C25955A136B67231BC18047BE8159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132924   (698246) от 10.05.2017
+
+VA - Ремиксы Русского Кино (2017) [MP3|320 Kbps] <OST, Remixes, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Грув - Вальс (Берегись автомобиля)  2:49
+02.  DJ Грув - Утро (Служебный роман)  3:22
+03.  DJ Паша Кореец - Перемен (АССА)  4:54
+04.  Natali - Звезда по имени Солнце (Игла)  4:16(   Читать дальше...   )Жанр: OST, Remixes, DanceПродолжительность: 01:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604820880077B321CFCD9305AD528C8F05664E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027217   (698238) от 18.06.2016
+
+VA - I Love Ballads - Part VII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavour - Comme Ils Disent
+02. E-Type - Star
+03. Eternal - Don't You Love Me
+04. Eros Ramazzotti & Cher - Piu Che Poi(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C67E129D01D27B0981E932D1E17E12A3ECCCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220951   (698142) от 22.04.2018
+
+VA - Absolute Dance Spring 2018 [MP3|256-320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daft Punk - One More Time (Short Radio Edit)
+02. Tiesto - Adagio For Strings (Radio Edit)
+03. The Prodigy - Smack My Bitch Up
+04. Underworld - Born Slippy (Nuxx / Remastered)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 04:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106D6706D0C0F674318EB2DE8FF4A61E44D0E4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221015   (698141) от 22.04.2018
+
+VA - Top 50 Зайцев FM: Апрель 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta feat. Sia - Flames 3:15
+02. DJ Smash - Моя Любовь 18 3:18
+03. Marshmello & Anne-Marie - Friends 3:23
+04. Mr. Da-Nos - Ohlala (Radio Edit) 3:02(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA25CBB969F193932A35D53A559707B2FD9ABA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794344   (697452) от 08.06.2014
+
+VA - My Favourite Hits of 1983 (10CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697452.jpg" />
+</div>
+
+
+###  Подробнее
+
+150. Bryan Adams - Take Me Back (04:36)
+151. Blonker - Sleepwalk (02:14)
+152. Tommy Faragher - Look Out For Number One (03:18)
+153. Bonnie Tyler - It's A Jungle Out There (04:36)(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5304B882C48F6222346A99C5E93AA444C11567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402937   (697438) от 16.08.2020
+
+VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 044 ROSE - Виды (3:10)
+02. 2 Chainz feat. Lil Wayne - Money Maker (3:00)
+03. 6ix9ine - PUNANI (1:55)
+04. Alexandra Stan feat. LiToo - Tikari (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C3931A836D8632559AB4C2B8F8AAF7978BDD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133236   (696944) от 11.05.2017
 
 VA - New generation Euro Disco Vol.7 (2017) [MP3|256-320 Kbps] <Disco, Pop, Dance>
@@ -537,209 +740,6 @@ VA - One Love Reggae: Soul Collection (2017) [MP3|250-320 Kbps] <Reggae, Lyric>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E83FB51AA0017C4740A8780EEED535A3F9B6E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133591   (691414) от 14.05.2017
-
-VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mr. President - 4 On The Floor 3:17
-002. Dj Bobo - Amazing Life 4:01
-003. E-Type - Angels Crying 3:51
-004. The Free - Dance The Night Away 3:51(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95C818E67826C4D7DA65E5016F8E89D1AABB4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133917   (691407) от 14.05.2017
-
-VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino Hip>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691407.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Unic - Rikiti (Feat. El Chacal, El Micha, Los Desiguales, Chocolate, Insurrecto) (Remix 2016) 8:06
-002. Jacob Forever - Hasta Que Se Seque El Malecon 3:07
-003. Alex Sensation - Bailame (Feat. Yandel & Shaggy) 3:56
-004. El Chacal - Song Love (Feat. Divan)Жанр: Reggaeton, Latino HipПродолжительность: 05:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662F991D9E47B67353C7C5EB60B3CD34A1A055D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133592   (691164) от 14.05.2017
-
-VA - Disco Dance 90’s (2017) [MP3|320 Kbps] <EuroDance , Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nsync - Tearin Up My Heart 3:41
-002. Black Spaghetti - Fight For Your Right 3:46
-003. Coco - I Had A Dream 3:52
-004. E-Motion - Get Up 5:37(   Читать дальше...   )Жанр: EuroDance , DiscoПродолжительность: 05:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D12276DC78841005BF0B965DCFE62E868139296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134000   (690762) от 14.05.2017
-
-VA - Дискотека забытых хитов (2017) [MP3|320 Kbps] <Disco, Europop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690762.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Selena - Timebomb  3:38
-002.  Doctor's Cat - Watch Out!  7:06
-003.  Sissy - Queen Of Discoteque  3:47
-004.  Erasure - So The Story Goes  4:09(   Читать дальше...   )Жанр: Disco, EuropopПродолжительность: 09:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C687F25602693816194CAA8FDEDCA6D260BC9DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534906   (690628) от 04.03.2022
-
-VA - Music News vol.170 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kecha - Дьявол Вернулся (02:10)
- 002. 5 Seconds Of Summer - Complete Mess (03:26)
- 003. 5Утра - Без Тебя Я Тону В Этом Море (Barabanov Remix) (02:43)
- 004. A7S - By My Side (Ely Oaks Remix) (03:23)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBAB15852F322A03DF0B64EA25B341B01598096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534584   (690371) от 04.03.2022
-
-VA - Make Love, not War (2022) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rolling Stones - She's A Rainbow (Original Single Mono Version) (04:11)
-02. Kelly Clarkson - The War Is Over (03:57)
-03. Janis Joplin,Big Brother & The Holding Company - Piece of My Heart (04:09)
-04. The Beatles - While My Guitar Gently Weeps (Remastered 2009) (04:45)(   Читать дальше...   )Жанр: Rock, Pop, Blues, ReggaeПродолжительность: 07:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AE1E9F60027A15DBD85B65F299340353716B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289043   (690227) от 14.03.2019
-
-VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mаrshmеllo & Bаstillе - Hаppiеr
-002. Mаxim & Dаncеfloor Kingz - Strong (Rаdio Edit)
-003. Amаndа Pаris - Go Whеrе It Tаkеs Us
-004. Audiorush And Mаrc E B - Anothеr Onе (Originаl Mix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 12 :07 :52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210C9FDADFD43BF98E3E578F8E8EF9AB7BA3A317
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1622301   (1030269) от 28.03.2023
+
+VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Maria Nayler - Nothing Breaks Like A Heart (Radio Edit) [4:20]
+02. Raz Nitzan & Fenna Day - Room For Doubt (Original Mix) [3:34]
+03. Susana & Raz Nitzan - Fall Into Trust (Original Mix) [3:48]
+04. Raz Nitzan & Denise Rivera - The Last To Know (Original Mix) [2:52](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677CDDACD82347EA97526C9FCF85C8CEB4A037EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450032   (1029317) от 24.02.2021
+
+VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - Resonation Radio (Intro)
+02. Ferry Corsten & Gouryella - Gouryella (Extended Mix)
+03. Naz - Lost (Extended Mix)
+04. Ferry Corsten & We Are Loud - I Don't Need You (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 03:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9D83C1EF1864C68C9254986B65225D53EB40DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456108   (1025295) от 21.03.2021
+
+VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT & Matt Fax feat. Nation Of One - Walk Into The Water (Craig Connelly Extended Remix) 7:46
+02. Eximinds & Gallen Rho - Within Starlight (Extended Mix) 4:24
+03. Markus Schulz & Christina Novelli - Not Afraid To Fall (Markus Schulz Escape Mix) 4:22
+04. HALIENE - Walk Through Walls (MaRLo Extended Remix) 5:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9730A3A9BDABDABB1F807D7CF1F33CA13730782A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460051   (1022811) от 04.04.2021
 
 Complex Numbers - Техно-опера "Мы, XXII век" (2018) [MP3|320 Kbps] <Trance, Electro>
@@ -661,99 +748,6 @@ VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D7FC2CA6AFFA1EA1698B7727EEA1F105FCD34E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983500   (943745) от 06.02.2016
-
-VA - Global DJ Broadcast Top 20 January 2016 (With Markus Schulz) (2016) [MP3|320 кб/с] <Trance, House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Nifra - The Creation (Prague) (Transmission Theme 2015) (07:27)
-02. Arkham Knights - Knightfall (Original Mix) (07:02)
-03. M.I.K.E Push vs Rank 1 - Zenith (Original Mix) (08:59)
-04. Solarstone & Gai Barone - Fata Morgana (Extended Mix) (09:15)(   Читать дальше...   )Жанр: Trance, House, Progressive TranceПродолжительность: 02:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081CA925E08C30B293CEA6767760F6ABA233BADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175041   (943516) от 12.02.2010
-
-Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Many Times
-02. Trance & Acid
-03. Conscious (Energy Mix)
-04. Tiefenrausch (The Deep Blue)
-05. Bad Shape
-06. 4 Just 1 Day (ATB Remix)
-07. Dance For Eternity (Groover Mix)
-08. Life Is Too Short (Energy Mix)
-09. Express Your Hidden Passion
-10. Liquid Skies(   Читать дальше...)Жанр: Trance, Vocal Trance, Uplifting Trance |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091380   (943234) от 09.01.2017
-
-VA - Suanda Winter Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer - Frozen (LTN Sunrise Remix) (feat. Christina Novelli)  5:21
-02.  Frainbreeze - Black Eagle (Original Mix)  5:25
-03.  Mhammed El Alami - Under The Sun (Original Mix)  6:09
-04.  Photographer - Infinity (Original Mix)  6:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7079FE2C41DB94EB09F1117D9EFCCE3AC17D39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1518792   (152256) от 21.12.2021
+
+Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом известной группы Gregorian в сопровождении великолепных видов природы, старинных замков и убранства средневековых соборов.Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677796   (149205) от 19.11.2023
+
+Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unheilig (читается «унха́йлихь», с нем. — «нечестивый (грешный, несвятой)») — немецкая группа, образованная в 1999 году совместно музыкантом и композитором под сценическим псевдонимом Граф (Der Graf), и Грантом Стивенсом (Grant Stevens) — автором песни «Everlasting Friends» из телевизионной рекламы Holsten Pilsener и Хозе Альварез-Бриллем (Jose Alvarez-Brill), (   Читать дальше...   )01 Unter Deiner Flagge
+02 Mein Berg
+03 Freiheit
+04 Sage Ja!(   Читать дальше...   )Производство: ГерманияЖанр: Industrial Gothic MetalУчастники: Граф (вокал, программирование)
+Кристоф «Лики» Термюлен (гитара)
+Хеннинг Ферлаге (клавишные, программирование)
+Мартин «Потти» Поттхофф (ударные и перкуссия)Продолжительность: 01:50:13 + 02:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677845   (149185) от 19.11.2023
+
+Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149185.jpg" />
+</div>
+
+
+###  Подробнее
+
+HammerFall — группа из Швеции, играющая в стилях хеви-метал и пауэр-метал. Основана гитаристом Оскаром Дроньяком в 1993 году, а известности достигла после прихода в 1996-м вокалиста Йоакима Канса, который стал вторым лидером группы. Песни HammerFall в основном посвящены средневековым рыцарям, сражениям, мужеству и героизму. Музыка группы эволюционировала от чистого (   Читать дальше...   )01. Patient Zero
+02. Heeding The Call
+03. Any Means Necessary
+04. B.Y.H.(   Читать дальше...   )Производство: ГерманияЖанр: Power MetalУчастники: Йоаким Канс (вокал)
+Оскар Дроньяк (гитара, бэк-вокал)
+Фредерик Ларссон (бас-гитара, бэк-вокал)
+Понтус Норгрен (гитара)(   Читать дальше...   )Продолжительность: 02:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F80ACDF9BD02D819A5274DACA14A9EBAB19B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677912   (148835) от 19.11.2023
+
+Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Within Temptation — нидерландская симфоник-метал-группа. Группа была основана в 1996 году гитаристом Робертом Вестерхольтом и вокалисткой Шарон ден Адель. Музыкальный стиль Within Temptation определяют как симфоник-метал, а на ранних записях — готик-метал. Сама Шарон ден Адель считает, что Within Temptation работают в жанре симфоник-рок с разными влияниями и не являются (   Читать дальше...   )01. Overture
+02. Jillian (I'd Give My Heart)
+03. The Howling
+04. Stand My Ground(   Читать дальше...   )Производство: ГерманияЖанр: Symphonic MetalУчастники: Шарон ден Адель (вокал)
+Роберт Вестерхольт (гитара, гроул)
+Рюд Йоли (гитара)
+Йерун ван Вен (бас-гитара)(   Читать дальше...   )Продолжительность: 02:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC7C9662600525ACF37B56A4DD7C550653FC457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588985   (148165) от 15.12.2012
 
 VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
@@ -609,115 +731,6 @@ AC/DC (Эй-си/ди-си; сокращённо от англ. alternating curr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3004D586E4A095D5D3F74FAE8B4C3EC08C3FD42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591320   (136149) от 20.12.2012
-
-Субботним вечером в прямом эфире / Saturday Night Live: Paul McCartney (SNL) (2012) HDTV [MPEG-2/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Пола Маккартни на шоу "Субботним вечером в прямом эфире" американского телеканала NBC 15 декабря 2012 г.01. Cut Me Some Slack (feat. Nirvana)
-02. My Valentine (feat. Joe Walsh)
-03. Simply Having a Wonderful Christmas timeЖанр: Концерт, RockПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591350   (136078) от 20.12.2012
-
-Глюк' OZA - Nowбой (2011) BDRemux
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый грандиозный проект певицы Глюк'озы! Живой концерт "NOWБОЙ" на диске Blue Ray! Программа концерта содержит, как старые, любимые всеми хиты певицы, так и новые песни. "Невеста", "Снег идёт", "Шуга" и многие другие знаковые композиции порадуют зрителя вместе с новыми, но уже полюбившимися хитами "Взмах", "Вот такая любовь", "Следы слёз" и многими другими. Каждый номер - это яркое сочетание световых эффектов, нереальных костюмов, хореографии и великолепного звука. Современное звучание и высокотехнологичная съёмка концерта позволит зрителю побывать на живом выступлении Глюк'озы не выходя из дома!Жанр: PopПеревод: ОтсутствуетПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679825   (135185) от 26.11.2023
-
-Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recorded live in Sydney, Meat Loaf performs his greatest hits in an unforgettable concert showcasing the legendary '70s rocker dominating the stage, blasting out his iconic hits such as 'Bat Out Of Hell', and 'You Took The Words Right Out Of My Mouth (Hot Summer Night)' among others. In front of a sold out and wildly passionate crowd, Meat Loaf proves why his multi-platinum (   Читать дальше...   )Производство: Австралия / Via Vision EntertainmentЖанр: Rock, Hard rock, Heavy metal, Wagnerian rockАктеры: Meat Loaf: lead vocals; Patti Russo: female lead vocals; John Miceli: drums; Paul Crook: guitar; Randy Flowers: guitar, backing vocals; Dave Luther: saxophone, keyboards, backing vocals; Danny Miranda: bass, backing vocals; Justin Avery: piano, backing vocals; Ginny Luke: violin, backing vocalsПеревод: ОтсутствуетПродолжительность: 02:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6E80791668B84A12B6AF83BB83F84E6B45C62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679877   (134887) от 27.11.2023
-
-Квартирник у Маргулиса. «Корней» (26.11.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камерный концерт музыкального коллектива «Корней». Владимир Корниенко — сессионный гитарист и аранжировщик, на его счету более 60 альбомов. Музыкант известен по работе с Найком Борзовым, группами «Танцы Минус», «Ундервуд» и многими другими.00:00:06 За сотку до Речного
-00:05:20 Как воздух
-00:12:42 Осторожно
-00:18:40 Куда вы, минуты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Indie, rockЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683AC18E4DBFE8CC38C292F149BAE5539FF772D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

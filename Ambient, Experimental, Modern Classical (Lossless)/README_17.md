@@ -1,3 +1,91 @@
+###  Публикация: 1099608   (309950) от 13.11.2017
+
+Arc Of Doves - Discography 7 Releases (2009-2017) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, Dub Techno, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Conversation (04:38)
+ 02. Gravity (03:59)
+ 03. Remains of the Day (04:13)
+ 04. The End (03:28)Тип издания: CD, WebЖанр: Ambient, Minimal, Modern Classical, Dub Techno, Downtempo •Продолжительность: 00:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B518D389EBE343623A72EDDA31E24A5CC0285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367507   (308428) от 09.11.2020
+
+Gamardah Fungus - Collection 8 Releases (2011-2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Drone, Modular Synth>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gamardah Fungus – группа музыкантов-экспериментаторов из Украины, г. Днепропетровск.
+Их музыка – медитативный дроун эмбиент, граничащий с медленным депрессивным сладжем и утопающий в безысходности дарк джаза. В ней слышно, как гитарные и духовые соло тонут в уличных и заводских шумах, как редкие барабанные ритмы задыхаются в синтезаторных пассажах, как ветры скользят (   Читать дальше...   )Список альбомов:
+2011 - CELESTIAL FUNERALS
+2012 - Inner Solitude
+2013 - Night Walk With Me(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Dark Jazz, Drone, Modular SynthПродолжительность: 06:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB145157625F6F8E3ECCCD959152388F1BBC62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260892   (307704) от 09.11.2018
+
+Orla Wren - Moccasin Flowers (2015) silentSEED [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Abstract, Musique Concrète, Glitch>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Inside, The Outside, The Other (04:49)
+02. Move, Learn, Drink Water (04:19)
+03. A Woven Rope Of Woven Hope (03:47)
+04. Paths Unblocked, Broken Clocks (05:39)(   Читать дальше...   )Жанр: Ambient, Experimental, Abstract, Musique Concrète, GlitchПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DA241B7F74CD80B51B546A69D2B13ED3A6F360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333081   (307484) от 23.10.2019
 
 Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient, Ambient>
@@ -657,93 +745,6 @@ Sam KDC - Late Night Innominate, Volume One (2015) Auxiliary [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27C442282B8394B6667C58C573A748C6823C32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191697   (263893) от 15.12.2017
-
-Isorinne - Speechless Malison (2017) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9:21 (09:21)
- 02. 3:29 (03:29)
- 03. 4:05 (04:05)
- 04. 4:55 (04:55)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D461233CEE6764747EEC8E175BF1D9B147DEB724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191769   (263857) от 15.12.2017
-
-Parks (The Parks, Парки) - Discography 12 Releases (1991-2016) Elektrus, Фоно [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Breath Of Autumn (09:40)
- 02. Black Day, Silver Sea (08:40)
- 03. Perfect Silence (10:32)
- 04. Waves (06:48)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient/DroneПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343C0F975AA27BA8977EE9E699FA3B7DA5B4BACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340722   (263600) от 24.11.2019
-
-Anton Belov (of Kauan) - Piano Works II (2019) [FLAC|Lossless|Web-DL|tracks] <Ambient, Electronic, Piano>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flicka (6:33)
-02. Erstwhile (6:46)
-03. By the Grave (3:49)
-04. Concomitance (9:54)(   Читать дальше...   )Производство: kauanmusicЖанр: Ambient, Electronic, PianoПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C768D62C9663AFE7A8B0E39F659142F4CB35C8B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -288,6 +288,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467901   (1017577) от 05.05.2021
+
+Kiefer - Between Days (2021) [FLAC|Lossless|Web-DL|tracks] <Jazz Hop, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Days (2:34)
+02. Superhero (2:46)
+03. Friends (4:40)
+04. Labored Breathing (1:09)(   Читать дальше...   )Производство: Stones Throw - 659457245634Жанр: Jazz Hop, Hip-HopПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A87659B6B3E4DD15FF7260BE04CA1B1ED592744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467902   (1017568) от 05.05.2021
 
 Alfa Mist - Bring Backs (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz>
@@ -368,6 +397,35 @@ Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75945BCAA2B2B3FCD0762DEA4E691064ABB7F6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469446   (1016406) от 12.05.2021
+
+Evil Needle - Sound Escapes (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental, Chill>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Needle - Cruising (02:51)
+02. Evil Needle - Low Rider (02:55)
+03. Evil Needle - Vintage (02:54)
+04. Evil Needle, Venuz Beats - Dive (02:50)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental, ChillПродолжительность: 00:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F9CBCA9BDFD42664AF22085652D22D881CDEB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,64 +745,6 @@ Kanye West - The Life of Pablo (2016) [FLAC|Lossless|tracks] <Hip-Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC2AB09D5F31B5F5B01D331C2FBE973F5E609371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987227   (925900) от 17.02.2016
-
-VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - In Da Club (3:15)
-02. Kanye West - Love Lockdown (4:31)
-03. Nelly - Hot In Herre (3:49)
-04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367673   (915508) от 16.03.2020
-
-Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hip-Hop, Electronic, Experimental, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (feat. Panther Modern) (3:32)
-02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!) (4:06)
-03. Da Godz Mus B Krazy (3:20)
-04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes) (3:56)(   Читать дальше...   )Производство: Zef RecordzЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
 ```
 
 https://mybot314.ru/tekegram_catalog/

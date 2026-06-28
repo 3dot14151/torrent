@@ -1,3 +1,32 @@
+###  Публикация: 1844678   (1050422) от 28.12.2025
+
+VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miz Tasha Cobb - Dust on the Wall
+02 - Velvet Ashes - The Most Beautiful Jaz
+03 - Ai - Still on the Road (A Farewell to Chris Rea)
+04 - Ai - I Call Your Name(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844805   (1050418) от 28.12.2025
 
 VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
@@ -716,35 +745,6 @@ Gruро Bryndis - Simplemente Gracias (2021) [MP3|320 Kbps] <Rock Blues, Rock Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE1DA5101CBD7AC708E816BB3D9AF17324E4500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619698   (1032712) от 17.03.2023
-
-VA - My Heart's In Blues (2023) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032712.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ray Charles, Natalie Cole - Fever (with Natalie Cole) [03:31]
-002. The Blues Mystery - Back to the Dirty Town [05:33]
-003. ZZ Top - Blue Jean Blues (2005 Remaster) [04:40]
-004. Keb' Mo' - Somebody Hurt You [03:37](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 13:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A654D4443FE06C1D9704C3EFAD2F46F963F2F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 1510632   (790330) от 18.11.2021
+
+Little Mix - Between Us (Deluxe Version) (2021) [AAC|~317 Kbps] <Pop, R&B>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout Out to My Ex (4:06)
+02. Black Magic (3:32)
+03. No (3:03)
+04. Touch (3:33)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2949B8BB64162E6478D361828F2130C27BC5D8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510881   (790275) от 18.11.2021
+
+А теперь нечто совсем иное / And Now for Something Completely Different (1971) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первый полнометражный фильм «Монти Пайтон» - творческого содружества британских актеров, сценаристов, режиссеров и художников. В сущности, фильм представляет антологию скетчей, полных черного юмора, которые были впервые показаны в легендарной телевизионной серии «Летающий цирк» на английском телевидении.Производство: Великобритания / BBC Television Centre, Python (Monty) Pictures LimitedЖанр: комедияРежиссер: Йен МакНотонАктеры: Грэм Чепмен, Джон Клиз, Терри Гиллиам, Эрик Айдл, Терри Джонс, Майкл Пэйлин, Кэрол Кливлэнд, Конни Бут, Льюис Александр, Родни КардиффПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: русские, английскиеПродолжительность: 01:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93D8772E8C301FBD0A58EEB178BB2CDFF751841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510629   (790268) от 18.11.2021
+
+Destiny's Child - Survivor (2001) [AAC|~336 Kbps] <R&B, Funk / Soul, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Independent Women, Pt. 1 (3:42)
+02. Survivor (4:14)
+03. Bootylicious (3:28)
+04. Nasty Girl (Album Version) (4:18)(   Читать дальше...   )Жанр: R&B, Funk / Soul, PopПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0ADD23006560FEA27413D4B09D733CF48049E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510640   (790220) от 18.11.2021
+
+VA - New Horizons: Young Stars of South African Jazz (2020) [AAC|~338 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benjamin Jephta Quintet - Evolution, Pt. 2 (3:30)
+02. Thandi Ntuli - Cosmic Light (6:16)
+03. Mabuta, Reza Khota - Slipstream (3:07)
+04. Lwanda Gogwana - Maqundeni (1:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2D402397B1F04315B0843C6F422494137B3206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510645   (790216) от 18.11.2021
+
+VA - New Horizons: Young Stars of South African Jazz, Vol. 2 (2021) [AAC|~338 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thembelihle Dunjana - Pressin' On (2:42)
+02. The SN Project - Afrikanization (5:44)
+03. Sisonke Xonti - Sinivile (6:31)
+04. Muhammad Dawjee, Siphephelo Ndlovu - Otherness (6:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1855A5BE2AB01FA869A2ECD54EC91616EA86F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510831   (790214) от 18.11.2021
+
+Adele - 30 (2021) [AAC|~290 Kbps] <Pop, Soul, Vocal Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers by Nature (3:02)
+02. Easy on Me (3:45)
+03. My Little Love (6:29)
+04. Cry Your Heart Out (4:15)(   Читать дальше...   )Жанр: Pop, Soul, Vocal JazzПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280F1BB9615FA48DBBEE9C4B1A44ADCA51FB559C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510668   (790202) от 18.11.2021
 
 Smooth Jazz All Stars - 100 Gospel Jazz Hits (Instrumental) (2021) [AAC|~302 Kbps] <Smooth Jazz, Instrumental>
@@ -546,174 +717,6 @@ Marina & the Kats - Swingsalabim (2019) [AAC|~332 Kbps] <Swing, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C5E881CE95FD964A1A0DEEF0D435D0B94FC185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511328   (789423) от 20.11.2021
-
-Synth Replicants - atlantis (2021) [AAC|~321 Kbps] <Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. atlantis (13:32)
-02. in the dark (4:45)
-03. life sign (5:12)
-04. water and ice (6:05)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3807DEE97C34FBD5C9BFB6CF30B3AA741D8B5A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275614   (789383) от 13.01.2019
-
-Грецкий орешек  (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажется, что у Артура всё хорошо. Он молод, остроумен, ведет свое шоу на модном радио, живет с красавицей, на которой собирается жениться. Но! Его избранница вынесла ему мозг. И внезапная страсть к поиску себя подталкивает молодого человека сбежать в Грецию! Там он быстро находит друзей. Вместе они вытворяют такое, что даже местные мафиози не могут пройти мимо. Целая (   Читать дальше...   )Производство: РоссияЖанр: Комедия, приключенияРежиссер: Стас ИвановАктеры: Кирилл Каганович, Антон Васильев, Александр Робак, Полина Толстун, Михаил Пшеничный, Максим Лагашкин, Геннадий Пачис, Мария Болонкина, Антонина Комиссарова, Анастасия СтежкоПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D221A917B13E56C8BEB1F7BC03C1A489075C50AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511349   (789374) от 20.11.2021
-
-Swingrowers - Remote (2014) [AAC|~344 Kbps] <Electro, Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight (3:44)
-02. Baby Lone (3:47)
-03. That's Right! (3:19)
-04. Stay Swing (3:33)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBDFDCD37F15CD94DEAF9A0EA58FC3CF9A7ECDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511351   (789363) от 20.11.2021
-
-Swingrowers - Hits & Remixes (2017) [AAC|~344 Kbps] <Electro, Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingrowers, The Lost Fingers - Pump Up the Jam (3:49)
-02. Kiawami (Skeewiff remix) (4:40)
-03. Swingrowers, Gypsy Hill - The Queen of Swing (4:18)
-04. Midnight (3:42)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23FAE02CD599825DE156E052095F1BE95FC86D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511286   (789360) от 20.11.2021
-
-Marina & the Kats - Wild (2016) [AAC|~320 Kbps] <Swing, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kat Walk (2:51)
-02. Shim Sham (3:23)
-03. Miss Jekyll & Mister Hyde (3:59)
-04. Bamboozle Boogie (3:32)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C900B8FC29038733980988B622311781DD486A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275776   (789323) от 13.01.2019
-
-Грецкий орешек  (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажется, что у Артура всё хорошо. Он молод, остроумен, ведет свое шоу на модном радио, живет с красавицей, на которой собирается жениться. Но! Его избранница вынесла ему мозг. И внезапная страсть к поиску себя подталкивает молодого человека сбежать в Грецию! Там он быстро находит друзей. Вместе они вытворяют такое, что даже местные мафиози не могут пройти мимо. Целая (   Читать дальше...   )Производство: РоссияЖанр: Комедия, приключенияРежиссер: Стас ИвановАктеры: Кирилл Каганович, Антон Васильев, Александр Робак, Полина Толстун, Михаил Пшеничный, Максим Лагашкин, Геннадий Пачис, Мария Болонкина, Антонина Комиссарова, Анастасия СтежкоПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CE2E4D5094C3752C25EB769369AC7C7938AB00
 ```
 
 https://mybot314.ru/tekegram_catalog/

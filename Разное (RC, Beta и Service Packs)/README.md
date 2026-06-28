@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1877080   (1073641) от 18.06.2026
+
+AAF Family DCH Audio Realtek 11.10.9995.1 Mod by AlanFinotty [En]
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073641.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAF Optimus DCH Audio Driver Realtek Mod аудио драйвер — всё в одном. При установке AAF Optimus DCH Audio Driver Realtek Mod есть варианты установки: Realtek Audio Console, Sound Blaster, Dolby, Nahimic, Sonic Studio, ICE Sound. Цель проекта AAF DCH Optimus Audio Realtek Mod — извлекать превосходное качество звука из музыки, фильмов, игр или другого контента под (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A941A2FF88F1F09511395E316F017EEC961591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977903   (963117) от 23.01.2016
 
 Набор обновлений для Microsoft Windows 8 (All Languages) 21.01.16 [Multi/Ru]
@@ -668,32 +694,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42553C4626441EB69C3BE722F6E5DB7C1169B64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794350   (20010) от 28.04.2025
-
-AAF Family DCH Audio Realtek 10.11.9823.1 Mod by AlanFinotty [En]
-
->>След.
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20010.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAF Optimus DCH Audio Driver Realtek Mod аудио драйвер — всё в одном. При установке AAF Optimus DCH Audio Driver Realtek Mod есть варианты установки: Realtek Audio Console, Sound Blaster, Dolby, Nahimic, Sonic Studio, ICE Sound. Цель проекта AAF DCH Optimus Audio Realtek Mod — извлекать превосходное качество звука из музыки, фильмов, игр или другого контента под (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE78EC9D9A55CF3B3A4345228518D94EEC997C52
 ```
 
 https://mybot314.ru/tekegram_catalog/

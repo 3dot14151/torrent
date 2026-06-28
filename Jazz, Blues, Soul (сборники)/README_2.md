@@ -1,3 +1,32 @@
+###  Публикация: 1474637   (1012790) от 03.06.2021
+
+VA - Sex, Blues and Rock! (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engerling - Moll-Blues
+02. Blues Delight - Slightly Hung Over
+03. Scott Holt - I've Been Searching
+04. Freddie King - Help Me Through The Day(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 14:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC05B1D0073138203F352E450313865B9D90043D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476637   (1011498) от 12.06.2021
 
 VA - Vintage Melody: Soul Funk Music (2CD) (2021) [MP3|320 Kbps] <Soul, Funk, Jazz, Lyric>
@@ -740,41 +769,6 @@ Blues Forever vol.09
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621951   (959942) от 22.02.2013
-
-VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Roberts - What Should 100
- 02. Steve Gannon - Too Through With You
- 03. Koko Taylor - I'd Rather Go Blind
- 04. Jonny Lang - Darker Side
- 05. Eric Clapton - My Father`s Eyes
- 06. Blues Company - Silent Night
- 07. Tim Gonzales - Summer Time
- 08. The Holmes Brothers - And i love her
- 09. S Weebs Chicken Chack- Dont You Worry
- 10. Snowy White - The time has gone(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

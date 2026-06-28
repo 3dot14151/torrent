@@ -1,3 +1,47 @@
+###  Публикация: 523147   (618850) от 15.07.2012
+
+Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618850.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1| Продолжительность: 01:15:18
+01. We Shall Dance
+02. Fire And Ice
+03. No Way Out
+04. My Reason
+05. Forever And Ever
+06. Velvet Mornings
+07. Goodbye My Love, Goodbye
+08. My Friend The Wind
+09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
+01. Kyrila
+02. Mourir Aupres De Mon
+03. Ainsi-Soit-Il
+04. Life In The City
+05. That Once In A Lifetime
+06. Loin Des Yeux, Loin Du Coeur
+07. The Wedding Song
+08. Lost In Love
+09. I Need You(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911396   (618310) от 22.06.2015
 
 Marina Kaye - Fearless (2015) [MP3|320 кб/с]<Pop>
@@ -722,35 +766,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4168B7CE63FA53D31E5FD16401348BDC92695C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296410   (611850) от 17.04.2019
-
-VA - Die neue Schlagerparade (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611850.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Olaf Henning - Sternenhimmel (Album Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3203611E548756FFAF198AF11EA0FFB5F0EF6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

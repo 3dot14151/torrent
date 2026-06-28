@@ -1,3 +1,148 @@
+###  Публикация: 987760   (924499) от 18.02.2016
+
+VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troy Mandalon - Prism 04:13
+02. Clickbank - Personal 03:36
+03. Zal Trigger - History 04:26
+04. Another - Getsing 03:58(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CC1A275445843A1ED46FEA7B62E033851CFE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095187   (924383) от 21.01.2017
+
+VA - Trance Mission: Best Of 2016 (Mixed by DJ Feel) (2017) [MP3|320 Kbps] <Trance, Energy, Emotional, Vocal, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yoel Lewis feat. Sivan - Caesarea (Extended Mix)  3:05
+02.  Alan Walker - Faded (Dash Berlin Remix)  2:37
+03.  Above & Beyond feat. Alex Vargas - Sink The Lighthouse (Maor Levi Remix)  3:52
+04.  Simon Lee & Alvin - Xcelerate (Extended Mix)  2:47(   Читать дальше...   )Жанр: Trance, Energy, Emotional, Vocal, Uplifting, ProgressiveПродолжительность: 04:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54CD2158C02E481B8AE822145B349F19155420A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095414   (924377) от 21.01.2017
+
+VA - Chillout Hits (2017) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Her&Him - Save Me (Original Mix) 5:55
+002. Anton Ishutin feat. Leusin - Waves (Nick Motion Remix)(Accoustic Version) 5:15
+003. Miraflores - Give Me Your Smile 5:23
+004. Double Perception - Fairy Circles 6:09(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6EB7AB10F15F08A97B536F8A345A4ED238B5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095687   (924239) от 21.01.2017
+
+VA - Beautiful Hits of 2016. New Age & Electronic (2017) 4CD, Box Set [MP3|320 Kbps] <New Age, Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Michel Jarre - The Heart Of Noise (08:31)
+02. Devaldi - Bri (03:17)
+03. Jupiter Panic - Stalemate (04:23)
+04. Oliver Scheffner - Dreams (06:29)(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 04:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64746A752B418761243A02CA92938A9E85A6C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366294   (924119) от 11.03.2020
+
+VA - Bass Pantheon (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bop X Subwave - Teardrops
+002. Receptor & Chaser - Auroral (Feat Avenax)
+003. Deploy - The Omen
+004. Nucleus - Beatbox (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158D7FCEC73BAAF0CE2E6CC7FE2DCDEAD91FAB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366295   (923953) от 11.03.2020
 
 VA - Beatport Electro House: Sound Pack #23 (2020) [MP3|320 Kbps] <Electro House>
@@ -614,149 +759,6 @@ VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988240   (919187) от 21.02.2016
-
-VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919187.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Madhukar - Eternal Heaven (13:46)
-002. Ganga - Autumn - Dj Malte Of Real XS Mexican Club Mix (9:17)
-003. Pan-Pot - Sleepless (Stephan Bodzin Remix) (9:00)
-004. Talamanca - A Day At The Beach (Original Mix) (8:47)(   Читать дальше...   )Жанр: TranceПродолжительность: 10:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFA25BF89FDAAF27FDCA886565C1235937C379A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988785   (919178) от 21.02.2016
-
-VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lebron - Kiss and Tell (04:06)
-02. Oli Silk - Get out Claws (03:28)
-03. Randy Scott - Kisses (04:52)
-04. Jaared - Jamaican Winds (03:41)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9670DB3154EDBC275605F6A8F928702CB9028E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987582   (918992) от 21.02.2016
-
-VA - Лучшая клубная музыка ANDRS vol.33 (2015) [MP3|128-320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GameFace - Brutal
-02. Apashe ft. Panther X Odalisk - No Twerk
-03. Unknown - Track Unknown
-04. Dj Crazy J Rodriguez - Hustle and Lean (Explicit)(   Читать дальше...   )Жанр: Club, Dance, Electro, House, Electro-House, Deep HouseПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0004A687F69AAB661AA35C62E03BCC641AEAD071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988674   (918991) от 21.02.2016
-
-DJ - Взрывная дискотека №1 (2016) [MP3|128-320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaptn-Ricky Ricardo (Deorro Instrumental) [03:00]
-02. DJ Mixonoff & DJ VlaD NesteRuk-Track 06 Impossible (2014)Жанр: Club, DanceПродолжительность: 03:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6FF293D0B48E48F539310FEDD5098262B9967D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367125   (918881) от 14.03.2020
-
-VA - World Deephouse Selection Vol.2 (2020) [MP3|320 Kbps] <House, DeepHouse, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Santoro & Alex Guittini - Makes Your Funky B (Alex Guittini Funky Deep Mix) 7:07
-02. Melloton & Little-H & Tosch - Positive Nation (Melloton's Afterhour Radio Mix) 2:46
-03. B.Infinite - Lounging Around (Original Mix) 4:26
-04. Lunagirl - Middle Of The Night (Extended Mix) 3:33(   Читать дальше...   )Жанр: House, DeepHouse, ElectronicПродолжительность: 02:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FBF5246CA456AE31CCCDB7F87D3FC4F4EF5D28
 ```
 
 https://mybot314.ru/tekegram_catalog/

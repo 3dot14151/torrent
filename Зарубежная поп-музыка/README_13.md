@@ -1,3 +1,32 @@
+###  Публикация: 1003995   (841794) от 04.04.2016
+
+Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bette Davis Eyes (03:43)
+02. Cry Like A Baby (03:05)
+03. Don't Fall In Love With A Dreamer (03:41)
+04. It Hurts So Bad (03:00)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD8CDD559816729D95F505F6D732B2A2A35D343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379085   (840968) от 28.04.2020
 
 VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50253CE029BFC9916B4F18B48CE295E29F710F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116429   (824450) от 19.03.2017
-
-VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
-02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
-03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
-04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14B56450C3CA1E3019B06E8D88599F0DD35DD68
 ```
 
 https://mybot314.ru/tekegram_catalog/

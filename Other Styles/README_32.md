@@ -1,3 +1,116 @@
+###  Публикация: 1374298   (870514) от 11.04.2020
+
+Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870514.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. By Heart	04:06
+2. Valentine	03:41
+3. Starbright	02:38
+4. The Gift	04:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7E4FDDED433170E7F3B7ECB812DF80AE81C265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300208   (870410) от 27.02.2011
+
+Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk RockПродолжительность: 20:10:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998289   (869820) от 19.03.2016
+
+Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 3 CD [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Had A Heart (Fever Ray)
+02. Battle Field
+03. The Eye Of Odin
+04. Of Fathers And Sons(   Читать дальше...   )Жанр: Score |Продолжительность: 03:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107019   (869674) от 21.02.2017
+
+Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enamor
+02. Lost Love
+03. La Guitarra De Oro
+04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374588   (868615) от 12.04.2020
 
 Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -624,119 +737,6 @@ Unknown Artist - A Night In A Greek Taverna (Unknown) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69699C288E57B1F084B08C7F3C00ED771AC1D510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108539   (862579) от 25.02.2017
-
-Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashrouk
-02. Darkness
-03. Ethnika
-04. I Love You (Dimitra)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999700   (861972) от 23.03.2016
-
-Иеродиакон Герман (Рябцев) - Псалмы Давидовы (2001) 5CD Box Set [FLAC|Lossless|image + .cue] <Песнопение>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псалтирь — это одна из книг Библии. Псалмы являются неотъемлемой частью богослужения в храме и молитвенного правила православных христиан. В псалмах ярко выражены многие чувства и переживания человека: покаяние и смирение, сознание своего недостоинства перед величием Божиим, благодарение за Его великие милости, надежда на милосердие Вседержителя и взывание к Нему (   Читать дальше...   )CD 1
-01. Начало обычное (01:24)
-02. Тропари, глас 6 (01:39)
-03. Господи, помилуй. 40 (00:43)(   Читать дальше...   )Жанр: ПеснопениеПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276517   (861540) от 16.04.2020
-
-Максим Дунаевский - Мэри Поппинс, до свидания! (1985) [APE|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра (2:40)
- 02. Непогода (3:12)
- 03. Ожившее пианино (0:48)
- 04. Леди Совершенство (2:35)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB3C06F13106BA441B27A9DDC2BF58FDD299D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189811   (861059) от 06.04.2010
-
-Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

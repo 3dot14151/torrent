@@ -1,3 +1,55 @@
+###  Публикация: 600818   (998527) от 09.01.2013
+
+Рисованная графика & Foto - Photo Art Chasen Grieshop
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Art Chasen Grieshop.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9743D497E5E4573B608CA6D04A2ECAA77867F348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601065   (998505) от 09.01.2013
+
+Работы художников - Artworks by Gabriel Iumazark [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Artworks by Gabriel IumazarkРазрешение файлов: ~1000 x 750
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F70A604B1C111732295EC22DC79003A840E69C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601066   (998501) от 09.01.2013
 
 Фотография - Модель Vanessa Lake
@@ -626,58 +678,6 @@ Nocturnal Moth – псевдоним 19-летней Элис М. С., худо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0DC3978CE36F91A222EF38245000BAC0EB53DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604525   (996114) от 18.01.2013
-
-Работы художников - Artworks by Hector Sevilla Lujan
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Artworks by Hector Sevilla Lujan
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809E77CDA0819A4ACD7C2E10C42FB5BD1E0B70A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602694   (996102) от 18.01.2013
-
-[Wallpapers] Внедорожники 4x4
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внедорожники, кроссоверы, паркетники
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AA807F098E35CD57D4049848A30ED4C59B7139
 ```
 
 https://mybot314.ru/tekegram_catalog/

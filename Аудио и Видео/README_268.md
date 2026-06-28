@@ -1,3 +1,168 @@
+###  Публикация: 1518539   (154185) от 20.12.2021
+
+SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 3 (2021) [AAC|~334 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgo (Original Mix) (6:01)
+02. Leo (Original Mix) (4:37)
+03. MaxLoop, Joni Venchy - Blindside (SolarFlow Chillout Remix) (5:10)
+04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B767FF91245CA195BC4E165B6A239EEB6018FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518531   (154127) от 20.12.2021
+
+SolarFlow - Eternal Peace (2020) [AAC|~342 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Sun (Original Mix) (6:04)
+02. Springtime (Original Mix) (4:48)
+03. Touch of Sun (Original Mix) (4:35)
+04. Echoes of Dreams (Original Mix) (6:01)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530AACEE66586FB44E749974D86742F33205066F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518537   (154108) от 20.12.2021
+
+SolarFlow - Zodiac (2021) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capricom (Original Mix) (4:00)
+02. Aquarius (Original Mix) (5:20)
+03. Pisces (Original Mix) (4:22)
+04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DCA7905661A365E0BF61D449D0A4016436959F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518494   (153920) от 20.12.2021
+
+Последняя дуэль / The Last Duel (2021) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нормандский рыцарь Жан де Карруж по возвращении с войны узнаёт, что его сосед и соперник Жак Ле Гри изнасиловал его жену Маргарит. Однако у Ле Гри обнаружились сильные союзники, словам женщины никто не верит, и Карруж обращается за помощью лично к королю Франции Карлу VI. Заслушав все свидетельства, король постановил, что конфликт должен быть разрешён в честном поединке. (   Читать дальше...   )Производство: США, Великобритания / 20th Century Studios, Pearl Street Films, Scott Free ProductionsЖанр: история, драмаРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Адам Драйвер, Джоди Комер, Харриет Уолтер, Бен Аффлек, Алекс Лоутер, Мартон Чокаш, Уильям Хьюстон, Оливер Коттон, Орелиен ЛорньеПеревод: Профессиональный многоголосый, любительский двухголосыйСубтитры: русские, украинские, английскиеПродолжительность: 02:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB59177227F8231814C4B88F41BC0B784FA91FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085544   (153743) от 23.12.2016
+
+Глубоководный горизонт / Deepwater Horizon (2016) WEB-DLRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь на очередную вахту и прощаясь с семьями, они не подозревали, что могут не вернуться… Это основанная на реальных событиях история о страшной аварии на нефтяной платформе «Глубоководный горизонт», которая произошла в 2010 году в Мексиканском заливе. Хроника беспримерного мужества и отваги перед лицом одной из самых страшных техногенных катастроф в мировой (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драмаРежиссер: Питер БергАктеры: Марк Уолберг, Курт Рассел, Джон Малкович, Джина Родригез, Дилан О’Брайен, Кейт Хадсон, Итан Сапли, Генри Фрост, Джереми Сэнд, Дуглас М. ГриффинПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A08672B641C1C0D0CBB4D578B3B634B8589B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085536   (153732) от 23.12.2016
+
+Глубоководный горизонт / Deepwater Horizon (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь на очередную вахту и прощаясь с семьями, они не подозревали, что могут не вернуться… Это основанная на реальных событиях история о страшной аварии на нефтяной платформе «Глубоководный горизонт», которая произошла в 2010 году в Мексиканском заливе. Хроника беспримерного мужества и отваги перед лицом одной из самых страшных техногенных катастроф в мировой (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драмаРежиссер: Питер БергАктеры: Марк Уолберг, Курт Рассел, Джон Малкович, Джина Родригез, Дилан О’Брайен, Кейт Хадсон, Итан Сапли, Генри Фрост, Джереми Сэнд, Дуглас М. ГриффинПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671BFA815E6210B3BE89EB0F304770D3E8E84F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600797   (153662) от 29.12.2022
 
 Руки-ноги за любовь / Burke and Hare (2010) BDRip [720p] ATV
@@ -518,177 +683,6 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:436B2DCDA23A287632D7782A9C15C885DB4AC376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854260   (151734) от 28.12.2014
-
-В изгнании / Outcast (2014) HDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма разворачивается в Китае, в Средние века. Наследник императорского престола становится целью убийства у своего презираемого старшего брата и вынужден бежать. Единственное, что остается молодому принцу, – это защита его сестры при помощи воина-крестоносца (Хейден Кристенсен), которому, в свою очередь, придется смириться с собственными демонами и, сплотившись с некогда легендарным воином, ныне ставшим бандитом (Николас Кейдж), вернуть принца на его законное место на троне...Жанр: БоевикРежиссер: Ник ПауэллПродюсер: Джереми Болт, Тоув Кристенсен, Леонард ГловинскиАктеры: Николас Кейдж, Хейден Кристенсен, Лю Ифэй, Рон Смуренбург, Энди Он, Джавед Эль Берни, Фернандо Чиен, Престон Бэйкер, Байрон Лосон, Томер ОзПеревод: Любительский (двухголосый закадровый) (Пиратская студия)Язык субтитров: АнглийскийПродолжительность: 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8DA2DC729C391FA29E64F38CBFE5B529D3F1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518732   (151733) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bahramji, Mashti - Awareness (7:31)
-02. Smooth Deluxe, Nizam Kharda - Shahmukhi (3:49)
-03. Yantra Mantra - Kabhi Kann, Kabhi Naa (4:23)
-04. Ensemble Ethnique - Aruna Chala (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518726   (151715) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gushi, Raffunk - The Way to You (Intro) (1:48)
-02. HAUA, Marat Taturas - Ufa (5:54)
-03. Bahramji, Beach Messiah - New Yeah (9:15)
-04. Dudubeat - Urartu (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49591F1E1E3687111E2AB698C0794AE3D44C2A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518748   (151706) от 22.12.2021
-
-VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyron Hapi - Euphoria (2:54)
-02. Will Sparks - Stand By Me (4:28)
-03. Kild - Reality (3:10)
-04. Two Minds Project - The Garden (3:51)(   Читать дальше...   )Жанр: Electro House, Future House, Hard Techno, Hard Dance, TranceПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48D050202E2F3389A848520B09724557D845BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518730   (151697) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Esteban - Dilala (4:49)
-02. Dudubeat - Prinz Igor (3:46)
-03. DJ MNX - Buddha Sphere (4:40)
-04. Yantra Mantra - Jangal (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287E4B7D77F5AAF42D7B93E46C0E45375309EA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518813   (151682) от 22.12.2021
-
-VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Holy Moly – That's a Groove (3:08)
-02. Dellasollounge - Can't See You (Original Mix) (2:48)
-03. Patiotic - Not an Exit (2:37)
-04. Lemongrass - Sur La Mer (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 568209   (394462) от 31.10.2012
+
+Линдси Стирлинг / Lindsey Stirling (2010-2012) WEB (1080p)
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lindsey Stirling - американская скрипачка, танцовщица, сценическая артистка и композитор. В этой раздаче собраны 20 её клипов. Убраны концовки видео, где Lindsey рассказывает о других своих роликах, для более удобного просмотра подряд; ничего не пережималось и не конвертировалось - все в том качестве, в котором удалось найти.Жанр: скрипка в разных жанрах (Hip-Hop, Dubstep, Dance-Pop, Кантри и т.д.)Перевод: ОтсутствуетПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A016B52089F89A4412D1131B3CEBB0C34E99FDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 401701   (393299) от 20.10.2011
+
+Antonio Banderas - 8 видеоклипов
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_393299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: American Chicano RockВ ролях: Antonio BanderasПеревод: Не требуется
+
+ФайлПродолжительность: 00.30.50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2036CF13F6A114349D645779668AE68F017431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172286   (392909) от 08.10.2017
+
+Сборник клипов - Turkish videoclips от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392909.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие хиты от турецких исполнителей, которые не только приятно смотреть, но и слушать. Сильный мужской вокал в сочетании с красивыми восточными девушками. Это 1 часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас! ALEXnROCK000 Intro
+001 Tarkan - Op
+002 Hepsi - Kalpszsin
+003 Mustafa Sandal - Isyankar(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0431F6CEC8DB03123AF903A81506884D5451E626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172466   (392749) от 08.10.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 6) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Серия видеомиксов популярных клипов 90-х годов - шестая часть. Танцевальная музыка в стиле Eurodance, Hip-Hop, и EDM. Смотрим и вспоминаем легендарную музыку 90-х!
+- Разбивка по трекам отсутствует.Maxx – Get-A-Way
+Ice MC – It’s A Rainy Day
+Pet Shop Boys - New York City Boy
+ATB – 9PM (Till I Come)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043F97A3F1CE912A4B1BCC4C30826D11548E7316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569326   (391680) от 03.11.2012
 
 Pirupa - Party Non Stop (Uncensored) (2012) [H.264/1080p] WEBRip
@@ -589,123 +702,6 @@ VA - Осенний марафон № 199 / Видеоклипы (Свежие 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C55427B2FB958C316B33A97868E2DF2ED90F7F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574079   (376421) от 12.11.2012
-
-Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7839D1ED8D9EBF650AD86275FBAB21E2DF36956E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574078   (376072) от 12.11.2012
-
-M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA2B97E422267E8FCA7BD42133B7205324C2FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574221   (375342) от 12.11.2012
-
-Глэм Рок / Glam Rock -T.Rex. S.Quatro.Nazareth.Sweet and more.. (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375342.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом диске представлены одни из лучших групп направления глэм рока начало 70 х,
-все группы в самом начале своей сценической карьеры все молоды полны амбиций и задора.01. T.Rex.- Jeepster
-02. Shwaddywaddy - You Got What it Takes
-03. Nazareth - Love Hurts
-04. Dave Edmunds - Here Comes THE Weekend
-05. Rod Stewart - Tonight's The Night
-06. T.Rex - 20 th Century Boy
-07. Suzi Quatro - 48 Crach
-08. David Essex - Rock On
-09. Sweet - Teenage Rampage
-10. Bay City Rollers - Bye Bye Bye(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62C85CC2A09E06D07E678E64B28D8E12F8C432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 720152   (374410) от 10.11.2013
-
-Сборник клипов - VA - Various Music part. 47 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agnes - Don't Go Breaking My Heart 720p (3:49)
-2. Ahzee - Born Again 1080p (3:40)
-3. Aircraft & Miss Palmer - Dont Ever Let Go 720p (3:16)
-4. Andreea Balan feat. Sonny Flame - IUBI 1080p (3:20)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
 ```
 
 https://mybot314.ru/tekegram_catalog/

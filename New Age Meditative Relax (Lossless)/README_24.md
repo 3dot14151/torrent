@@ -1,3 +1,90 @@
+###  Публикация: 1183565   (307688) от 14.11.2017
+
+Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. A New Day (3:07)
+ 02/11. Falling Leaves (3:47)
+ 03/11. Dream of Flying (5:55)
+ 04/11. Broken Shadows (2:29)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260608   (307615) от 09.11.2018
+
+Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking through Clouds (2:43)
+ 02. Touched by Love (3:26)
+ 03. Long Way Home (4:15)
+ 04. Back to Myself (3:49)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332802   (305513) от 24.10.2019
+
+Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dona Nobis Pacem (8:06)
+02. Gloria (10:50)
+03. Kyrie (7:44)
+04. Mea Culpa (6:19)(   Читать дальше...   )Жанр: Chants, WorldПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030BA877F83BBB5C8F7471F0E1A34767C831191C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422867   (304290) от 11.11.2020
 
 Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kbps] <Native American, New age, World music>
@@ -658,93 +745,6 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336604   (276042) от 09.11.2019
-
-Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (3:48)
-02. Heroe (4:34)
-03. Can't Get You out of My Head (3:09)
-04. Morning Has Broken (3:10)(   Читать дальше...   )Жанр: New Age, Instrumental, Piano, Relaxation |Продолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B4C0457D502EBDD21A19E696182DA91C04EA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188262   (275974) от 01.12.2017
-
-Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embrace of Silence (2:53)
- 02. Dance (4:05)
- 03. Lamentation (3:42)
- 04. Papillon (Replayed Version) (3:10)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9338C1C271840B91C7F517FECD8489F60A6E991F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337228   (275007) от 10.11.2019
-
-Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Waterfall 04:22
-2. Yoga Mat Sessions 02:02
-3. Serenity  02:44
-4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

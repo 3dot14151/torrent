@@ -1,3 +1,148 @@
+###  Публикация: 1182267   (317171) от 10.11.2017
+
+VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aumni - Microscope
+002. Mono - Music is my Reality
+003. Raccoon - Lizard In The Sphere (Original Mix)
+004. Diadem - Trick it(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959354   (317087) от 24.11.2015
+
+VA - Charming Bourgeois Vol 2  (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Walden - Samba Pa Ti - Original Mix
+02. Marshall Wee - Mito - Original Mix
+03. Montecarlo Hotel - Immunion Day - Original Mix
+04. Matt Petteney - Pat - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4F652C78300AEB85FB7E15EFB1AC831452614C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421719   (317015) от 05.11.2020
+
+VA - crazyДвиж number tri (2020) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AC Project - Somebody's Watching Me (Crew 7 Remix) (3:12)
+02. Andrew Spencer - Give It To Me (Extended Mix) (3:25)
+03. Arnold Palmer - Open Your Arms (Arnold Palmer & Cj Stone Extended Remix) (4:13)
+04. AronChupa & Little Sis Nora - What Was in That Glass (3:14)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6611CE69ADD89ED0CCF6742415AA2D64D428F63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259886   (316777) от 05.11.2018
+
+VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norma Project - Mission 385 (Original Mix)
+02. E-Mov - Jasmine
+03. 3 Of Life - Disorder (Magik Remix)
+04. Transient Disorder - Spiritual Liberation(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 09:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B37533C00E2B05269B32F75A14004B734A157F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259660   (316772) от 05.11.2018
+
+VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fisher - Losing It 4:08
+02. Summer Cem - Tamam Tamam 2:27
+03. Gaulin - Moonlight 2:54
+04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8987634ADF642E22E74EDDE9E2D881BD577515F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076066   (316572) от 24.11.2016
 
 VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, Bigroom, Electro, Funky, Club, Dance>
@@ -635,156 +780,6 @@ VA - Soulful House & Chillout from 2000 to 2017 [Re-compiled by Firstlast] (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:819576DC95949C0834CA023D4CF7F63145CEF6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583644   (313946) от 02.12.2012
-
-Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313946.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Afrojack – Rock The House (Original Mix)
-2.Afrojack – Replica (Original Mix)
-3.Afrojack – Pacha On Acid (Original Mix)
-4.Afrojack – Montreal (Original Mix)
-5.Afrojack – Doing It Right (Original Mix)
-6.Afrojack feat. Eva Simons – Take Over Control (Original Mix)
-7.Afrojack – Lionheart (Original mix)
-8.Afrojack – Fatility (Original Mix)
-9.David Guetta & Afrojack – Lunar (Original Mix)Жанр: house / electro house / progressiveПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583540   (313721) от 02.12.2012
-
-The End Of 2012 - mix by dj Ivan Frost (2012) [MP3|320 кб/с]<house / club house / vocal house / electro house / progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313721.jpg" />
-</div>
-
-
-###  Подробнее
-
-N\AЖанр: house / club house / vocal house / electro house / progressiveПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1654A26906667A2B1460161741F13F8D4BB395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583127   (313709) от 02.12.2012
-
-VA - DeepEmotions - Car Dubstep Vol.10 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alximo - Sol Invictus
-02. Don Diablo - Silent Shadows
-03. DVBBS - DRVGS (Spol Remix)
-04. Joho - Disaster (MING + 2Beeps Remix)
-05. Savoy ft. Heather Bright - We Are The Sun  (Savoy Remix)
-06. James Egbert ft. Brittany Egbert - In The Beginning (Dubstep Remix)
-07. Delta Heavy - Get By
-08. Dada & Mat Frost - Make You Feel (Continuum Remix)
-09. Sway feat. Kelsey McHugh - Level Up (Sigma Full Vocal Mix)
-10. Justin Lassen  - Insecticide (LabRat Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F212A3F6428CBEAFA242A7E9318969BC5B48D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259971   (313468) от 06.11.2018
-
-Mayah - Feel for Real (2016) Remix [MP3|256 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313468.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mayah - Feel for Real ★ Deep Sound Effect ★ RemixЖанр: Deep HouseПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30F03B1C69818854A1E18EE6DBE88D4C74B792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260086   (313448) от 06.11.2018
-
-VA - Самые Горячие Хиты Дискотек (2018) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newclaess Feat. Adanna Duru - Where Are You
-02. Deep Divas & Sexycools - Baby Baby (Perfect Pitch Edit)
-03. Hollywood Hustlers - One Kiss (Bonkerz Remix)
-04. W&W X Darren Styles Feat. Giin - Long Way Down(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5A4A6ACF6E61FA72C4A449E96E3F8CA7BE1C78
 ```
 
 https://mybot314.ru/tekegram_catalog/

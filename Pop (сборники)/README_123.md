@@ -1,178 +1,3 @@
-###  Публикация: 594559   (133492) от 26.12.2012
-
-VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raquel, Diddy, Dorrough & Yo Gotty - Touch (David May Edit Mix)
-02. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
-03. DJ Antoine vs. Mad Mark - Broadway (DJ Antoine vs Mad Mark 2k12 Radio Edit)
-04. Sasha Dith & Steve Modana feat. Nadya - Улечу
-05. G & G Feat. Gary Wright & Baby Brown - My My My (Coming Apart) 2K12 (Radio Edit)
-06. Настя Любимова - Любовь моя
-07. Empyre One - Moonlight Shadow 2K12 (Godlike Music Port Edit)
-08. Lalo Project feat. Wegmix - Живу тобой
-09. Xonia - Remember (Radio Edit)
-10. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594899   (133112) от 27.12.2012
-
-VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Колдун - Облака-бродяги
-02. One Direction - Live While We're Young
-03. Сати Казанова и Батишта - Чувство легкости
-04. Amelia Lily - You Bring Me Joy
-05. Дима Билан - Лови мои цветные сны
-06. Otto Knows - Million Voices (Radio Edit)
-07. Полина Гагарина - Нет
-08. Pink - Try
-09. Иракли - Осень
-10. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595276   (132716) от 28.12.2012
-
-VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 AD Men's - Жара (extended mix)
-02 Aerofeel5 - Disco In The Hell (original mix)
-03 Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
-04 Chris Decay & Re-lay - Love Junkie (Original Summer Mix Edit)
-05 Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
-06 LTN - Never Let Me Go (Beat Service remix)
-07 MMDance feat. Dj Smash - Суббота
-08 Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
-09 Горячий шоколад - Стены (Andry Makarov Club remix)
-10 Kash Trivedi - Darkness (LinBit remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595229   (132699) от 28.12.2012
-
-VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kazahy - Это Новый Год
-02 Italobrothers - My Life Is A Party (R.I.O. Edit)
-03 Бьянка - Заснеженные
-04 Soraya - Dreamer
-05 Artik pres. Asti - Облака (DJ Alex Radioso Radio Edit)
-06 Alex M. Vs. Marc Van Damme - Rock The House 2012 (Original Mix Edit 2012)
-07 Инфинити - Я так скучаю (DJ Sergey Fisun Remix)
-08 Wonder Girls feat. Akon - Like Money (DJ Sergey Fisun Remix)
-09 Сергей Лазарев - Нереальная любовь
-10 Greg Parys - The Girl Is Mine (Dance Version)(   Читать дальше...   )Жанр: PopПродолжительность: 05:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D579ED0E3343ACE94A821564EA56C0E82D38B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594788   (132695) от 28.12.2012
-
-VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ю.Шатунов - Бродяга (57)
-2. KReeD и Полина Булаткина - Расстояния (320)
-3. Benefit - Sex Sells(256)
-4. OKSI - Новогодняя(320)
-5. Руки в брюки - Друзья(320)
-6. MC Hammer - You Can't Touch This(320)
-7. Baby Alice - Sexy(320)
-8. Brigada United - Марины,Тони,Тани...(192)
-9. Натали - О боже какой мужчина...(320)
-10.гр.Свои - Называл тебя глупышкой(192)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681577   (132627) от 03.12.2023
 
 Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
@@ -815,6 +640,151 @@ VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B119465197F0628749DF523492FBCE84905399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687018   (126015) от 25.12.2023
+
+VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grinkevich - Стала Стервой (02:36)
+02. Killteq & D.Hash Feat. & Мария Евдокимова - Хищница (02:38)
+03. Medkova Feat. & Alex Sed - Танцуй (03:20)
+04. Blvnk - Terrified (02:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3031C35057197BD4C36570067FA50C7AAFF96D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823477   (125838) от 11.10.2025
+
+VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ziggan - Hello (3:10)
+02. NEIMY - Walking On a Dream (2:49)
+03. Wavey - Another Chance (2:58)
+04. Waffle, Jenn Sarkis - What Is Love (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 03:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5134912E43DA3AD2BC99554B07D6CC328E54B79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688897   (124946) от 31.12.2023
+
+VA - Disco Holiday 70-80's (2024) [MP3|320 Kbps] <Electronic, Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A' La Carte - Ring Me, Honey (1980) (4:07)
+02. Amanda Lear - Fashion Pack (1979) (5:10)
+03. Arabesque - Friday Night (1978) (4:11)
+04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Pop, Rock, DiscoПродолжительность: 06:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95430BE12AAA2ACA05B4FC563E0101D919C3FA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690114   (124291) от 05.01.2024
+
+VA - Лучшие песни Love Radio за 2023 год (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Felix Jaehn & Ray Dalton - Call It Love (2:26)
+002. Filatov & Karas - Мимо Меня (3:03)
+003. Miley Cyrus - Flowers (3:20)
+004. ANNA ASTI - Царица (3:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277A7B756BB80E53F75D779F02FAABE81E6EECDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693351   (121907) от 20.01.2024
+
+VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bennett - Vois sur ton chemin (Techno Mix) (2:58)
+002. cassö, Raye & D-Block Europe - Prada (2:12)
+003. Tate McRae - greedy (2:11)
+004. Jack Harlow - Lovin On Me (2:18)(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56432D811AC03F5FCA272F60931C4716B7A49403
 ```
 
 https://mybot314.ru/tekegram_catalog/

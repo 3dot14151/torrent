@@ -1,3 +1,32 @@
+###  Публикация: 1308608   (553779) от 15.06.2019
+
+VA - Ballerstyle - Mallorca Hits 2019 (Best of Mallorcastyle Schlager für die Discofox XXL Party) (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553779.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Robin - DJ auf Entziehungskur
+002. DJ Mallorca - Helikopter 117 (Mach' den Hub Hub Hub)
+003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
+004. Isi Glück - Das Leben ist ne Party (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94989DE02296D860219243ADB4F0ACF39F8E33AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308630   (553777) от 15.06.2019
 
 VA - Schlager-die Hits des Sommers (2019) [MP3|320 Kbps] <Schlager>
@@ -722,35 +751,6 @@ VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048422   (546426) от 02.09.2016
-
-Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Forever
-02. Death of Love
-03. Crystallise
-04. Hush Little Voices(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F422019B00F0B2FC00A57B318142E74CB7C923F
 ```
 
 https://mybot314.ru/tekegram_catalog/

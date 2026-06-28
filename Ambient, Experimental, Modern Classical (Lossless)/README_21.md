@@ -1,3 +1,87 @@
+###  Публикация: 1433434   (161267) от 20.12.2020
+
+Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mickey Mouse Strut (7:58)
+02. The Prairie (7:36)
+03. Words Of Wonder (3:30)
+04. Theme From (4:19)(   Читать дальше...   )Производство: Mélodic - 5060168041739Жанр: Ambient, Dark Jazz, Post Rock, Electronic, InstrumentalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA723AD7FA4C2BB0922CC8E5AC2EE15FEC3EB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599567   (159624) от 24.12.2022
+
+Sarah Belle Reid & David Rosenboom - Nows (2022) [FLAC|Lossless|tracks + .cue] <Experimental, Electroacoustic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Know Night Ears
+02. Accelerated Mitosis
+03. Bowing Stream Invitation
+04. Morphcycle(   Читать дальше...   )Жанр: Experimental, ElectroacousticПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64283A8C4D6F90009651C54BEB2B499F73B1ABE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968113   (158245) от 22.12.2015
+
+VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, IDM, Post-Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Modern Classical, IDM, Post-Rock |Продолжительность: 00:52:55+00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025993   (157056) от 19.12.2018
 
 Slow Dancing Society - Discography 25 Releases (2006-2018) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Acoustic, Post Rock, Downtwmpo>
@@ -652,93 +736,6 @@ Two Lone Swordsmen - Still My World (2024) [FLAC|Lossless|WEB-DL|tracks] <nar ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D390B4BB1CF0E181A9F325E3B1B72D0233067C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738408   (106310) от 23.07.2024
-
-Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Trance, Fusion, New Age>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Twilight [00:06:45]
-02. Chakra Dance [00:05:33]
-03. Spirit Rising [00:05:22]
-04. As the Eagle Flies [00:05:45](   Читать дальше...   )Жанр: Ambient, Trance, Fusion, New AgeПродолжительность: 2 CD, 01:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6967FA48EF8B7A19482940A48D355E3F6970A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747998   (104644) от 07.09.2024
-
-Banco De Gaia - Altered Realities, Vol. 1-2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Tribal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali (Banco de Gaia Remix) [00:05:45]
-02. Distance (Banco de Gaia Remix) [00:08:06]
-03. Hurriya (Banco de Gaia Remix) [00:07:34]
-04. Beauty & The East (Banco de Gaia Remix) [00:06:50](   Читать дальше...   )Жанр: Downtempo, Ambient, TribalПродолжительность: 2 CD, 02:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FFDF1F5DFB77F9891636FF45E2A0A6468E225A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771071   (71841) от 07.01.2025
-
-Kira Lao - Тревожный опыт (2019) [FLAC|Lossless|tracks] <Experimental, Art Pop, Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Встал и уже устал) (3:12)
-02. Ohmsk (3:02)
-03. Сам не свой (8:05)
-04. Delay (2:41)(   Читать дальше...   )Жанр: Experimental, Art Pop, ElectronicПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCFBD663773F9FE58039D88B9D0D634DFE405A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

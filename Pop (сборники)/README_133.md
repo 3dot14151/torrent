@@ -1,148 +1,3 @@
-###  Публикация: 1794044   (19953) от 28.04.2025
-
-VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kendrick Lamar - Not Like Us(04:34)
-002. Future - Like That(04:28)
-003. Shaboozey - A Bar Song (Tipsy)(02:51)
-004. Post Malone - I Had Some Help(02:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5846E1FF3610FC7BA4B085D2C338E1316E1E275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795311   (19510) от 03.05.2025
-
-VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Feargal Sharkey - A Good Heart(04:28)
-002 Human League - Don't You Want Me Baby(03:57)
-003 Kim Wilde - Kids In America(03:25)
-004 Simple Minds - Don't You (Forget About Me)(04:20)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF106960D5E95A937E00EFC62386ECBD0A8B5343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795094   (19482) от 03.05.2025
-
-VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19482.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alice Cooper - School’s Out(03:30)
-002. Donna Summer - Sunset People(04:33)
-003. Faces - Ooh La La(03:34)
-004. Robbie Williams - Let Me Entertain You(04:22)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 14:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5F9AC4EF36EC90F29DAD63FD5FCB4A7D88ADA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797076   (18315) от 14.05.2025
-
-VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. East 17 - 50 Shades
-002. OneRepublic - All Fall Down
-003. Blue - All Rise
-004. OneRepublic - All The Right Moves(   Читать дальше...   )Жанр: PopПродолжительность: 12:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38EB69510646416A8314302D18D155B33FB45F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797042   (18312) от 14.05.2025
-
-VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sofia Camara - Said It All - (03:00)
- 002. Blumele - Gomma - (03:31)
- 003. Gobbi - Risorto - (02:43)
- 004. The Boyz - Vvv - (03:56)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF95FF8C34A3263CA75A99CBB02770FC24F4CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805051   (12533) от 04.07.2025
 
 Виктор Могилатов - Коллекция (2025) [MP3|320 Kbps] <Pop>
@@ -745,6 +600,151 @@ VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819584   (1170) от 24.09.2025
+
+Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
+002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
+003. Another Way (Instrumental) {Another Way, 1988}.mp3
+004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819585   (1138) от 24.09.2025
+
+Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tango Nuevo>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allerdings Otros Aires {Dos (L), 2007}.mp3
+02. Amor O Nada {Perfect Tango (L), 2016}.mp3
+03. Amor que se Baila {Otros Aires (L), 2005}.mp3
+04. Amor Que se Baila {Vivo en Otros Aires (L), 2008}.mp3(   Читать дальше...   )Жанр: Electronic Tango, Tango NuevoПродолжительность: 02:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F149724F863C368D618CAFF96059DB44418088A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819941   (989) от 25.09.2025
+
+Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Amore Vero
+ 02 - Cerco Ancora Quella Voce
+ 03 - Che Figata!
+ 04 - Tra Le Mani(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597856   (906) от 26.09.2025
+
+VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_906.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 12я часть. Приятного прослушивания.  Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Ислам Итляшев - Ресторан
+02. Jony - Давай На Ты (Nervouss Remix Radio Edit)
+03. Subbota - Бом Бом Бом
+04. Satiba - Новый Год в Стиле Диско(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9B1AF12067EA68B9F3F239279750E35966E473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820195   (802) от 26.09.2025
+
+Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stay With Me
+ 02 - My Woman
+ 03 - Love is a Memory
+ 04 - Crying in the Dark(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7CA8E0D2F6F5C482D4379D4B14BD31612B568A
 ```
 
 https://mybot314.ru/tekegram_catalog/

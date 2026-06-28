@@ -1,3 +1,119 @@
+###  Публикация: 1253030   (387697) от 07.10.2018
+
+Robert Parker - End of the Night (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of the Night (feat. Doubleboy) (3:56)
+ 02. Rock n Roll (3:58)
+ 03. Make Love (feat. Miss K) (5:10)
+ 04. Maximum Strength (4:29)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BABF8978F0FF84FF7BA8254A82EF2903ECE4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253048   (387613) от 07.10.2018
+
+Neon Nox - Syndicate Shadow (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (4:00)
+ 02. Fahrenheit (5:23)
+ 03. Payback (3:42)
+ 04. Assassination (4:29)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A3BA537AE9BF6594FD60D0348840E323CBA5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252995   (387472) от 07.10.2018
+
+Tears For Fears - Rule The World: The Greatest Hits (2017) Virgin EMI Records [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop-Rock, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Wants To Rule The World (4:13)
+ 02. Shout (7' Edit) (4:47)
+ 03. I Love You But I'm Lost (4:21)
+ 04. Mad World (3:34)(   Читать дальше...   )Жанр: Electronic, Synthpop, Pop-Rock, 80sПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCDBFE2FF7DE0FC0350ED510A0BD89EFEBE02EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414301   (387411) от 07.10.2020
+
+VA - Spacesynth Revolutions, Episode One (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyreon - Mars Raider (6:05)
+02. Galaxion - Nekomimi's Song (5:08)
+03. Resource X - Space Station 38 (4:47)
+04. Alek Szahala - Crystal Thunder (4:47)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA8676A2A194A7B7B4ECC12A4FEFF2FA3601E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414543   (385513) от 08.10.2020
 
 Vector Seven - Electric Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Cybersynth>
@@ -635,122 +751,6 @@ Beborn Beton - A Worthy Compensation (2015) [FLAC|image+.cue]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E429C245FE0FA22C04C79137C45AD72C75CB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417263   (360579) от 19.10.2020
-
-Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scuta Scalamanta & Nicholas Croft - Ocean Wave (3:11)
-02. Scuta Scalamanta, Damon Baxter & Peter Diggens - Droid Hunter (3:17)
-03. Scuta Scalamanta, Damon Baxter & Peter Diggens - Yakuza (2:40)
-04. Scuta Scalamanta - Power Kid (3:08)(   Читать дальше...   )Жанр: Synthwave, ElectroПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255898   (359025) от 20.10.2018
-
-Electric Youth - Innerworld (2014) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Before Life (2:09)
- 02/12. Runaway (3:40)
- 03/12. WeAreTheYouth (3:12)
- 04/12. Innocence (3:52)(   Читать дальше...   )Жанр: Synthpop, New Wave, ElectropopПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7996CBE3F78FB243FCF534E00B8C618787B993D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417695   (355754) от 21.10.2020
-
-Scarlet Fantastic - Beyond Pluto (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Europop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Pluto (4:17)
-02. Du Quesne (4:53)
-03. Lucky 7 (3:24)
-04. Beyond Pluto (Hifi Sean Remix) (5:48)(   Читать дальше...   )Жанр: Europop, SynthpopПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921095455386C9D2D012E044789042F0F667BE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952389   (355568) от 01.11.2015
-
-Hurts - Surrender (2015) [FLAC|tracks+.cue]<Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender
-02. Some Kind of Heaven
-03. Why
-04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F361853CE6E1B156187726735E0D86FB880A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1073942   (338188) от 19.11.2016
+
+Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof of the World (00:53)
+02. Peaks of North America (01:59)
+03. The Ibex (01:41)
+04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E664C47BB975738665BFBB002B597E4FC071F966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073944   (338081) от 19.11.2016
+
+Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof of the World (00:53)
+02. Peaks of North America (01:59)
+03. The Ibex (01:41)
+04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30C8CE9154777400D85FA1D723887BE0ACCB34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179966   (337771) от 05.11.2017
+
+Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror Mirror (5:08)
+02. I Got You Inmymind (4:37)
+03. Lost off Shore (6:47)
+04. Calling Out (7:57)(   Читать дальше...   )Жанр: Electronic, WorldПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3328E50F6AE3DBF430E7C88E7965E9C6E1358C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180627   (337762) от 05.11.2017
+
+Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risen Title Theme
+02. The Beach
+03. The Beach - Fight
+04. The Island(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180906   (337500) от 05.11.2017
 
 VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
@@ -628,122 +744,6 @@ Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1161BF221B3486E7F57324212D1035C644D125F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579479   (333492) от 29.09.2022
-
-Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alchemy	4:39
-02. Kaleidoscope	3:31
-03. Venice	4:28
-04. Vision I	3:22(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A30C193089EA1EEF5F0EB1FAA705417A2812C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579494   (333365) от 29.09.2022
-
-Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent	3:38
-02. Unity	4:20
-03. Del Mar	3:42
-04. Turn To Grey	3:54(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8338A87B33C0F11BB72B848864C5281AED06A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579566   (333362) от 29.09.2022
-
-Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purity	4:33
-02. Surrender	5:50
-03. Alten Mara	3:16
-04. Andalucia	4:01(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8D9AB7B103BAF63B459200D9731DDF987312C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579458   (333361) от 29.09.2022
-
-Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil
-02. June
-03. Sunless Sea
-04. November(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

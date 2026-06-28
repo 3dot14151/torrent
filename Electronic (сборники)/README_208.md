@@ -1,3 +1,154 @@
+###  Публикация: 1273159   (137679) от 31.12.2018
+
+VA - Options Remake Of Tracks December -C- (2018) [MP3|320 Kbps] <Electronic, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Kolev - Higher Collective (Original Mix)
+02. Joris Voorn - Genova Original Mix
+03. Tilt - Sinai (Holy Mountain Mix)
+04. Hausman - Aether(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 06:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43ABA571FAF5512B09C8B4295A07A497D924371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970758   (137651) от 31.12.2015
+
+VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Uplifting Trance , TechLifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bowdidge - Final Rising (Original Mix) (6:58)
+02. James Kelly - 400 (Extrema 400 Official Anthem) (5:49)
+03. John O'Callaghan - Meridian Bay (Original Mix) (6:52)
+04. WeAreAliens - Star Driver (Original Mix) (6:49)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Techlifting TranceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088563   (137283) от 31.12.2016
+
+VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZANIO - Will (Elevate & Raggapop Inc Remix) (6:28)
+02. Yuriy From Russia - Keep Your Head Down (Original Mix) (7:50)
+03. Bring Bliss & Sonya P. - Wish the Night (Stas Isometrica Remix) (6:05)
+04. Platunoff - The Time To Go (Original Mix) (7:12)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Atmospheric Breaks, Progressive BreaksПродолжительность: 03:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824620   (136904) от 16.10.2025
+
+Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Like to Live
+ 02 - Dance Away
+ 03 - I Lost You
+ 04 - Moscow(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591197   (136287) от 20.12.2012
+
+VA - Cavalier's Club Volume One (2012) [MP3|320 кб/с]<Chillout, House, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yonderboi - Amor
+02. Moodorama - Into The Sunrise
+03. Elastic Field - Blow In Your Mind
+04. Nor Elle - Forgotten Fields
+05. Koala - Floating Pillow - Alternative Mix
+06. Ohm-G - One
+07. Acoustique Parfum - Bus Ride
+08. DJ Nob Tee aka Dugsoul - Keep On - Natural Soul Mix
+09. Yonderboi - I Am Cgi
+10. Ohm-G - Island Dream(   Читать дальше...   )Жанр: Chillout, House, DowntempoПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2B86C640EEA91F250BAACFD54689CC22E42D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591565   (136264) от 20.12.2012
 
 VA - Exotic Wafture 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -708,165 +859,6 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6339BCE0111CF52DEBA2B11CF5D380A76412182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680332   (134185) от 29.11.2023
-
-VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estragur - North Wind [05:06]
-02. Magmatunes - You [05:17]
-03. Ludwig A.F. - Glass [04:34]
-04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594727   (133287) от 27.12.2012
-
-VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Bug - Gates To Oblivion (Original Mix) 07:55
- 02. Ethan - Unforgiven 07:57
- 03. Protonica - Orion (Ovnimoon Remix) 07:47
- 04. M.D.K - Mustang (Original Mix) 07:41
- 05. Squarz Kamel - Together (Ezil & Slider Remix) 07:38
- 06. Stuart Mc Niven - Surrender (Feat Sharon Fehlberg-Ian Solano Remix) 07:43
- 07. Poshout - Melorum (Maksim Palmaxs Bootleg) 07:34
- 08. Anna Lee & Alex Teeb - Driving Juke (Original Mix) 07:28
- 09. Dmitriy Bulakov - Crux (Sens Remix) 07:27
- 10. Fortuna And Casus - Sometimes (Rework) 07:23(   Читать дальше...   )Жанр: TranceПродолжительность: 03:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594721   (133246) от 27.12.2012
-
-VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatbeat - Rocker Monster (Radio Edit) (04:00)
- 02. Cosmic Gate and JES - Flying Blind (Norin & Rad Remix) (06:40)
- 03. KhoMha - Mind Gamer (Trance Mix Edit) (04:09)
- 04. Pseudonym - The Battle (05:30)
- 05. 3rd Planet - Sevas (06:07)
- 06. Betsie Larkin with Bjorn Akesson - Let It Shine (Walsh & McAuley Remix) (07:13)
- 07. Kyau & Albert - Another Time (06:22)
- 08. M.I.K.E. - Any Direction (M.I.K.E. vs. Revero Club Edit) (06:55)
- 09. Solarstone and Clare Stagg - The Spell (Solarstone Pure Mix) (08:41)
- 10. Armin van Buuren Feat. Ana Criado - I'll Listen (Radio Edit) (03:36)Жанр: TranceПродолжительность: 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595250   (132654) от 28.12.2012
-
-VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Andrea Bertolini feat. Eva Kade - I Need You (JohnnyBrahvo Remix ft. Svyable) (4:37)
-2. BiddyBeats - Serenity (Original Mix) (4:13)
-3. Citizen Cope - Lifeline (Figure Remix) (5:42)
-4. Corrigendi - Comin For You (4:17)
-5. Dabin - Awakening (ft. Bijou.) (Original Mix) (3:36)
-6. Daniel Licht - Blood ThemeЖанр: Chillout/DubStepПродолжительность: 1:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FE0FB98A8FA3F0F39E1AEC29C5D756BA3C1FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681748   (132339) от 04.12.2023
-
-VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Save Me (3:33)
-02. Gordo - With You (5:29)
-03. Franky Wah - Lost In Space (7:33)
-04. John Summit - Where You Are (3:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0AB297683EC5E4F9C3F35F080E91FE5EB3994
 ```
 
 https://mybot314.ru/tekegram_catalog/

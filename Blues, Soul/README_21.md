@@ -1,3 +1,38 @@
+###  Публикация: 529178   (569382) от 30.07.2012
+
+Lil' Cliff & the Cliffhangers - The Lovin' Kind (2011) [MP3|320 кб/с]<Blues / Jump Blues, Swing, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lovin' Kind
+02. Twenty-Nine Ways (To My Baby's Door)
+03. Three Cool Cats
+04. Ace Don't Ace Me Out
+05. Creola Belle
+06. Heaven Can Wait
+07. Oopin' Doopin' Doopin'
+08. Spank That Monkey
+09. That Ain't What I Gave You My Love for
+10. Down in Louisiana(   Читать дальше...   )Жанр: Blues / Jump Blues, Swing, Rockin' BluesПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808988848416720A7EE153BDB01185A47E7953C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529229   (569337) от 30.07.2012
 
 VA - Crucial Acoustic Blues (2007) [MP3|320 кб/с]<Blues>
@@ -728,35 +763,6 @@ Delgres - Mo Jodi (2018) Extended Gold Edition, 2019, Groupe Yapuka [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E548D8D32F4F04FE87B746B2273579399293F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239182   (542431) от 03.08.2018
-
-The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life To Fix (03:59)
-02. I'm Getting Better (And I'm Feeling It Right Now) (03:16)
-03. Goodbye To The Hard Life (04:12)
-04. Make It Happen (04:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20258EEAF83B7A628924C9E2017807B60CB364F
 ```
 
 https://mybot314.ru/tekegram_catalog/

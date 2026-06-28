@@ -1,3 +1,32 @@
+###  Публикация: 1116201   (822482) от 20.03.2017
+
+L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ireneu Sagarra (1917)
+1. Salve Regina “Germinans” 8:02
+
+Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116535   (822236) от 20.03.2017
 
 VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
@@ -732,32 +761,6 @@ J. S. Bach: Complete Flute Sonatas; Complete Viola da Gamba Sonatas (1993) 2CD [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797B93044A3519D716C1E3CFF8B6B970DBCF1BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431123   (807741) от 11.01.2018
-
-Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC|Lossless]<Classic, Sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ансамбль Органум (фр. Ensemble Organum) — французская музыкальная группа, исполняющая средневековую (и похожую на средневековую) музыку. Основана в 1982 годуПродолжительность: ~35 часов 20 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A20CD4476147B142FB814970EACC6BEA7B52BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

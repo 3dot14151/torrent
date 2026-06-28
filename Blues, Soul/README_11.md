@@ -1,3 +1,32 @@
+###  Публикация: 1021039   (740688) от 29.05.2016
+
+Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sold For Love (06:23)
+02. River Of Tears (02:47)
+03. Coco Blue (04:55)
+04. 12 Bar Blues (04:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332975BDC02D78187AE5FABA20CF210F480CA947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397735   (739363) от 22.07.2020
 
 Spencer MacKenzie - Cold November (2018) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA08E98E845F086681A8498825DFE2C9DDB9071C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025859   (708211) от 13.06.2016
-
-Allison August - Holy Water (2016) [MP3|320 кб/с] <West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Nobody's Biz-Ness If I Do (Intro) (00:39)
-02. Ain't Nobody's Biz-Ness If I Do (03:45)
-03. Fireman (04:45)
-04. Holy Water (03:49)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFBE7DB8CF953534F8A53CE38D3C6F267B873B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

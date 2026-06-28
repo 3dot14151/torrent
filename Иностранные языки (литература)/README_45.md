@@ -1,3 +1,30 @@
+###  Публикация: 1731345   (52708) от 20.06.2024
+
+Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
+Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731300   (52688) от 20.06.2024
 
 Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English, French, German, Spanish, Italian (2003) [PDF] [EN]
@@ -654,35 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D2D796A7740CA15FBC862BD7C6A154DEA525DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786957   (23769) от 23.03.2025
-
-Альберт Шубаев | Английский в деталях. Изучаем тонкости языка с @VeryEnglish! (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучаете английский язык? Не упустите шанс познакомиться с книгой лингвиста Альберта Шубаева, оформленной в стиле газеты!
-
-Внутри вас ждет:
-1. 35 глав на самые актуальные темы: от тонкостей грамматики до полезных лайфхаков.(   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
 ```
 
 https://mybot314.ru/tekegram_catalog/

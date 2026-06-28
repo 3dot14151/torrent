@@ -1,3 +1,233 @@
+###  Публикация: 515241   (656017) от 26.06.2012
+
+VA - Dance Club Party (2012) [MP3|256 kbps]<Club|Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto feat. Kay - Work Hard, Play Hard (Andrew Rayel Hard Remix)
+02. Disco Superstars Feat. Seventy7 - Right Now (Eddy Remix)
+03. Riktam & Bansi - Haloween (Aerofeel5 Remix)
+04. Jovani - Burning Man (Original Mix)
+05. Porn Stars & Jay Jacob - Time To Party (Ftampa Remix)
+06. Amr Diab - Wayah (DJ Fisun remix)
+07. Cheeky D - Boogie Bitch (Original Mix)
+08. Adstedt & Alaa Feat. Lina Harriette - Illusion (Andy Harding Remix)
+09. Eximinds Ft. Dragana - I Want To Fly Again (Original Mix)
+10. Timo Graf feat. Mia Moore - Prometteur (Original Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 09:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CE5CCD51C644FCE15DD78BAAFE6F1AC8BAAC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140438   (655878) от 06.06.2017
+
+VA - Italo Disco Hits Vol.15 (2017) [MP3|320 Kbps] <Disco, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boris Zhivago - Deep In My Heart (Radio Vintage Mix) 4:57
+02.  Amaya - Sensation (Extended Version) 4:40
+03.  Siberian Heat - Don't Stop The Music (Special Zyx Maxi Version) 7:50
+04.  Salvy And Giuly - Stop The World 6:21(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 05:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA49A720AC6F5FC9CD19AFFCEDD4032561E4E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140578   (655795) от 06.06.2017
+
+VA - Cosmotronica & Space Disco Vol.2 (2017) [MP3|320 Kbps] <Spacesynth, House, SynthPop, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655795.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Zona-X - The Road To Heaven 3:52
+002.  Roger Martinez - Pan-O-Rama (Cid Inc Remix) 8:07
+003.  SynthOne - Cosmodroom 5:40
+004.  Laserlight - The Space Wanderer 5:12(   Читать дальше...   )Жанр: Spacesynth, House, SynthPop, TranceПродолжительность: 10:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF91BAD9BF0F5B2A8CA551F0FE73538D98742C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140538   (655786) от 06.06.2017
+
+VA - Cosmotronica & Space Disco (2017) [MP3|320 Kbps] <Synthspace, Synthpop, Space Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trentemoller - Nightwalker
+02. El Txef A - Claim Of Planet Earth (Deep'a & Biri Remix)
+03. Dynatron - Save The Moment
+04. CJ Rise - The Diver(   Читать дальше...   )Жанр: Synthspace, Synthpop, Space DiscoПродолжительность: 08:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CA123EE8C30EBAE314A1C45DEF3CC211BAC294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226279   (655765) от 20.05.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jax Jones - Breathe (Ina Wroldsen)
+02. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+03. Justin Timberlake - Say Something (ft. Chris Stapleton)
+04. Dynoro feat. Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29321FFE87EDC4EFB0EF1EBCA4DDE2E48987AB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515248   (655634) от 26.06.2012
+
+VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655634.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
+002 Мира - Пока, Пока Мой Мальчик (Leo.k Remix)
+003 Gravitonas - Call Your Name
+004 Градусы - Не Надо Париться
+005 Roxette - It's Possible (version One)
+006 Kishe - Город (Dub Makers Remix)
+007 Black Eyed Peas - The Time (Dirty Bit) (Afrojack Remix)
+008 Ирина Билык И Ольга Горбачева - Люблю Его (Remix)
+009 Ferry Corsten - Check It Out(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:30:18
+01 Время и Стекло - Серебряное море (DJ Melloffon radio edit)
+02 Joe Made - The Ring (Original mix)
+03 БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit)
+04 Blackman feat. MC Freedom - Bring me down
+05 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+06 The Crystal Method feat. The Heavy - Play For Real (Dirtyphonics remix)
+07 MM Dance - Отдыхаем (Dj Alfred extended mix)
+08 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
+09 Lika Star - Точка росы (Tone Project club mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515713   (655513) от 26.06.2012
+
+VA - Рэп С Понятием Часть 4 (2012) [MP3|256 kbps]<Русский Рэп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655513.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Влади (Каста) - Пусть пригодится
+002 Dino MC 47 - Все когда-то останется в прошлом
+003 Батишта - Обычные люди
+004 KReeD - Старлетка
+005 Бьянка - Весна-Лето 3
+006 T-Killah feat. Виктория Дайнеко - Мира мало
+007 Караты feat. D.Lemma - Достигая вершин
+008 Линда feat. ST - Марихуана
+009 Кажэ Обойма feat. Баста - Ангел
+010 St1ff & Mc Pasha feat. Александр Кварта - На позитиве(   Читать дальше...   )Жанр: Русский РэпПродолжительность: 06:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAF6909E5C7D52CEE321F51112B3F12919EE090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140688   (654865) от 07.06.2017
 
 VA - SpaceSynth & ItaloDisco Hits Vol.27 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Hi NRG>
@@ -564,227 +794,6 @@ VA - Лирическое настроение от VanovlaD (2012) [MP3|128-320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B0DC341C4116123D33D5DC38F0368D63E24A474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516491   (652274) от 29.06.2012
-
-VA - Клубные Новинки Vol.95 (2012) [MP3|320 kbps]<Club|Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Duguid feat. Lizzie Curious - Music Box (Original Mix)
-02. Richard Durand & Pedro Del Mar feat. Roberta Harrison - Paint The Sky (Original Mix)
-03. Andre Luki - Dab Tremor (Original Mix)
-04. Aiho - Going Deeper (Original Mix)
-05. Dirty Harris - Narcotik (Original Mix)
-06. Nelly Furtado - Big Hoops (Bigger The Better) (Sultan & Ned Shepard Remix)
-07. Ed Kurno - Freak (F. Hereno Remix)
-08. Kato feat. Jeremy Carr - Celebrate Life (Southside House Collective Remix)
-09. DJ Renat feat. Cotry - Aye Aye Aye (Club Mix)
-10. Alex Martello vs David Jones ft. Paula Lobos - Stand Up (Club Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 04:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A98B51F2C5A53125C09850CFFE40FF3812207B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516553   (652124) от 29.06.2012
-
-VA - XXXL Record Клубный марафон 50/50 (2012) [MP3|160-320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neoclubber - Ночь Жаркого Лета
-02. Pitbull Feat. Ne - Yo & Afrojack & Nayer - Give Me Everything
-03. Misty & Тельман - Только Ты (Extended Mix)
-04. Radio Killer - Is It Love Out There (Dj Andi Remix)
-05. Дэнэро - Родная
-06. Paul Van Dyk Feat. Adam Young(Owl City) - Eternity
-07. Artik pres. Asti - Облака (Extended Mix)
-08. Mark 'oh - Party To The Rooftop (Radio Edit)
-09. Макс Барских - Dance (Russian Version)
-10. Tom Boxer & Morena feat. J Warner Deep In Love (Radio Edit)(   Читать дальше...   )Жанр: ClubПродолжительность: 05:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DCBA4D6FF3C811D4838611B68914D61F1B9FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516492   (652122) от 29.06.2012
-
-VA - Клубные Новинки Vol.96 (2012) [MP3|320 kbps]<Club|Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NoMosk – Morning Heat (Original Mix)
-02. Platinum Monkeys - Return (Igor Voevodin Remix)
-03. Aerofeel5 feat. Eva Kade - Friday Night (Sezer Uysal Remix)
-04. Chris Brown - Don't Wake Me Up (dBerrie Remix)
-05. Dj Winn & Freeman feat Drilla - All About You (Valentin Remix)
-06. EverLight - Superstar (Mindset Remix)
-07. The Whiteliner & Eric Tyrell & Natasha Burnett - Underneath The Sun (Fine Touch Remix)
-08. Matt Eray - Gift (Jective pres. Muska Remix)
-09. Sun Island Project, VIF ft Erinya - Lets Fly (Original Russian Mix)
-10. Patrick Hagenaar - Golden Nugget (Original Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183954132771CA36095D46ECCC7C054F28D7B2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798788   (652035) от 23.06.2014
-
-VA - My Favourite Hits of 1984 (9CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652035.jpg" />
-</div>
-
-
-###  Подробнее
-
-142. F.R. David - Is It Magic (03:57)
-143. Pupo - Vola (03:24)
-144. The Cars - You Might Think (03:04)
-145. Arabesque - Sunset In New York (03:49)(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363DB0F92FED30D0A4F525424ABA0E5E353576A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031719   (651649) от 04.07.2016
-
-VA - 120 European EDM: July Mix (2016) [MP3|320 Kbps] <Dance, Electro, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. First State Feat Sarah Howells - Skies On Fire
-002. Rudy Mc & Alivo Feat. Splitten - Home (Extendet Mix)
-003. James Marley Feat. Nathan Brumley - Summer Won't Wait (Extended Mix)
-004. Felix Jaehn Feat. Lost Frequencies & Linying - Eagle Eyes(   Читать дальше...   )Жанр: Dance, Electro, HouseПродолжительность: 10:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E547C5A9FA8845A217D3FAC0142D7A81FBC14BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031535   (651647) от 04.07.2016
-
-VA - Hits Disco and Pop Dance - Part IV (2016) [MP3|256 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque - For Your Smile
-02. Cherry Laine - Catch The Cat
-03. Carapicco - Tic Tac
-04. Aqua - Barbie Girl(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52560CE8E018862409992767184EA19BE3832DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031516   (651640) от 04.07.2016
-
-VA - Hits Disco and Pop Dance - Part III (2016) [MP3|256 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Call Me
-02. Kaoma - Lambada
-03. Blue System - Freedom
-04. Ds Qvicksilver - Free(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58D28CDFA37960CEC5EBD70BD052F571F3687DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

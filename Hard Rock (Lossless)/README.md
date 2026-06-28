@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1877703   (1074137) от 22.06.2026
+
+Xciter - Xciter (1977-79) Reissue 2006 [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepless Nights [0:04:13.73]
+02. Black Star [0:05:07.09]
+03. It's Alive [0:03:53.30]
+04. Paris is Burning [0:03:57.45](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6934EE4C3A4AB7F39D5C02BF1B1DFEFF06350E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877710   (1074136) от 22.06.2026
+
+KXM - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War of Words (4:23)
+02. Mind Swamp (5:07)
+03. Circle of Dolls (4:38)
+04. Lightning (6:39)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 03:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF3E96CF4D3077287E896B2C48278D56FE10C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877705   (1074135) от 22.06.2026
+
+Hear N' Aid - Hear N' Aid (1986) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Hear 'N Aid / Stars 07:19 (Bain/Campbell/Dio)
+02 Accept / Up To The Limit (Live) 05:06 (Accept/Dirkschneider)
+03 Motorhead / On The Road (Live) 04:58 (Burston/Campbell/Gill/Kilmister)
+04 Rush / Distant Early Warning (Live) 05:09 (Lee/Lifeson/Peart)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5249318432F164D39AAD6D57D2B509F86B3A7BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877109   (1073854) от 
 
 Yngwie Malmsteen - Best Ballads (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -21,6 +108,35 @@ Yngwie Malmsteen - Best Ballads (1996) Compilation, Unofficial [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83778668028A53B4A7E80B85C3CB3C67F865166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876919   (1073742) от 17.06.2026
+
+Silver Horses - Weird Tales (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 00:27
+02. Keep On Runnin 03:44
+03. Dark Ages 03:53
+04. Different Keys 03:35(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0937CC8939F0ADC9EF571A82E3E95244502291E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,122 +746,6 @@ AC/DC - Fly On The Wall (1985) Reissue, Remastered, 2003, [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0193CFBE56400BB38A43F69FBF3A1CAADF1CAC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867594   (1066859) от 26.04.2026
-
-Riot - The Official Bootleg Box Set Volume 2 (1980-1990) Box Set, 7XCD, 2018, HNE Recordings Ltd [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Manchester, Apollo 13th October 1981
-Disc 2 - Ipswich, Gaumont 14th October 1981
-Disc 3 - Agora Ballroom, Ohio 8th November 1981
-Disc 4 - Long Island, New York 1st July 1982(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 05:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3FE1C9C6A16E76F17F02ACB9698DE553D338E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866895   (1066493) от 22.04.2026
-
-Close Enemies - Close Enemies (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain 05:26
-02. Sound Of A Train 05:06
-03. Inside Out 03:08
-04. Sweet Baby Jesus 03:58(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB6F17B7DBEBAB033E98D4DA1CFE886C931D2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862361   (1064198) от 29.03.2026
-
-White Skies - Shouting At The Hurricane (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If This Is It (Get Ready)
-02. 88 Crash
-03. Money To Burn
-04. I Can't Make This Alone(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C570B910CE9EC1E9A7BBED0F5542AF73522BEE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862426   (1064160) от 30.03.2026
-
-Night Ranger - Greatest Hits (1989) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подобно таким AOR-рок-группам, как Styx, Journey и REO Speedwagon, Night Ranger обрушивали на слушателя мощный шквал электрогитарного звучания - заслуга Jeff Watson'а и Brad Gillis'а, а также могли похвастаться харизматичным и энергичным фронтменом в лице Jack Blades'а. Поскольку студийные альбомы группы содержали лишь небольшую долю по-настоящему сильного материала, (   Читать дальше...   )01. (You Can Still) Rock in America (4:15)
-02. Sing Me Away (4:09)
-03. Goodbye (4:19)
-04. When You Close Your Eyes (4:18)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99B7F6B804082F607C490E731F325A8EDA1981E
 ```
 
 https://mybot314.ru/tekegram_catalog/

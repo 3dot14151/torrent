@@ -1,3 +1,29 @@
+###  Публикация: 546154   (480745) от 12.09.2012
+
+Водопады и Город Будущего (11.09.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D161AA54D249B91C21976BA7AFDC1D8A6BE941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546155   (480456) от 12.09.2012
 
 Стрелковое оружие (11.09.12) [Wallpapers]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:471EA50B1B52252063B1BF073CFFBDA5397911F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245124   (475922) от 04.09.2018
-
-Обои - Desktop Wallpapers Full HD. Part (280) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D58C072C1AC0616697BFD5443A2CB032F2334A
 ```
 
 https://mybot314.ru/tekegram_catalog/

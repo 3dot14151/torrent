@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_946389.jpg" />
 </div>
 
 

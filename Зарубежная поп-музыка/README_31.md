@@ -1,3 +1,32 @@
+###  Публикация: 1031380   (668773) от 03.07.2016
+
+Omer Ozgur - As Is (2009) Reissue, 2016 [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Feeling
+02. Always Been This Way
+03. Don't Let Them
+04. Whom Should I Trust(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189F9511EC98BA5429529A619A1E208FFCFA1587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291538   (668681) от 25.03.2019
 
 VA - 100 Greatest Love Songs (2019) [MP3|320 Kbps] <Pop>
@@ -722,35 +751,6 @@ Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41BD69C2BFB8F33BBE83579514B4770B30FA9F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225778   (657821) от 18.05.2018
-
-VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra Nate - Free
-02. Moloko - Sing It Back
-03. Ace Of Base - All That She Wants
-04. Suzanne Vega feat. DNA - Tom's Diner (DNA mix)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1352576   (1001027) от 14.01.2020
+
+Обои - Wallpapers Кошачьи #72 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B29AAFA8E77904428244008CAC6892BA883E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352590   (1001003) от 14.01.2020
 
 Обои - Desktop Wallpapers Full HD. Part (549) [JPG]
@@ -685,32 +711,6 @@ Wide Wallpapers - anime (06.01.13) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3D4F313CCFFF5D8A79023F02C7756DD9DC0C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600611   (998668) от 09.01.2013
-
-Nature Wallpapers (08.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1213044   (773354) от 15.03.2018
+
+VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Workers) [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Lectric Workers - Robot Is Systematic (8:59)
+02. 'Lectric Workers - The Garden (6:56)
+03. Pleasure Discipline - For Hours Now (Remix) (7:01)
+04. Expansives - Life With You .... (6:56)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015731   (773143) от 12.05.2016
 
 Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
@@ -716,35 +745,6 @@ Disc: 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD47DE74E78CC129BA347D823138879F0077FA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213880   (767339) от 18.03.2018
-
-Kim Wilde - Here Comes The Aliens (2018) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1969 (4:03)
-02. Pop Don't Stop (3:51)
-03. Kandy Krush (3:16)
-04. Stereo Shot (3:39)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F2BC1F7B7605AB9221ACBEADF4AA7FC2C9BCC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

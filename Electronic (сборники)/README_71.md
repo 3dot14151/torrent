@@ -1,3 +1,148 @@
+###  Публикация: 1018514   (756021) от 20.05.2016
+
+VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756021.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Lounge Unlimited Orchestra - Violet
+002. Xeno Sound System - Free Run
+003. MrV - Sunset Landscapes
+004. Dario J - The Lounge Again(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018388   (756016) от 20.05.2016
+
+VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heatbeat - It's Killing Me (Radio Edit) 3:27
+002. Overtune - How Does It Feel (Hp Remix) 5:43
+003. Curbi - Circus (Extended Mix) 3:56
+004. Dj Asperant - I'm In Miami Beach (Original Mix) 3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018397   (755933) от 20.05.2016
+
+VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Planer - Buddhas Eyes - Essential Bar and Lounge Version
+02. SynDication - Bondi Beach - Sydney Big City Chillout Cut
+03. Nafets Rules - Gin Tonic - Crystal Sky Electronic Ambient Cut
+04. Arcade Shadows - Perfect Gift - Deluxe 55 Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C0515B25E1ECC1C21183D6A1EC78FE2B12CF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018461   (755932) от 20.05.2016
+
+VA - Club Dance Switch Miracles (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755932.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bassjackers Vs. Breathe Carolina & Reez - Marco Polo (Extended Mix) 3:49
+002. Pulsedriver & DJ Fait - Surrender (Pulsedriver Edit) 3:40
+003. Bass Masters - Jump in a Place (Radio Edit) 3:05
+004. Bob Sinclar - Someone Who Needs Me (Club Mix) 4:11(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5F1696A83506C1DDC6A9B0DE79C8A364411E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018429   (755929) от 20.05.2016
+
+VA - Interference -  Hardstyle Techno Mix (2016) [MP3|320 кб/с] <Hardstyle, Hard Techno, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doozie & Blue Rose - Light 5:14
+02. Brennan Heart & Audiotricz Ft. Christon - Coming Home 3:02
+03. Dr Rude & Rebourne - Exhale 3:08
+04. Zatox & TNT - Ready To Rage 3:16(   Читать дальше...   )Жанр: Hardstyle, Hard Techno, DanceПродолжительность: 05:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842CE84511068F429298B841E004F26AB55AC10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018259   (755922) от 20.05.2016
 
 VA - Звездный летний клубный драйв (2016) [MP3|253-320 кб/с] <Club, Dance>
@@ -601,151 +746,6 @@ VA - Electroshock Vol. 07 (2016) [MP3|320 кб/с] <House, Electro House, Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B18EA39CAC6EBEAA46C640E1DDECFB67CFE33422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019358   (752265) от 22.05.2016
-
-VA - Trance 100 Symmetry Nostalgic (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz Ft Lady V - Erase You (Omair Mirza Remix) 6:08
-002. Arman Dinarvand & Bager - Hope (Astuni Re-Lift) 6:51
-003. Chris Schweizer - Scorpion (Extended Mix) 5:55
-004. Ben Gold - Im In A State Of Trance (Asot 750 Anthem) (Extended Mix) 7:44(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 11:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5057FD9C67377E6BCF404C5397660545EF0D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019187   (752252) от 22.05.2016
-
-VA - Trance Desire Volume 70 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Uplifting Mix) 7:53
-02. Ira, Paulina Dubaj - Better In Time (Original Mix) 6:47
-03. Mike Saint-Jules ft. Sandel - Broken Turn (Original Mix) 7:47
-04. Judie Tzuke, Seth Hutton - Don't Look Behind You (Solid Stone Remix) 7:57(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83B90630685517752CDB2969EB043EDA62D1F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281449   (752078) от 08.02.2019
-
-VA - Chilled Tunes For Relaxed (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Annk - Last Dance
-002. 2Jesus - Arrival2
-003. Fall Therapy - Wrong
-004. Makia Blue - Heal Me(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 10:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7495A32856953BD806E73332CC26196E59E0F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281488   (751865) от 08.02.2019
-
-VA - Light Dance Music (2019) [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <house, dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Abraham Mateo - La Noche  03:40
-  02 - Akcent - Rita  02:53
-  03 - Alexiane - A Million On My Soul  04:06
-  04 - Alex Mica Feat. D.E.P  Kalif - Latina Loca  03:36(   Читать дальше...   )Жанр: house, danceПродолжительность: 04:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A0247EE800ACA809E3998DE88DA3C8B1FC8CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281526   (751861) от 08.02.2019
-
-VA - Beatport Top 100 Downloads January (2019) [MP3|192-320 Kbps] <House, Electro, Tech>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT – Upperground (Original Mix) (6:45)
-02. Rebuke – Along Came Polly (Original Mix) (6:29)
-03. Martin Ikin – No No (Original Mix) (5:18)
-04. Don Diablo, Keanu Silva – King Of My Castle (Original Mix) (3:37)(   Читать дальше...   )Жанр: House, Electro, Tech, Progressive, Techno, TranceПродолжительность: 10:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BE1FD595E24700C4E91D1121768FBEC92BCE95
 ```
 
 https://mybot314.ru/tekegram_catalog/

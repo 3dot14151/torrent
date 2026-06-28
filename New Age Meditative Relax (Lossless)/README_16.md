@@ -1,3 +1,90 @@
+###  Публикация: 1231098   (608849) от 16.06.2018
+
+Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cloudforest Trail (6:16)
+2. Pillars in the Mist (9:34)
+3. In the Presence of Beauty (7:05)
+4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296841   (608534) от 19.04.2019
+
+Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Reflection (7:17)
+ 02. The Road to Here (6:07)
+ 03. Rising (8:49)
+ 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148309   (603483) от 07.07.2017
+
+Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thousand Star (8:16)
+02.Flow Of Time's Arrow (7:22)
+03.Belle E'Poque 3012 (8:16)
+04.The Visionary (9:05)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149111   (602538) от 09.07.2017
 
 Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
@@ -658,93 +745,6 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234227   (572491) от 04.07.2018
-
-Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar
-02. Taiyo
-03. Brassy Sunrise
-04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554891   (570249) от 03.06.2022
-
-Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Enigmatic, Pop Rock, Synth Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light the Stars [00:02:59]
-02. Return to Innocence [00:03:07]
-03. I Will Never Let You Go [00:03:18]
-04. Reach Your Heart [00:02:58](   Читать дальше...   )Жанр: Enigmatic, Pop Rock, Synth PopПродолжительность: 8 CD, 02:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554691   (568748) от 04.06.2022
-
-Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Summer In Your Heart (radio version)
-02 Summer In Your Heart (rock house - radio mix)
-03 Summer In Your Heart (oceanal blue house mix)
-04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
 ```
 
 https://mybot314.ru/tekegram_catalog/

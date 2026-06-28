@@ -1,3 +1,57 @@
+###  Публикация: 1226061   (657641) от 18.05.2018
+
+Текстуры - DeviantArt - Old paper seamless textures - 507236128 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры - старая бумага.
+Автор: jojo-ojoj.Формат: JPGРазрешение файлов: 2000 x 2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920EE29F09451E3C9D7E72AD650B0412F84E43AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226277   (656751) от 19.05.2018
+
+Текстуры - Creative Market - Art Textures: Marbled Folk Song - 2269113 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные художественные текстуры - узоры.
+Автор: SHP Digital DesignФормат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EC3108AA4249778E2F442B194A06A07C659CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226196   (656548) от 19.05.2018
 
 Текстуры - 80 Foil, Glitter and Marble Seamless Textures and Patterns [JPG, PAT, AI, EPS]
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4B19022F585B17AF81FC4A8179E98C40E748C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035727   (626377) от 17.07.2016
-
-Текстуры - Dark Grunge [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор интересных текстур для коллажей в гранжевом стиле.Формат: JPGРазрешение файлов: 2000x1466
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261A9D9437134928F1B633DF3B19EA51369A605F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035420   (626086) от 17.07.2016
-
-Текстуры - Starcharts Textures [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры для создания карты звёздного неба или же для чего-то другого.Формат: PNGРазрешение файлов: 800x550
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C312AB534132BE168D758875DE7D24EAF4F38D
 ```
 
 https://mybot314.ru/tekegram_catalog/

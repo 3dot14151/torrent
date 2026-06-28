@@ -1,3 +1,32 @@
+###  Публикация: 912513   (610880) от 26.06.2015
+
+Last Chance Saloon - Last Chance Saloon (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravy Train (3:45)
+02. Turning My Back (4:59)
+03. Delta Sky (3:32)
+04. Fistful Of Mojo (3:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E4517917E152C3A6A6F31AFBD5CC66FC334C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912609   (610773) от 26.06.2015
 
 Curtis Mayfield - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul>
@@ -716,35 +745,6 @@ Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00FD351FB6EE84D0EE2776465D1FA31FC70EEF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914223   (598477) от 02.07.2015
-
-Delta Deep - Delta Deep (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang the Lid (02:41)
-02. Whiskey (04:22)
-03. Down In the Delta (03:21)
-04. Treat Her Like Candy (03:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59482857D13327DAFD19F2D640568A7AAD9271FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

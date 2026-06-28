@@ -1,3 +1,61 @@
+###  Публикация: 1446944   (1032343) от 11.02.2021
+
+Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mezzerola Blues [3:09]
+02. Drum Face [3:16]
+03. Blues des annees 20 [3:41]
+04. Really the Blues [4:51](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4816D3D5C52300A4439A3EF2A343705BBEA02D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446939   (1032337) от 11.02.2021
+
+Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice to Come Home To [2:18]
+02. Lonesome Road [2:27]
+03. They Didn't Believe Me [2:22]
+04. By Myself [1:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30EE391CBEC70FC7E1CCD7F246ECB063D5EF0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446862   (1032311) от 11.02.2021
 
 Dino Saluzzi - Albores (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin>
@@ -688,64 +746,6 @@ Jazz Q - Zneni a Sneni (Znění a Snění) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF497181A3A7653516A2AA845DE879AF44B9AE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621541   (1030969) от 25.03.2023
-
-Dean Martin - BD Voices: L'Histoire de Dean Martin (1944 - 1958) 2CD, 2008, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long, Long Ago [2:22]
-02. Open Up the Doghouse (Two Cats Are Coming In) [2:31]
-03. Volare (Nel blu, dipinto di blu) [3:02]
-04. Standing on the Corner [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3FC1478BC8CC2DC85756B0DF393FB132E84FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448394   (1030937) от 17.02.2021
-
-Workshy - Love Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Funk, Soul-Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Out (3:58)
-02. Ooh Child (3:39)
-03. Don't Ask My Neighbours (4:16)
-04. Didn't I (Blow Your Mind This Time) (3:34)(   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Smooth JazzПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45394646BCB23131D7FF5CEED9C4E01C9D0F2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

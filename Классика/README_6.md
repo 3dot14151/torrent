@@ -1,3 +1,32 @@
+###  Публикация: 1368684   (908972) от 20.03.2020
+
+Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano, Orchestra>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamland (2:41)
+ 02. Forever Song (3:28)
+ 03. Wishing (2:09)
+ 04. Heartbeats (3:57)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Piano, OrchestraПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44AAEE4B20C2A7F650EB48F2A819B8418F725DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990928   (907905) от 27.02.2016
 
 Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Violini E Archi I (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2108D60DE61252F3804EB69DFBA1E6AE9ACC562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867738   (901093) от 09.02.2015
-
-Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: Wiener Philharmoniker, Karl Bohm (1974-1978) remastering 2001 [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карл Бём тесно сотрудничал с Венским филармоническим оркестром, осуществил с ним много записей. В 1967 г. был назван почётным дирижёром этого оркестра. В 1974 г. осуществил полную запись симфоний Моцарта. Дважды получал музыкальную премию «Грэмми».Wolfgang Amadeus Mozart
-01. Concerto for Piano and Orchestra No.27 KV.595 I.Allegro (14:31)
-02. Concerto for Piano and Orchestra No.27 KV.595 II.Larghetto (09:01)
-03. Concerto for Piano and Orchestra No.27 KV.595 III.Allegro (09:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
 ```
 
 https://mybot314.ru/tekegram_catalog/

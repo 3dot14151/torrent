@@ -1,3 +1,171 @@
+###  Публикация: 1520349   (142278) от 28.12.2021
+
+VA - Pulse (Compiled by Serge Kraplya) (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. R. Haim, Cafe De Anatolia - Mirage (3:52)
+02. Rodrigo Gallardo, Cafe De Anatolia - Kameyama (6:49)
+03. Laroz, Cafe De Anatolia - Maiella (5:43)
+04. Khaikhan, Cafe De Anatolia - Our Family (6:49)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 02:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1F9AF6C23B9B34DA1FAB9185901DA22FF2EB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520262   (142230) от 28.12.2021
+
+VA - Deep Blue Sea, Vol. 1: Deep Ambient Moods (2013) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Come & Love Me (Re-Edit) (4:36)
+02. Triangle Sun - Tonight (4:24)
+03. Gary B - Stronger Love (4:21)
+04. Wav-E - The Perfect Sunrise (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4A8962AEA0548ECDC2DBEA201323328AA7DF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088018   (142224) от 29.12.2016
+
+Расплата / The Accountant (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, Английские SDHПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DE00235754D6FD5A26ACA67C269A3BB0D70639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520331   (142217) от 28.12.2021
+
+VA - Swing Sisters, Volume One (2021) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Swing House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Clair, Alanna Lyes - Sisters Are Doin' It For Themselves (Radio Edit) (3:11)
+02. Kumiho - Legend (Radio Edit) (2:41)
+03. Rosantique - Bambola (Tu Mi Fai Girar) (Radio Edit) (2:58)
+04. Madam Misfit - Don't Girl (Radio Edit) (2:46)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943425734F51EB110719B3BE3ECAF3B6E32BE0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520567   (142211) от 28.12.2021
+
+VA - A Day to Relax: Chillout Your Mind (2021) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Happy Daze (Original Mix) (3:43)
+02. Leo de la Rosa - Easy Game (5:16)
+03. The Soul Crusaders - The Garden of Eden (5:11)
+04. Digby Jones - No Other Smile (Original Mix) (4:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72670051A1DD79C4D478ECB70F959414B013CDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195479   (142207) от 29.12.2017
+
+Скайлайн 2 / Beyond Skyline (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142207.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B74D167B3CB6436C292ECBA0FF3BD79DE5A4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272559   (142198) от 28.12.2018
 
 Узел смерти / The Clovehitch Killer (2016/2018) WEB-DL [1080p] ATV [MVO]
@@ -535,171 +703,6 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65818C06F297B38D0D83AAD07C246AD317F266D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348895   (140657) от 29.12.2019
-
-Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520675   (140615) от 29.12.2021
-
-Greta Van Fleet - From The Fires (2017) [AAC|~330 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Safari Song (3:55)
-02. Edge Of Darkness (4:28)
-03. Flower Power (5:13)
-04. A Change Is Gonna Come (3:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600198FE5B0022E8A13462B038025DCB604183B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520677   (140605) от 29.12.2021
-
-Greta Van Fleet - Anthem Of The Peaceful Army (2018) [AAC|~340 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Man (6:06)
-02. The Cold Wind (3:17)
-03. When The Curtain Falls (3:43)
-04. Watching Over (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CFEB181EF0B88FA615E896C80F9B9BCC6C151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520680   (140562) от 29.12.2021
-
-Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always There (5:22)Жанр: Rock, ScoreПродолжительность: 00:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272606   (140478) от 29.12.2018
-
-Добрый вечер  (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140478.jpg" />
-</div>
-
-
-###  Подробнее
-
-В придорожном отеле сталкиваются бандит и писатель, монахиня и проститутка. У каждого есть план на этот вечер. Спор. Ссора. Секс. Убийство. Кто кого?Производство: РоссияЖанр: Комедия, криминалРежиссер: Фёдор КонстантиновичАктеры: Вильма Кутавичюте, Артём Цуканов, Кристина Казинская, Филипп СавинковПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD3B10C4146C5CAC2FAB8BAC5DD2F2E7E894B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520682   (140474) от 29.12.2021
-
-Greta Van Fleet - The Battle at Garden’s Gate (2021) [AAC|~332 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Above (5:41)
-02. My Way, Soon (4:15)
-03. Broken Bells (5:51)
-04. Built By Nations (3:59)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66EA1A568FF799EC10B794BA8B1AC030C5828CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

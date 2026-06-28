@@ -1,3 +1,148 @@
+###  Публикация: 1350678   (1003020) от 07.01.2020
+
+VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Domi Re - The Locals (Original Mix)
+002. Astropilot - Breathe (Sirius Music Remix)
+003. Roger Rabbit - Breath (Original Mix)
+004. Liquid Ace - Neurochemistry (Indianix Remix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350764   (1003006) от 07.01.2020
+
+VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003006.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jose Vilches - Groove Music (Original Mix)
+002. Jp Lantieri - Intimacy (Original Mix)
+003. Jerome Isma-Ae - Opium (Quivver Remix)
+004. Eimear - Wake Up (Talamanca Remix)(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350885   (1002994) от 07.01.2020
+
+VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe De Renzo - Long Trip
+002. Af Double - Redemption
+003. Agoria - Hélice
+004. Sebastian Groth - Snow Leopard(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 15:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492F07413472B6388959FE7A9DE53BBCC55F1A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350677   (1002986) от 07.01.2020
+
+VA - Techno Friday: With Special Guest (2020) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002986.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wardogg - Last Call (Original Mix)
+002. Delphunk - Mucho
+003. Loren Lewis - Vandal (Hypnotic Mix)
+004. Oziriz - Cheerful (Original Mix)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 13:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9D4D30EEFD95CA5B45C24EBF8150D984DF8F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350762   (1002977) от 07.01.2020
+
+VA - Excalibur: Trance Original Mix (2020) [MP3|320 Kbps] <Trance, Progressive , Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fischer & Miethig - Oxygenious
+002. Mindsoundscapes - Excalibur
+003. K.E.K A - Impulse (Extended Mix)
+004. Martin Graff - Mantissimo (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive , Uplifting TranceПродолжительность: 09:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DB3ADE1523D1AEAF2612974B387E0FA11135A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350765   (1002964) от 07.01.2020
 
 VA - Yoga And Deep House Meditation Music (2020) [MP3|320 Kbps] <Downtempo, New Age, Ambient, Chillout>
@@ -600,151 +745,6 @@ VA - Vocal Chillout Music: Relax Session (2021) [MP3|320 Kbps] <Chillout, Relax 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661D38818C7B51D09D708D16F1152DBE88DEA339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352466   (1001087) от 14.01.2020
-
-VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001087.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avalon - Universal
-002. Ajja - Bayaya
-003. Heisenberg - Theory Of Everything
-004. Id-S - Heaven Is Not On Earth(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318DB72BD8A94D4CF7E21593B17F01642A8B2F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352468   (1001084) от 14.01.2020
-
-VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, Electronic, Minimal, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001084.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Interferon - Poison Barbs (Original Mix)
-002. Chevda - Acid Drivel (Original Mix)
-003. Dan Only - Emulsion
-004. Fixon - Natural Beauties(   Читать дальше...   )Жанр: Techno, Electronic, Minimal, EDMПродолжительность: 10:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDE973ABBFE5F4130AAB69076FFDE3A6B26E7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352478   (1001082) от 14.01.2020
-
-VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001082.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Imarek - Save Our Souls (Original Mix)
-002. Goarilla - Honeycake
-003. Metta & Glyde - Limerence (Original Mix)
-004. Elevven And Jes - Heartbeat Tonight(   Читать дальше...   )Жанр: Trance, Electro, Progressive, UpliftingПродолжительность: 13:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8AEB0452BF6A4313CE7D1E447109E6979F33C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351808   (1001045) от 14.01.2020
-
-VA - Record Super Chart 620 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
-2.SAINt JHN - Roses (Imanbek Remix) (3:58)
-3.Meduza feat. Becky Hill & GOODBOYS - Lose Control (2:48)
-4.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F98F1FA583FE57CFCA6CE576CDDFEC807953CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352435   (1001044) от 14.01.2020
-
-VA - Beatport Trance Pack #04 (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maor Levi - Take Your Love
-02. Arcania - This Means War (Radio Edit)
-03. Adam Is A Girl - Sky (Dennis Sheperd Remix Edit)
-04. Arkstone - Annihilation(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 05:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F322F07B689F389787034833448271F27B3F74
 ```
 
 https://mybot314.ru/tekegram_catalog/

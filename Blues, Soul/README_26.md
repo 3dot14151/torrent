@@ -1,3 +1,32 @@
+###  Публикация: 940997   (462858) от 27.09.2015
+
+Arlen Roth - Slide Guitar Summit (2015) [MP3|320 кб/с]<Blues Rock, Slide Guitar, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do What'S Right (With Jack Pearson) (04:16)
+02. Dust My Broom (With Lee Roy Parnell) (04:35)
+03. Stranger On The Shore (With Cindy Cashdollar) (02:54)
+04. Sonny Skies (With Sonny Landreh) (03:38)(   Читать дальше...   )Жанр: Blues Rock, Slide Guitar, RockabillyПродолжительность: 01:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D1A2DD2BEA59545AFDEFB35E3DB2711AE5BBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941334   (462724) от 27.09.2015
 
 VA - Blues Guitar Duels (1997) [MP3|256 кб/с]<Blues Rock>
@@ -734,35 +763,6 @@ Nick Waterhouse - Never Twice (2016) [MP3|320 Kbps] <Rhythm & Blues, Rock'n'Roll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05EC38A38260256C107CC50F0A17E14D6623814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249384   (435536) от 23.09.2018
-
-Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Way To Go (03:28)
-02. Babylon Is Falling (03:59)
-03. One More Heartache (03:01)
-04. Might Take A Lifetime (02:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F445E19A73D29D3B0F77FD53FCCCB1CA171D94
 ```
 
 https://mybot314.ru/tekegram_catalog/

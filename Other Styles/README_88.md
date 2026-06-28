@@ -1,3 +1,125 @@
+###  Публикация: 1299117   (600022) от 01.05.2019
+
+Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lilac Skies
+02. Unspoken Words
+03. Dochas
+04. Blue Whispers(   Читать дальше...   )Жанр: New Age, Jazz, AcousticПродолжительность: 48:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD75305131E20A6099036F5F738C1A9C71062B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232523   (599928) от 24.06.2018
+
+Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Wonderland (03:47)
+02. Sketchbook of Untold Magic (03:32)
+03. Falling Stars (03:33)
+04. Fairy Tale (04:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299143   (599901) от 01.05.2019
+
+Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirit of the Water (5:07)
+ 02. Atlantis Memory (5:25)
+ 03. Atlantida (5:28)
+ 04. Lost Continent (6:04)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525923   (599618) от 23.07.2012
+
+Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Dance
+02. Flying Condor
+03. Allin Quampi
+04. Love Mountain
+05. May you walk in sunshine
+06. Five Spirit
+07. Sunquyman
+08. Four Circles of Live
+09. Tatanka
+10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038808   (599532) от 30.07.2016
 
 VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|320 Kbps] <Country>
@@ -668,122 +790,6 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233084   (593937) от 28.06.2018
-
-Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Easy Listening, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Edge of a Dream
-02. We Meet Again
-03. Drifting
-04. Spellbound(   Читать дальше...   )Жанр: New Age, Easy Listening, PianoПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA7DEF5E1822B743D56607C60057DAE782014F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548938   (593906) от 06.05.2022
-
-Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aina [00:05:54]
-02 - Jerovine [00:06:01]
-03 - Inanna [00:04:41]
-04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7685465CE31A0CD2D20AFDE06D8061925AF92845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548640   (593903) от 06.05.2022
-
-Кметъ - Солнце, Ладога И Киев (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal, Groove Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кий, Щек, Хорив и Лыбедь (00:05:07)
-02 - Выше Солнца (00:04:32)
-03 - Капище (00:04:54)
-04 - Иду на Вы (00:04:12)(   Читать дальше...   )Жанр: Pagan Folk Metal, Groove MetalПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300182   (593697) от 05.05.2019
-
-Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canary
-02. Front Porch
-03. When Does A Heart Move On
-04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

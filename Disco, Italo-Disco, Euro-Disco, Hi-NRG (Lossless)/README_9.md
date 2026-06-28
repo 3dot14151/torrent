@@ -1,3 +1,116 @@
+###  Публикация: 1529168   (733087) от 05.02.2022
+
+Savage - Love And Rain (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every second of my life (Ouverture) 0:41
+02. Don't say you leave me 3:02
+03. I love you 3:17
+04. Italodisco 3:07(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F98883B76FD7B53C7E4342ECDD217A62B2C764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323333   (729355) от 18.04.2011
+
+V.A. - The Best Projects Of Axel Breitung (ex. Silent Circle) (2004) [FLAC|Lossless]<Pop, Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, EurodiscoПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399908   (725081) от 02.08.2020
+
+Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Fantasy (3:59)
+02. Dance With Me (4:51)
+03. Fools Cry (4:07)
+04. Calling Out For Love (4:02)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C96F3B8493C782A2D7E4B06EDF3FFE7984D738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399911   (725072) от 02.08.2020
+
+Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Tonight (Extended Version) (4:37)
+02. Electric Heartbeat (6:36)
+03. Computer Girl (5:34)
+04. Disco Delirio (5:25)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218369   (723023) от 09.04.2018
 
 Dschinghis Khan - Moskau - Das Neue Best Of Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco>
@@ -635,121 +748,6 @@ Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289622   (686625) от 16.03.2019
-
-Daddy Cool Kids  - School's Out (2008) Single [FLAC|Lossless|image + .cue] <Disco, Europop, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. School's Out (Radio Version)	3:47
-2. School's Out (Extended Version)	4:37
-3. School's Out (Karaoke Version)	3:47Жанр: Disco, Europop, ElectronicПродолжительность: 00:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01475AEF170243A38D416C6E235E55FD1347E955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289524   (686366) от 16.03.2019
-
-Goombay Dance Band - Sun Of Jamaica (1995) Series Pop Shop Sony Music [FLAC|Lossless|image + .cue] <Electronic, Latin, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Of Jamaica
-02. Seven Tears
-03. Island Of Dreams
-04. Eldorado(   Читать дальше...   )Жанр: Electronic, Latin, DiscoПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808C48F84EEFB2BF205421F165B589438EEDB3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290393   (679833) от 19.03.2019
-
-Arabesque - The Best - Легенды Дискотек 80-х (2006) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friday Night
-02. City Cats
-03. Hello, Mr. Monkey
-04. In The Heat Of Disco Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BC7C7B5120DD3DD9E89F3EBB197772BB43C8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136231   (676840) от 21.05.2017
-
-Dschinghis Khan - Non-Stop Best Hits (2001) Compilation, Mixed [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan 03:16
-02. Hadschi Halef Omar 03:09
-03. Rocking Son Of Dschinghis Khan 02:58
-04. Der Verrater 03:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9328BEEA30C39FD5BB12EFF679D013329062E8EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

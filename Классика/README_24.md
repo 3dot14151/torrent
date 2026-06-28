@@ -1,3 +1,32 @@
+###  Публикация: 1033814   (635818) от 12.07.2016
+
+Gustav Leonhardt, Alan Curtis, Helmut Hucke, Collegium Aureum - C.P.E. Bach: Concerti Wq 46, 23 & 165 (1990) [FLAC|Lossless|tracks] <Classical, Concertos>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Concerto for 2 harpsichords, 2 horns, strings & continuo
+in F major, H. 408, Wq. 46
+01.  Concerto doppio F major H410 (Wq46) - Allegro    09:57
+02.  Concerto F major H410 (Wq46) - Largo    07:22(   Читать дальше...   )Жанр: Classical, ConcertosПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6532017673E436B4EF36ED1B77E1DFF29B08CE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033840   (635812) от 12.07.2016
 
 Jordi Savall, Lislevand, Behringer, Cocset, A. Savall, Estevan, A. Gonzalez-Campa - La Folia (1490-1701) 1998 [FLAC|Lossless|image + .cue] <Renaissance, Baroque>
@@ -757,41 +786,6 @@ Wolfgang Amadeus Mozart – Gran Partita K.361, Wind Pieces K.484b, K.410, K.411
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AC73FBC0375FACA29D1ADB6229B8375C442626B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524302   (612930) от 18.07.2012
-
-Jon Lord - Durham Concerto (2007) [WavPack|Lossless]<Classical, Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1: Morning
-1 The Cathedral At Dawn [11:31]
-2 Durham Awakes [08:25]
-
-Part 2: Afternoon
-3 The Road From Lindisfarne [07:18]
-4 From Prebends Bridge [08:27]
-
-Part 3: Evening
-5 Rags & Galas [08:25](   Читать дальше...   )Жанр: Classical, ContemporaryПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

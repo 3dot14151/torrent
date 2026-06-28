@@ -1,3 +1,34 @@
+###  Публикация: 1410926   (431642) от 23.09.2020
+
+Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|image + .cue] <Latin, Folk, World & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danny Malando Orchestra - знаменитый голландский оркестр исполняющий музыку танго. В модернизированном оркестре играют 15 участников, удивительно слаженно исполняющих сколь сложные, столь и прекрасные музыкальные композиции.
+
+Название оркестра, начавшего творческую деятельность летом 1939 года, происходит от имени его основателя Арие Маасланда (Arie Maasland) (26 (   Читать дальше...   )Трeклист:
+01. Blauer Himmel (03:04)
+02. Ich Kusse Ihre Hand Madame (03:12)
+03. Tango Delle Rose (02:29)(   Читать дальше...   )Жанр: Latin, Folk, World & CountryПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72162AE5131325001F1D0960575C829AC3AF2204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411015   (429483) от 24.09.2020
 
 VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
@@ -762,41 +793,6 @@ VA - Cтаринные русские романсы. Золотая колле�
 08. Анатолий Кочерга - Забыли Вы
 09. Виктор Титкин - В минуту признанья
 10. Тамара Концевая - О, позабудь былые увлеченья(   Читать дальше...   )2005Жанр: Vocal, classicalПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496032   (252972) от 14.05.2012
-
-Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listening>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Way (Comme D'habitude) (4:29)
-02. If You Go Away (Ne Me Quitte Pas) (3:26)
-03. Fascination (3:50)
-04. Sous Le Ciel De Paris (3:00)
-05. Autumn Leaves (Les Feuilles Mortes) (3:51)
-06. La Vie En Rose (3:47)
-07. What Now My Love (Et Maintenant) (3:18)
-08. Cerisiers Roses Et Pommiers Blancs (2:28)
-09. She (Tous Les Visages De L'amour) (3:13)
-10. Parlez - Moi D'amour (2:41)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:36:40
 
 ## Скачать торент
 ```bash

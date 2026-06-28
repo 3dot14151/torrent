@@ -1,3 +1,61 @@
+###  Публикация: 1611387   (1041310) от 11.02.2023
+
+Бездна Анального Угнетения - Русская мечта (2023) [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Просроченная гниль [00:05:25]
+02 - Пёсья деньга [00:04:18]
+03 - Портал в Советский Союз [00:05:21]
+04 - Депутат [00:05:18](   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F4BAAF86B7624604A9C3EF4321296FBDC9E8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437774   (1041177) от 08.01.2021
+
+#Kisel - Поверь в себя! (2020) EP [MP3|320 Kbps] <Russian Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Поверь в себя [00:02:47]
+02 - Мы новое поколение (Rock Version) [00:03:30]
+03 - Мир за миром [00:05:49]
+04 - Ты ненавидел себя [00:04:30](   Читать дальше...   )Жанр: Russian Pop RockПродолжительность: 00:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65983F235ADDE29463355A5282BF26BEF0C6F5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611953   (1040872) от 13.02.2023
 
 Konfirmat - 2 Albums (2019-2023) [MP3|320 Kbps] <Industrial Metal>
@@ -683,61 +741,6 @@ LP.PROD - 6 Albums (2021-2023) [MP3|320 Kbps] <Electronic Cinematic Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E60A892943E6ADA186B7BB30A00B476C49E1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614066   (1038900) от 21.02.2023
-
-Dig 'Em Down - Ребуха (2023) [MP3|280-290 kbps VBR] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:01:30]
-02 - Ннхд [00:01:37]
-03 - Д.З.Г [00:02:21]
-04 - Фантом [00:01:47](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7647FEB6932966EDB1A14CE36B81B33D9D54455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614298   (1038827) от 21.02.2023
-
-Юрий Шевчук & Дмитрий Емельянов - Родина, вернись домой (2023) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1038827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Родина, вернись домойЖанр: RockПродолжительность: 00:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AA65DBA100F4ECAF399D27B7238F8E04A929D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

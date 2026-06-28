@@ -1,3 +1,264 @@
+###  Публикация: 1819984   (944) от 25.09.2025
+
+Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jerry Potato (5:42)
+02.  To DS (Dedication To Dayna Stephens) (4:11)
+03.  Trasloco (4:16)
+04.  Every 3 Hours (4:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B3AF7E4AD28600407048F5FDBB2728AFF6550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646462   (864) от 26.09.2025
+
+Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Speed/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage — немецкая хэви-метал группа, основанная в 1984 году Петером «Пиви» Вагнером. Они представляли собой часть немецкой хэви-/спид-/пауэр-метал сцены, зародившейся в начале-середине 1980-х годов, и входят в «большую четвёрку» этой сцены наряду с Grave Digger, Helloween и Running Wild.1985 - Prayers Of Steel (as Avanger)
+1986 - Reign Of Fear
+1987 - Execution Guaranteed
+1988 - Perfect Man(   Читать дальше...   )Жанр: Heavy/Speed/Power MetalПродолжительность: 34:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633139   (858) от 26.09.2025
+
+Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paradox — немецкая метал-группа, образованная в Вюрцбурге в 1986 году.1987 - Product of Imagination
+1989 - Heresy
+2000 - Collision Course
+2008 - ElectrifyЖанр: Progressive Thrash/Power/Speed MetalПродолжительность: 08:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820092   (814) от 26.09.2025
+
+Ana Popovic - Dance To The Rhythm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance to the Rhythm (4:11)
+02. Worked Up (3:07)
+03. 50 Ways to Leave Your Lover (4:34)
+04. California Chase (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775CB28BBD894985C289134FB8CD072E29418DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820085   (763) от 26.09.2025
+
+Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Deathcore, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vildhjarta — шведская метал-группа из Худиксвалля, образованная в 2005 году. Группа играет в стиле джент, вдохновлённом Meshuggah, используя сильно пониженные гитары, минорные гармонические аккорды, резкие стаккато-риффы и наслоения реверберирующих гитар и атмосферных эффектов.2009 - Omnislash (EP)
+2011 - Masstaden
+2013 - Thousands of Evils (EP)
+2021 - Masstaden Under Vatten(   Читать дальше...   )Жанр: Progressive Metal, Deathcore, DjentПродолжительность: 03:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638474   (615) от 27.09.2025
+
+Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revocation — американская метал-группа из Бостона, штат Массачусетс. Была основана в 2000 году как Cryptic Warning. В 2006 сменила название на Revocation.2008 - Empire Of The Obscene
+2009 - Existence Is Futile
+2011 - Chaos Of Forms
+2012 - Teratogenesis (EP)Жанр: Technical Death/Thrash MetalПродолжительность: 08:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686726   (591) от 27.09.2025
+
+Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mors Principium Est - мелодик-дэт-метал группа с участниками из Финляндии и Великобритании. Основана в 1999 году.2003 - Inhumanity
+2005 - The Unborn
+2007 - Liberation = Termination
+2012 - ...And Death Said LiveЖанр: Melodic Death MetalПродолжительность: 07:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3812337D053039A139A526E65B6B87090809A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820693   (288) от 28.09.2025
+
+Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock, Progressive rock, Alternative rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Experiment IV (Remastered 2025)
+02. You Want Alchemy (Remastered 2025)
+03. Rocket Man
+04. Walk Straight Down The Middle (Remastered 2025)(   Читать дальше...   )Жанр: Art rock, Progressive rock, Alternative rockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568845F965880FE0164A5DBEFFDAF90126336B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820685   (282) от 28.09.2025
+
+Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi
+02. Play This Song (feat. Anderson .Paak)
+03. Type Dangerous
+04. Sugar Sweet (feat. Shenseea & Kehlani)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AA6512C2B6A862989155E5FAD8D9EB3F8E3606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820656   (273) от 28.09.2025
 
 Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -485,120 +746,6 @@ Motörhead — британская рок-группа, образованна�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82FBD1FA270076AFD781208BDAC208F7D3B74955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776093   (102) от 29.09.2025
-
-Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Technical Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Between the Buried and Me - прогрессив-метал группа из города Роли, штат Северная Каролина, США; сформирована в 2000 году.2002 - Between The Buried And Me
-2003 - The Silent Circus
-2005 - Alaska
-2006 - The Anatomy OfЖанр: Progressive Metal, Technical Death Metal, MetalcoreПродолжительность: 16:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BD67C506E752F6A6A40F3E67D98F44042DFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820850   (18) от 29.09.2025
-
-Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - Studio Albums (10 releases) (1989-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, H ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарио Молло — итальянский гитарист и музыкальный продюсер, наиболее известный, тремя альбомами "The Cage", которые он записал с бывшим вокалистом Black Sabbath Тони Мартином, а также работой в группе "Voodoo Hill" с бывшим вокалистом и басистом Deep Purple Гленном Хьюзом.Crossbones
-EZoo
-The Cage
-Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность: 09:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820836   (12) от 29.09.2025
-
-Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arabs In Aspic - норвежская группа, играющая прогрессивный рок, была основана в Тронхейме в 1997 году. Музыкальные корни коллектива уходят в золотую эру рока. Их звучание — это смесь громких, тяжёлых гитар и барабанов, двенадцатиструнной акустики, фанкового баса и перкуссии, пронзительных органов Hammond, мягких Fender Rhodes, меллотронов и синтезаторов 1970-х.2003 - Progeria (EP)
-2004 - Far out in Aradabia
-2011 - Strange Frame Of Mind
-2013 - Pictures in a DreamЖанр: Progressive RockПродолжительность: 05:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820868   (4) от 29.09.2025
-
-Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4.jpg" />
-</div>
-
-
-###  Подробнее
-
-Siege Of Power - метал-группа с участниками из США и Нидерландов, основана в 2017 году.2018 - Warning Blast
-2023 - This Is TomorrowЖанр: Death/Thrash MetalПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
 
 https://mybot314.ru/tekegram_catalog/

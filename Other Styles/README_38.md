@@ -1,3 +1,119 @@
+###  Публикация: 1114707   (826060) от 18.03.2017
+
+Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colorful Voice (2:49)
+02. Give (4:25)
+03. Half Way (3:15)
+04. Hope (3:37)(   Читать дальше...   )Тип издания: CommercialПроизводство: Rayark Inc.Жанр: Pop, InstrumentalПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D72F2BBE9A7C4552BB15484BF09D55C4B5BFA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880985   (826004) от 24.03.2015
+
+James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craving
+02. Hold Back The River
+03. Let It Go
+04. If You Ever Want To Be In Love(   Читать дальше...   )Жанр: Indie Pop, Indie FolkПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381840   (824805) от 08.05.2020
+
+Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme Armikrog
+02. Hot and Beefed (The Zipkicker)
+03. Scaly Maps
+04. The Squarely Beast(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381318   (824693) от 08.05.2020
+
+Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Divine Healing 04:30
+2. Yoga Exercises 02:56
+3. Art of Meditation 02:56
+4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381516   (824690) от 08.05.2020
 
 Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -628,122 +744,6 @@ Richard Clayderman - Tango Passion (1996) [FLAC|Lossless|image + .cue] <Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BAC747DB086267D2534CCD90140EFAF33E948D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116825   (821056) от 21.03.2017
-
-Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Hand Of Fate (Reprise) [00:02:15]
-02 -  Cantara. Part 2 [00:06:18]
-03 -  Little Shiva [00:05:30]
-04 -  Hand Of Fate [00:06:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10809B03779A9F136EB9B20F4B801353C0694DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116836   (821050) от 21.03.2017
-
-VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ying Srisati - Meltwater
-02. Jame Ornlamai - Healing Space
-03. Earth Kunchai - Relax
-04. Wanwisa Yuvaves - Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116136   (820920) от 21.03.2017
-
-VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Southside Johnny & The Asbury Jukes - Tuff Turf
-2. The Jim Carroll Band - People Who Died
-3. Jack Mack & The Heart Attack - Green Onions
-4. The Jim Carroll Band - Voices(   Читать дальше...   )Жанр: Pop Rock, Punk, OSTПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117043   (820916) от 21.03.2017
-
-Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing You (2:52)
-02. It’s Goodbye and So Long to You (3:11)
-03. Windy City (3:16)
-04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
 ```
 
 https://mybot314.ru/tekegram_catalog/

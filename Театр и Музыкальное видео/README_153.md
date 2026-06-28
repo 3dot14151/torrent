@@ -1,3 +1,236 @@
+###  Публикация: 1740653   (47522) от 07.08.2024
+
+Linkin Park: Дорога к революции (Живой концерт в Милтон Кейнз) / Linkin Park: Road to Revolution (Live at Milton Keynes) (2008) BDRip [H.265/2160p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Road to Revolution: Live at Milton Keynes — второй концертный CD/DVD/BD-сборник американской рок-группы Linkin Park. Он был записан во время ежегодного фестивального тура группы Project Revolution в Milton Keynes National Bowl 29 июня 2008 года. Первоначально его планировалось выпустить 25 ноября 2008 года, но по факту, релиз в США состоялся на один день раньше. (   Читать дальше...   )01. One step closer
+02. From the inside
+03. No more sorrow
+04. Wake(   Читать дальше...   )Производство: США / Splinter FilmsЖанр: Alternative rockРежиссер: Blue LeachУчастники: Chester Bennington (вокал), Brad Delson (гитара), Joseph Hahn (DJ / сэмплирование), Mike Shinoda (вокал / клавишные / гитара), Rob Bourdon (барабаны), Phoenix Farrell (гитара), Jay-Z (вокал)Продолжительность: 01:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A454506A3009493619DF425B37291E7DDB71D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88341   (47513) от 08.08.2024
+
+Whitesnake - Live In The Still Of The Night (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whitesnake — британо-американская рок-группа, играющая хард-рок с блюзовыми элементами, созданная в 1977 году Дэвидом Ковердэйлом, вокалистом распавшихся в 1976 году Deep Purple.
+Состав на настоящее время: David Coverdale, Doug Aldrige, Reb Beach, Timothy Drury, Uriah Duffy, Chris Fraizer1. Burn
+2. Bad Boys
+3. Love Ain"t No Stranger
+4. Ready An" Willing(   Читать дальше...   )Жанр: РокПродолжительность: 01:43:01 + 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D719AEC08B0124EBEE276E1AEADF6B9B53AC2F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378017   (47500) от 08.08.2024
+
+VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стивен Рэй Вон — американский гитарист и певец. Один из самых известных и влиятельных гитаристов в мире. В 2003 году журналЖанр: Blues-RockУчастники: Bonnie Raitt
+Jimmie Vaughan
+B.B.King
+Buddy Guy(   Читать дальше...   )Продолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A40F716AC33DCA7CB90376EB6C4125E351D38A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299837   (47485) от 08.08.2024
+
+W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа "W.A.S.P." была основана в 1982 году Блэки Лолессом (Стивен Дьюрен, р. 4 сентября 1956), который привлек к ее созданию своих давних знакомых гитаристов, Криса Холмса (р. 23 июня 1961) и Рэнди Пайпера, а также барабанщика Тони Ричардса. Их концертная деятельность началась в конце года, а уже к маю 1983-го "W.A.S.P." собирали залы по три (   Читать дальше...   )Animal (I Fuck Like A Beast)
+L.O.V.E Machine
+I Wanna Be Somebody
+On Your Knees(   Читать дальше...   )Жанр: Hard Rock/Heavy MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E3873A10E91636E573228D198773E7BFF42A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443314   (47483) от 08.08.2024
+
+Признания авантюриста Феликса Круля / Театр п/р О.Табакова (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47483.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного незавершенного романа Томаса Манна.
+
+История Феликса Круля — это история метаморфоз, которые могут произойти с человеком, попавшим в определенные обстоятельства. Темное время начала XX века порождало своих чудовищ…
+(   Читать дальше...   )Жанр: драма, спектакльРежиссер: Андрей ЖитинкинПродолжительность: 01:38:16 + 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E5EB30CA646765FBF23B16776562B609A2C94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327158   (47416) от 09.08.2024
+
+Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47416.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1980 году две мощные хард-рок-группы, Black Sabbath и Blue Oyster Cult, объединились для совместного концертного тура, в котором каждая из них предложила свой собственный, неповторимый подход к хэви-металу. Одна из дат этого тура была заснята на пленку, и фильм "Black & Blue: Black Sabbath и Blue Oyster Cult Live демонстрируют эти две группы-ветераны на (   Читать дальше...   )BLACK SABBATH
+01. War Pigs
+02. Neon Knights
+03. N.I.B.(   Читать дальше...   )Жанр: Heavy Metal, Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 728073   (47412) от 09.08.2024
+
+Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47412.jpg" />
+</div>
+
+
+###  Подробнее
+
+После камбэка с альбомом "13" Black Sabbath отправились в гастрольное турне. Одним из самых запоминающихся концертов в туре стали выступления на Зелёном Континенте. 29 апреля и 1 мая 2013 года у музыкантов прошло 2 концерта в Мельбурне, которые надолго запомнились всем австралийцам. Black Sabbath решили, что было бы замечательно выпустить CD/DVD и Blu-ray (   Читать дальше...   )01. Introduction
+02. War Pigs
+03. Into the Void
+04. Loner(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0ED68B301AF0C41BC23F063FE51514E210E6BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 73571   (47409) от 09.08.2024
+
+AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47409.jpg" />
+</div>
+
+
+###  Подробнее
+
+"No Bull: The Director's Cut" — новое, расширенное издание знаменитого концерта AC/DC в Plaza De Toros De Las Ventas , Мадрид, Испания, состоявшегося 10 июля 1996 года. Для нового издания был сделан ремастеринг и ремикс звука в Dolby Digital Stereo и Dolby Digital 5.1 Surround Sound, а также добавлены КОНЦЕРТНЫЕ бонусные треки (в первом издании был клип (   Читать дальше...   )01 Back In Black
+02 Shot Down In Flames
+03 Thunderstruck
+04 Girl's Got Rhythm(   Читать дальше...   )Жанр: rockКачество: DVD9Продолжительность: 122 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A36966B4A3BE9062C42EE7B0C7DF2057F039FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 205778   (47408) от 09.08.2024
 
 AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
@@ -494,240 +727,6 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A57A6B57EF9C4C6A356EBD06DC226D5DA1439BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188724   (46986) от 13.08.2024
-
-Выступление Майкла Джексона в Бухаресте / Michael Jackson - Live In Bucharest: The Dangerous Tour (1992) DVD9 <Pop>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в Бухаресте (Румыния), который состоялся 19 сентября 1992 года в рамках тура в поддержку альбома "Dangerous". Одно из самых удачных выступлений Майкла Джексона.Жанр: PopРежиссер: Энди МорганЯзык озвучки: АнглийскийПродолжительность: 02:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B242B3A66D1A1E7745F18E9B166AF96C42F19376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 69146   (46978) от 13.08.2024
-
-Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блюз всегда был неотемлимой частью творчества Карлолса Сантаны, во
-время этой волшебной июльской ночи на фестивале в Montereux он представил
-трёх выдающихся блюзменов: Bobby Parker, Clarence 'Gatemouth' Brown, Buddy Guy.
-Это трёх дисковое издание и три концерта известных музыкантов наверняка доставит(   Читать дальше...   )DVD-1Bobby Parker
-STRAIGHT UP NO CHASER
-BREAK IT UP
-BREAKING UP SOMEBODY'S HOME(   Читать дальше...   )Жанр: живой концертУчастники: Bobby Parker, Clarence 'Gatemouth' Brown, Buddy Guy, Carlos Santana, Barbara Morrison, Nile RodgersПеревод: ОригинальныйПродолжительность: 03:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95EFBD3B5D1555E2E5E752CB1ADF92FC95325FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557700   (46976) от 13.08.2024
-
-THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46976.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Who ... разбитые гитары ... снесенные гостиничные номера ... автомобили в бассейнах ...легендарная группа в своих самых взрывных выступлениях.
-Прожить снова славу от их предисторических дней как Высококлассных до их окончательного вида с пресловутым безумцем и экстраординарным барабанщиком Keith Moon. От хриплых репетиций до крупных фестивалей ... от рок-опер (   Читать дальше...   )1. My Generation
-    The Smothers Brothers Comedy Hour, CBS Studios, Los Angeles, September 15, 1967.
-   2. I Can't Explain
-    Shindig!, Twickenham Film Studios, Middlesex, August 3, 1965. Broadcast in the US, October 2.(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: Disc1
-01:49:07
-Disc2
-0:40:26 + 0:06:13 + 0:05:05 + 4 x 0:06:42 + 6 x 0:11:39 + 0:08:44 + 0:25:38 + 0:29:23 + 0:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE925829D9174C3C483F31A83BD972CD6BB23C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 336527   (46961) от 13.08.2024
-
-Vaya Con Dios - the ultimate collection (2006) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт замечательной певицы + bonus
-Запись небольшого акустического концерта группы Vaya Con Dios приуроченного к выходу CD альбома The Ultimate Collection, был записан в брюссельском Theatre du Vaudeville летом 2006 года. Песни спеты на английском, между песнями Дани Кляйн говорит на фламандском и французском языках. Концерт имеет более джазовый уклон чем в более (   Читать дальше...   )1. Just A Friend Of Mine - Live
-2. Forever Blue - Live
-3. Far Gone Now - Live
-4. Farewell Song - Live(   Читать дальше...   )Жанр: РОРРежиссер: Sony BMGАктеры: Vaya Con DiosПеревод: ОтсутствуетПродолжительность: (00:47:40+00:02:46)+(00:14:01)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC0096427052FE6DEA688F758794FB3FE9777A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274721   (46880) от 14.08.2024
-
-Deep Purple: Live In California 1974 (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple - Live In California 74 это пожалуй самый грандиозный концерт культовой группы Deep Purple ??!!!
-Видеокассета VHS "California Jam, April 6th 1974" увидела свет в Великобритании в 1981 г. , потом выпушена там же в 1984 и 1991 годах. В США она была издана в 1983 году под другим названием "Live At The California Jam". В Японии, были выпушены (   Читать дальше...   )1. Burn
-2. Might Just Take Your Life
-3. Lay Down Stay Down
-4. Mistreated(   Читать дальше...   )Жанр: Hard rockФормат: DVD VideoПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583269   (46786) от 15.08.2024
-
-Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 56839   (46784) от 15.08.2024
-
-Metallica - The Videos 1989-2004 (2006) DVD-9
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свершилось - Metallica наконец-то выпустила все свои видеоклипы на отдельном DVD. Впервые на DVD видео "2 of One", который ранее выпускался только на VHS. Североамериканцы впервые увидели клип "Mama Said", который никогда там не транслировался по телевидению. Также на диске 11-минутная версия клипа "The Unforgiven" и трейлер фильма "Some (   Читать дальше...   )One 7:41
-Enter Sandman 5:28
-The Unforgiven 6:21
-Nothing Else Matters 6:24(   Читать дальше...   )Жанр: Thrash MetalФормат: DVD videoКачество: DVD9Продолжительность: 02:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13D03A5F1BE0C28C6CFA302237E5DFF8B813BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443110   (46735) от 15.08.2024
-
-Ретро / МХТ им. Чехова (2011) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Московского художественного театра им. А.П. Чехова.
-Пьеса Александра Галина - это трогательная история о том, что обрести себя и встретить родную душу можно в любом возрасте и при самых странных обстоятельствах.
-Людмила и ее муж Леонид решают поженить ставшего вдовцом отца и приглашают без его ведома на смотрины трех старушек. Старушки приходят не в то (   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Андрей МягковПродолжительность: 01:22:15 + 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAA0648857E2F1FFE639D669363255F4DFCC553
 ```
 
 https://mybot314.ru/tekegram_catalog/

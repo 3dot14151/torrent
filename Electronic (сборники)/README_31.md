@@ -1,3 +1,148 @@
+###  Публикация: 990769   (909937) от 26.02.2016
+
+VA - Winter Fragment: Relax Party (2016) [MP3|320 кб/с] <Chillout, Lounge, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909937.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelika - My Surreal Dream (Ambient Mix) 02:41
+002. Ferry Corsten Feat. Temperheart - Not Alone (Chill Version) 04:51
+003. Moonnight Feat. Natune - I Need A New Love 03:44
+004. Dreamman Feat. York - Moonrise On The Beach 07:45(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AFECB473D536BFF686A1338B2063DF07593FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990792   (909922) от 26.02.2016
+
+VA - Sunrise Lovers Vol.2: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UK One - Levitate
+02. Sarah Martin - Paradise
+03. James Walden - Maria Maria
+04. Lounge Surfers - Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEBE10F93AA872249E6FC7BB2A9E14C5AD9A720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990691   (909757) от 26.02.2016
+
+VA - Bass Killer 3 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909757.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 12th Planet & LUMBERJVCK - Name Bran (Original Mix) (4:38)
+2. Alby Loud - El Senor Dinosaurio (Original Mix) (3:37)
+3. Autoerotique - AUH (Original Mix) (3:11)
+4. Avicii - Pure Grinding (iSHi Remix) (3:26)(   Читать дальше...   )Жанр: Electro House, Dubstep, ElectroПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119A8288E016FE2981B2B22F7F9AE2DE3DAE7231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990554   (909688) от 26.02.2016
+
+Boris Blank - Selected (2015) [MP3|320 кб/с] <Electronic, Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Time Tunnel (05:09)
+02. The Last Mile (04:59)
+03. I Feel It Like You (feat. Malia) (03:38)
+04. Random Tox (02:42)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2825F5D855CD85FF54EFB4ED9265AF486E767D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368280   (909235) от 20.03.2020
+
+VA - Beatport Goa Trance: Electro Sound Pack #31 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909235.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atacama - Outer Rim
+002. Owntrip - Soul Memory
+003. Conwerter - Ancient Knowledge
+004. Djcybertsai - Journey Inward(   Читать дальше...   )Жанр: Psychedelic, Goa Trance, ElectroПродолжительность: 11:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8C42583EEA64B04596AF44A2B36621AE599BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368279   (909101) от 20.03.2020
 
 VA - Electronic Fantasy Box (2020) [MP3|320 Kbps] <Electronic, Synthetic>
@@ -600,151 +745,6 @@ VA - Auto Dance Party Vol.2 (2016) [MP3|320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6E3DE3A830E851BEF16541DC6F995B53509FE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991451   (906316) от 28.02.2016
-
-VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello (DJ PitkiN Remix)
-02. Alekseev - Пьяное Солнце (OlegPerets & Ivan Flash Remix)
-03. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix)
-04. Anthony El Mejor pres. Мурат Насыров Cover - Я Это Ты (DJ Denis Rublev & DJ Anton Cover Mix)(   Читать дальше...   )Жанр: Club House, Dance, Electro House, House Music, Mash Up, PopПродолжительность: 03:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937B7E0E5E8EB82FAA65D29AC62B64AFB2E86C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991349   (906065) от 28.02.2016
-
-VA - Record Super Chart № 425 (2016) [MP3|128-320 кб/с] <Club House, Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostany - Teddy Bear (Astero Remix)
-02. Sander Van Doorn, Moti - Lost
-03. Major Lazer, Nyla, Fuse ODG - Light It Up
-04. KSHMR, Marnik - Bazaar!(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 1:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE3DEFD41AAB24352402BE260526F1DA39C5200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368954   (905648) от 22.03.2020
-
-VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
-02. Anthony Keyrouz - Love Yourself 2:56
-03. SAINt JHN - Roses (Imanbek Remix) 3:58
-04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D27132AB59FCA54D307BF2262671018C9CA7564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369083   (905580) от 22.03.2020
-
-VA - Beatport Tech House: Electro Sound Pack #35 (2020) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905580.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sala - Siouxsie
-002. Chris Knipp - Baldhead
-003. Gianni B Goode - My Desire (Techno Mix)
-004. Jan Darsel - Dark Butterfly(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 11:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2D397455E54035994B8050B608592C0D88C197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368994   (905576) от 22.03.2020
-
-VA - Progressive Electro: EDM Party (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Tyler - Everytime
-002. Mste - Raster Flash
-003. Rigel - Singularity Spike
-004. Katrin Souza - A Dark Forest(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73D92C67E107AAFDC2D26285D850D45A2F844B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

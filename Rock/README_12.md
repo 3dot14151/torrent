@@ -1,3 +1,67 @@
+###  Публикация: 961134   (920123) от 23.01.2017
+
+Queen - Discography (1968-2014) 212 Albums [MP3|128-320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская рок-группа, добившаяся широчайшей известности в середине 1970-х годов, и одна из наиболее успешных групп в истории рок-музыки. Средства массовой информации называют группу «культовой» и пишут, что она и по сей день имеет сотни миллионов поклонников. Критики считают классикой рока такие песни группы как: «Bohemian Rhapsody», «We Will Rock You», «We Are (   Читать дальше...   )1973 - Queen
+1974 - Queen II
+1974 - Sheer Heart Attack
+1975 - A Night At The Opera(   Читать дальше...   )Жанр: Rock |Продолжительность: 286:51:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD7CA859F888A4ECAF2DB15D704980DCDED7530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288935   (919642) от 30.01.2011
+
+Joe Satriani - Дискография (1986-2010) [MP3|320 kbps]<Instrumental-Rock, Rock'n'Roll, Hard-Rock, Fusion-Jazz>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental-Rock, Rock'n'Roll, Hard-Rock, Fusion-JazzПродолжительность: 00:53:12
+
+1. Joe Satriani - Premonition (3:52)
+2. Dream Song (4:48)
+3. Pyrrhic Victoria (5:08)
+4. Light Years Away (6:11)
+5. Solitude (0:57)
+6. Littleworth Lane (3:46)
+7. The Golden Room (5:19)
+8. Two Sides to Every Story (4:10)(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096551   (919397) от 24.01.2017
 
 Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
@@ -691,64 +755,6 @@ BANCHEE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2627A5F3317F0937DAE542B5615FCAC641453EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991077   (907914) от 27.02.2016
-
-Brenda Lee - Queen Of Rock'n'Roll (2009) [MP3|320 кб/с] <Rock 'n' Roll, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock The Bop (02:15)
-02. Little Jonah (Rock On Your Steel Guitar) (02:25)
-03. Jambalaya (On The Bayou) (02:09)
-04. Anybody But Me (02:27)(   Читать дальше...   )Жанр: Rock 'n' Roll, Country ClassicПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE7550B83D7DBA4E849F195ED35ACC2ADF94714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991170   (907815) от 27.02.2016
-
-Royal Republic - Weekend Man (2016) [MP3|320 кб/с] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Come (There You Go)
-02. Walk!
-03. When I See You Dance With Another
-04. People Say That I'm Over The Top(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC624456F59438A1A7109AFE4653E033C434086
 ```
 
 https://mybot314.ru/tekegram_catalog/

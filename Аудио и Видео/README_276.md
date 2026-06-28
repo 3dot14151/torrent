@@ -1,3 +1,174 @@
+###  Публикация: 1521043   (138123) от 31.12.2021
+
+VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikaere - What We Lost in the Winter (6:58)
+02. Schulz Audio - Eff Yeah Brutalism (6:51)
+03. Volunteer - Project Alpha (8:01)
+04. Tender H - Under Rain (Groofeo Remix) (5:29)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 03:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968576   (138120) от 31.12.2015
+
+Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Symphonic Prog>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roundabout (8:36)
+02. Cans and Brahms (1:43)
+03. We Have Heaven (1:39)
+04. South Side of the Sky (7:56)(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600456F21BCD987F88FD85BE8BAA97C2C76C6900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521044   (138114) от 31.12.2021
+
+VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Devon, Grammik - Wanderlust (Original Mix) (6:54)
+02. Soul Button, Clawz SG, Monarke - Implicit Bias (Monarke Remix) (7:03)
+03. Clawz SG - Bloom (Extended Mix) (7:00)
+04. Dahu, Soul Button - Sentient (Original Mix) (6:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 02:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CF50D0CE81941FA437F0F48B04E2C261B1D8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521048   (138105) от 31.12.2021
+
+VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ChubaChiki - Jazz Improvisation (Marcus Raute Mallets Mix) (6:29)
+02. kamosoul - Shine (BNinjas Basement Mix) (7:12)
+03. Toni Young - Impossible To Imagine (5:49)
+04. JOFF. - Sunday Picture (5:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521040   (138090) от 31.12.2021
+
+VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tender H - Between Times (Meek Remix) (6:20)
+02. Meek - Clue (7:00)
+03. Meek - Endes (6:32)
+04. Meek - Noted (5:40)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 02:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088478   (138045) от 31.12.2016
+
+Сноуден / Snowden (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он мечтал продолжить семейную традицию и посвятить свою жизнь служению Родине. Он безоговорочно верил в правительство США и поддерживал антитеррористическую программу. На заре его карьеры в спецслужбах никто, даже он сам, не мог бы предположить, что именно он, Эдвард Сноуден, совершит самое крупное разоблачение в мировой истории, обнародовав секретные документы, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, биографияРежиссер: Оливер СтоунАктеры: Джозеф Гордон-Левитт, Шейлин Вудли, Мелисса Лео, Закари Куинто, Том Уилкинсон, Скотт Иствуд, Рис Иванс, Николас Кейдж, Тимоти Олифант, Джеймс БатлерПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9EAEC33344BEFBC491E285FFAB9E44E4ED92CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970777   (137940) от 31.12.2015
 
 Антиганг / Antigang (2015) BDRip [576p] iPad
@@ -545,180 +716,6 @@ VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524929   (130302) от 18.01.2022
-
-VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Chuchaqui (5:47)
-02. Logophilia - Surfaces (6:03)
-03. Ace Of Duty - Prerogatives (6:13)
-04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524736   (130298) от 18.01.2022
-
-Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salama (7:12)
-02. Piccolo Violino (7:32)
-03. Salama (Stephane Salerno Remix) (8:10)
-04. Salama (El Sonido Project Remix) (7:40)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E6952907AEEA2214C83CB4013134961A684834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524775   (130292) от 18.01.2022
-
-VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francois Maugame - Ocean (6:04)
-02. Yu Namikoshi - Sencitive (2:36)
-03. Ann Grace - From The Deep (5:41)
-04. Mark Dwane - Codex (8:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDA4439A5916D4AE7C4C2C04570EED934C35450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524912   (130279) от 18.01.2022
-
-VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ackeret - Unofficial Meeting (6:03)
-02. Pique Dame - Souvenir de Bordeaux (6:14)
-03. Aqua Mundi - Chuchaqui (5:47)
-04. Kieloval - Space Thoughts (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C167E0B8AC20E357D631465846777D39BC03AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524773   (130278) от 18.01.2022
-
-Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saraswathi Devi Sloka (3:36)
-02. Bolo Krishna (3:57)
-03. Om Namo Bhagavate Vasudevaya (4:52)
-04. Surya Narayana Dandakam (5:03)(   Читать дальше...   )Жанр: Folk, EDMПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFB2B6082809A5E0824F99F223FD4E7DFC40356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524865   (130277) от 18.01.2022
-
-VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mare et Monti - Sans Soucis (5:43)
-02. Jean Mare - Dandelons in Space (Deep Flow Ambient Lounge Mix) (7:21)
-03. The Compunist - Arrived on Mars (3:57)
-04. Lightson - One (Mystic Indian Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D8B7A0EA540CC9E4483E4B3E88930F1BDB080B
 ```
 
 https://mybot314.ru/tekegram_catalog/

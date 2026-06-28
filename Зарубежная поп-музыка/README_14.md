@@ -1,3 +1,32 @@
+###  Публикация: 1116429   (824450) от 19.03.2017
+
+VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Hungry Like The Wolf (Night version) 00:05:13
+02. Spandau Ballet - Chant No 1/I Don't Need This Pressure On (Remix) 2010 Remastered Version 00:08:04
+03. Howard Jones - Pearl In The Shell (12" Version) 00:08:57
+04. Blancmange - Don't Tell Me (Dance Remix) 00:06:51(   Читать дальше...   )Жанр: Pop, Synthpop, EurodanceПродолжительность: 03:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14B56450C3CA1E3019B06E8D88599F0DD35DD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839122   (824150) от 27.11.2025
 
 VA - Echoes of the 1980s (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -714,35 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC1A22726EEFA33F64FB07060BCBCCF60D8FC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383859   (808269) от 17.05.2020
-
-VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs, Cookin' On 3 Burners - This Girl (Kungs Vs. Cookin' On 3 Burners) 3:16
-02. Møme - Club Sandwich 4:34
-03. Fakear - Nausicaa 3:53
-04. Aslove, Dalvin - Dancing 3:24(   Читать дальше...   )Жанр: Electro PopПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E686D75D5FA110699E1D752CC49CB9B446084AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

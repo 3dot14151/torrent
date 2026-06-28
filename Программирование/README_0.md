@@ -1,3 +1,82 @@
+###  Публикация: 1850563   (1054616) от 31.01.2026
+
+Илья Кантор | Современный учебник JavaScript [3 книги] (2026) [EPUB, PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1054616.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого учебника вы можете изучить jаvascript, начиная с нуля и заканчивая продвинутыми концепциями вроде ООП. Мы будем использовать браузер в качестве окружения, но основное внимание будет уделяться именно самому языку jаvascript. Давайте посмотрим, что такого особенного в jаvascript, чего можно достичь с его помощью, и какие другие технологии хорошо с ним (   Читать дальше...   )Жанр: ПрограммированиеЯзык: русскийИздательство: javascript.ruФормат: EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63B0AE81725267A9B84C735385FC9C6E8EA1603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849347   (1053554) от 22.01.2026
+
+Alex Vasilev | Python by Example (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053554.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is dedicated to teaching the Python programming language, covering all the essential topics necessary to write effective Python code. It is designed to help readers learn by example, demonstrating how to create and use Python scripts through practical tasks and illustrative examples.
+The book is organized into eleven chapters. The first chapter introduces (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849242   (1053540) от 22.01.2026
+
+Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Implementing Generative AI and Agentic AI. A Practical Guide to Developing, Deploying, and Operationalizing AI-Driven Ap ...
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Generative AI and Agentic AI together are revolutionizing the technology landscape, with profound and far-reaching impacts across industries. Organizations are increasingly adopting these technologies to drive innovation, enhance unstructured content management, and improve problem-solving capabilities. With Agentic AI, enterprises are moving towards the development (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллект, Компьютерные сетиЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849084   (1053453) от 21.01.2026
 
 Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversity in Optimization Algorithms (2026) [PDF] [EN]
@@ -601,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E557030CEBD646DB3666690BF620C71FAC57B5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842192   (1048683) от 14.12.2025
-
-Райнер Гримм | Стандартная библиотека C++ в примерах и пояснениях (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой компактный справочник по стандартной библиотеке языка программирования C++, обновленной до версии стандарта С++23. В ней изложена вся необходимая информация, которую должен знать о стандартной библиотеке профессиональный программист на C++. Вы познакомитесь с различными библиотеками в рамках общей стандартной библиотеки и стандартной библиотеки (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3848AFD81FDE0F8193D7163DB5F681FEBB31FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842196   (1048682) от 14.12.2025
-
-Максимилиано Контьери | Рецепты чистого кода (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для инженеров-разработчиков и архитекторов, имеющих дело с большим объемом сложного кода, важно эффективно его масштабировать и обслуживать. Автор Максимилиано Контьери выходит за рамки концепции чистого кода, показывая, как искать возможности улучшения и оценивать их влияние на код готового программного продукта. Когда речь идет о надежности и развитии, эти методы (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Спринт БукФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB42BFFF0CA81658F017AE146D01127B50DA91B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841910   (1048445) от 13.12.2025
-
-Кирилл Бобров | Грокаем конкурентность (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конкурентность позволяет эффективно выполнять компьютерные программы, разделяя их на задачи, которые можно запускать независимо. Такой подход помогает ускорить игровую графику, обучать большие модели искусственного интеллекта, быстро масштабировать веб-приложения, оптимизировать обработку больших данных и решать многие другие задачи. Работать с конкурентностью непросто, (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA823A777A002558B7C222FBE83224E4F81D1C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1161704   (465516) от 29.08.2017
+
+VA - Metal World Digest (2017) [MP3|320 Kbps] <Metall, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465516.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tankard - Rapid Fire (A Tyrant's Elegy) 05:49
+002. Burning Witches - We Eat Your Children 03:02
+003. Cormorant - Sentinel 15:52
+004. War-saw - Bleed Them Out 04:02(   Читать дальше...   )Жанр: Metall, Hard RockПродолжительность: 16:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D6F450D012F05E9D5AF6BCDE277E38F9698776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057112   (465331) от 09.09.2018
+
+UFO - The Very Best (2016) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Roll Her
+02. Belladonna
+03. Let It Roll
+04. High Flyer(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098EF56444EBA2C8F579C4DFE2B085B29F014661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941031   (464055) от 26.09.2015
+
+The Beatles - Good Songs (2015) [MP3|128 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. I Saw Her Standing There (1963)
+002. Misery (1963)
+003. Anna (Go To Him) (1963)
+004. Chains (1963)(   Читать дальше...   )Жанр: RockПродолжительность: 09:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6A21520C2E8420BCFC386989996F80EE119647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239865   (464014) от 29.09.2010
+
+Андрей Макаревич - Коллекция легендарных песен (2010) [MP3|320 kbps]<Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лет 30 тому назад (4:00)
+02. Из-за угла (5:03)
+03. Вдалеке от высоких холмов (3:10)
+04. Было не с нами (4:23)
+05. Новая опера (3:01)
+06. Нам, пожалуй, пора (4:08)
+07. Моя любовь (4:36)
+08. Птички и мошки (2:36)
+09. Ангел # 2 (4:10)
+10. Разговор на фоне бесконечной ночи (4:33)(   Читать дальше...   )Жанр: Русский рокПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059122   (461634) от 04.10.2016
+
+VA - Classic Rock (2016) 3CD Box Set [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461634.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+001. Sweet Home Alabama - Lynyrd Skynyrd (04:43)
+002. The Boys Are Back In Town - Thin Lizzy (04:26)
+003. All Right Now - Free (05:33)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060D8BFDD4EDD3FFAAC77887E00EC24D74E56AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059473   (461543) от 04.10.2016
+
+VA - ЭТО - РОК Unlimited Hits (2016) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иван Курнаев - В пульсе сердца
+02. Белки на Акации и Доза Радости - В чайном трипе
+03. Монти Механик - Фотоаппарат
+04. Беспризорники feat. Crazy Mama - Ибрагим(   Читать дальше...   )Жанр: RockПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFC397FE814DE17E1992B6B21CCB05CD538636D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246571   (461477) от 11.09.2018
 
 VA - Prelude To Decadence (2018) [MP3|320 Kbps] <Metal>
@@ -571,180 +751,6 @@ VA - Asylum Of Soul: Hard Rock Collection (2017) [MP3|320 Kbps] <Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E8517332833B1A5B19EC0D7AC8D731402E4613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164599   (438840) от 10.09.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.3 от Ovvod7 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Кофеин (Куприянов Игорь) - Фея Летних Снов  3:36
-02.  Гибель Богов - Крик  2:53
-03.  Акцент - Ветер Перемен  4:59
-04.  Саквояж (Галицкий Дмитрий) - Фантазия  3:47(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0E19FCEB3A0965C99C5827E637A5C3FAFAE7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164937   (437070) от 11.09.2017
-
-VA - Horror Sky: Dub Hardcore Set (2017) [MP3|320 Kbps] <Dub Hardcore, Hard Electro Rock, Experimental Dark Electro>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brennan Heart & Zatox - God Complex
-002. Dimitri Vegas - Like Mike feat. Ne-Yo - Higher Place (Extended Mix)
-003. Dr. Pickman - Terror X-Mas (Remastered Edition)
-004. Frankentek - Silence (Original Mix)(   Читать дальше...   )Жанр: Dub Hardcore, Hard Electro Rock, Experimental Dark ElectroПродолжительность: 09:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762E92A8F080DE110127F2663AE490EE0145D5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165388   (434318) от 12.09.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.4 (от Ovvod7) (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Пикник - Вечер  5:06
-02.  Автограф - Город  4:25
-03.  Король и Шут - Маска  4:42
-04.  Чайф - Вольный Ветер  3:56(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB941BFAE7C64108CC6AB52B06ABBA1DEF18F3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323633   (433785) от 05.09.2019
-
-VA - Burn This Town (2019) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433785.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sex Park - Atrium
-002. Jonas Bergsten - Minnet Kanske
-003. Sven Atterton - Cast Away
-004. Aescer - Let Go(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 11:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4C2FD20309BF52079D8B691399CE3E137B77BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945554   (433100) от 10.10.2015
-
-Sting - Good Songs (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Stand Losing You(The Police) (1978)
-02. Roxanne(The Police) (1978)
-03. So Lonely(The Police) (1978)
-04. Bring On The Night(The Police) (1979)(   Читать дальше...   )Жанр: RockПродолжительность: 06:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3056CB2C3D25378718E88B9C4467D06867372A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945546   (432963) от 10.10.2015
-
-Scorpions - Good Songs (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Goin' Mad
-02. Leave Me
-03. Inheritance
-04. Fly People Fly(   Читать дальше...   )Жанр: RockПродолжительность: 06:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1B6EBC5963146AD8A71D5D88BEEB8ED42725DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

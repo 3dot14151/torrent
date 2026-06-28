@@ -1,3 +1,90 @@
+###  Публикация: 1206655   (781740) от 15.02.2018
+
+VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telefon Tel Aviv - Something Akin to Lust (6:37)
+02. Deru - The Roar and the Dust (3:45)
+03. Before Tigers - Backwards Rituals (5:55)
+04. Rafael Anton Irisarri - Certainty (5:43)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4C06B0C6E552B303E9757D3C6D080C977E905F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206716   (781705) от 15.02.2018
+
+Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ambient Sounds NA11 20:45
+2. Ambient Sounds NA22 19:46
+3. Ambient Sounds NA33 19:46
+4. Ambient Sounds NA44 16:33(   Читать дальше...   )Жанр: Ambient, Drone, DowntempoПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DD9B6390A1645A83F1AA091D0DC976140A8E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206920   (781333) от 16.02.2018
+
+LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (05:57)
+02. Tape Loops (05:28)
+03. Enchantment (03:25)
+04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207646   (780387) от 19.02.2018
 
 Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
@@ -658,90 +745,6 @@ Côte Déserte (Cote Deserte) - Dale Cooper's Case (2011) EP [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B74A0B8EBE76476CED9560CBE169132CEB6F438D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281961   (748430) от 10.02.2019
-
-Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Soundscapes, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine I (1:47)
-02. Two Nebulas: Eye (4:12)
-03. Two Nebulas: Eve (8:52)
-04. Think That Really Was, I (7:30)(   Читать дальше...   )Жанр: Dark Ambient, Dark Jazz, Soundscapes, ExperimentalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84A1384651564862CCC43CE6EEC33FEE7A37703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282105   (746544) от 11.02.2019
-
-Nivhek - After its own death / Walking in a spiral towards the house (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Experimental, Eletronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After its own death: Side A (16:41)
-02. After its own death: Side B (21:15)
-03. Walking in a spiral towards the house: Side C (08:37)
-04. Walking in a spiral towards the house: Side D (12:29)Жанр: Ambient, Experimental, EletronicПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60752EB8DE35E85D8720CF67EC6C3F5358759CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282469   (745396) от 12.02.2019
-
-Brian Eno - Reflection (2017) Japanese Limited Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflection (54:00)Жанр: Ambient, ExperimentalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2A0D2C969665BC13C94533B05ADE5DCAB05441
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 1682697   (131147) от 08.12.2023
+###  Публикация: 1679953   (134921) от 27.11.2023
 
-VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Andrew Mirt & Alexandra Badoi - Our Love (Sandro Mireno Extended Remix) (6:36)
-02. IanT & Flund feat. Liliia Kysil - Holding On (Extended Mix) (6:08)
-03. NoMosk & Lucid Blue - Inside The Fire (Mike Zaloxx Extended Remix) (7:04)
-04. Derek Palmer & Hidden Tigress - Drifting Apart (Extended Mix) (7:10)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAB6A18582463AA51CDA6199FB549724D4476E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682728   (131111) от 08.12.2023
-
-Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electronic, Rock>
+Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
 
 >>Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (2023 Remastered Version) [00:00:52]
-02. Robeast (2023 Remastered Version) [00:03:55]
-03. Blind (2023 Remastered Version) [00:04:20]
-04. Fracture (2023 Remastered Version) [00:03:32](   Читать дальше...   )Жанр: Synthwave, 	Electronic, RockПродолжительность: 00:56:23
+01 - Mothers Talk (live) [00:04:23]
+02 - Broken Head Over Heels (live) [00:07:45]
+03 - Memories Fade (live) [00:05:23]
+04 - Mad World (live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 01:21:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CCB57CAB8602DA30D5B2C495CE054D52B6E693B
+magnet:?xt=urn:btih:8D27BA7CCF9EDADE3D73037A37241DF999888958
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682746   (131008) от 08.12.2023
+###  Публикация: 1679965   (134905) от 27.11.2023
 
-VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [MP3|320 Kbps] <New Wave, Pop Rock, Synth-Pop>
 
 >>Electronic
->>Trance
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Gareth Emery feat. Maria Lynn - Missing You (Extended Mix) [5:13]
-002. Above & Beyond - 500 (Extended Mix) [6:50]
-003. Armin van Buuren feat. Anne Gudrun - Love Is A Drug (Extended Mix) [5:23]
-004. DIM3NSION - Stronger Now (Extended Mix) [4:40](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:05:24
+01 - Mothers Talk (live) [00:04:23]
+02 - Broken Head Over Heels (live) [00:07:45]
+03 - Memories Fade (live) [00:05:23]
+04 - Mad World (live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 01:21:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1165080B890556FEC616C2FE8695D2E6349C6F49
+magnet:?xt=urn:btih:7D3234EF4C5EC07FBA1A026C982C74D391FB7357
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,57 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682809   (129966) от 09.12.2023
+###  Публикация: 1679195   (134886) от 27.11.2023
 
-Showtek - 360 Yellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle, Hard Trance, Dance Pop>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Introde Bob Moog
-02 – Shine (feat. Sonny Wilson)
-03 – Electric Slide (feat. Gracious K)
-04 – Someone Like Me (feat. Lxandra)(   Читать дальше...   )Жанр: Hardstyle, Hard Trance, Dance PopПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65B485FC15A28F5338CEC39A0662005CADA1149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682991   (129899) от 09.12.2023
-
-VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+VA - Dance Hits Winter Selection (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rank 1 - Awakening (MaRLo Remix) [03:13]
-02. Equinøx - From The Inside [03:45]
-03. Lulleaux - High On Love [02:09]
-04. Redondo - The Only One [02:22](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 07:37:40
+01. Deepsan - Beating Heart [03:09]
+02. Anup4m - Heaven [02:42]
+03. Kvant - Late Night [05:44]
+04. Anka - The Ocean [02:33](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:16:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
+magnet:?xt=urn:btih:22E384A53172EE96697334CC7AE70C4075C5F726
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682833   (129872) от 09.12.2023
+###  Публикация: 1679972   (134865) от 27.11.2023
 
-VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electronic>
+Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Over Heels (Richard Skinner BBC Session / London / 1984) [00:04:14]
+02. The Working Hour (Richard Skinner BBC Session / London / 1984) [00:06:08]
+03. Broken (Richard Skinner BBC Session / London / 1984) [00:03:19]
+04. Mothers Talk (Live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 4 CD, 05:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5A22E98687FF7E6818E77B6EFD7519ED77B544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680105   (134501) от 28.11.2023
+
+VA - Ministry of Sound - The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrew Spencer & Alex Hilton - Dare Me (Extended Mix) [3:55]
-02. Alex Megane & Vitalyon - I Wanna (Extended Mix) [3:22]
-03. Tom Mountain - Falling (Extended Mix) [3:51]
-04. Secal - Party Rock Anthem (Extended Mix) [4:22](   Читать дальше...   )Жанр: House, Dance, Club, ElectronicПродолжительность: 03:31:33
+01. Calvin Harris & Ellie Goulding - Miracle [03:06]
+02. cassö, RAYE & D-Block Europe - Prada [02:12]
+03. Switch Disco & Ella Henderson - REACT [03:21]
+04. Jazzy - Giving Me [02:49](   Читать дальше...   )Жанр: Electropop, Dance, Big Beat, Club, UK Garage, Jackin, Funky, Groove, Techno, Bassline, Future HouseПродолжительность: 02:09:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CC79A24ED54446C8DD203DE5EA2C173CD73D1AB
+magnet:?xt=urn:btih:FC24D75FE33BEF8120FDC125920C7790DD71CAF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682821   (129833) от 09.12.2023
+###  Публикация: 1679427   (134281) от 29.11.2023
 
-VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morgin Madison - Feel Alive (Different Stage Remix)
-02. Mofasa - Awakening
-03. LÜRUM - Fade Away
-04. Teo Mandrelli & Hel:sløwed & Jordan Grace - Follow The Light (Tune Of The Week)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:51
+01. Armin van Buuren - Let You Down (Nifra Remix)
+02. Nifra & Leo Reyes - Humanoids
+03. Tiësto ft. BT - Love Comes Again (Nifra 2023 Remix)
+04. Hardwell - GODD(   Читать дальше...   )Жанр: TranceПродолжительность: 00:28:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83628098F15F59F4E149B46406E4B4CD20283953
+magnet:?xt=urn:btih:32D4B5E712ABDC26F0B43EC651BF6B8E8A99DB5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,257 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682965   (129829) от 09.12.2023
+###  Публикация: 1680452   (134266) от 29.11.2023
 
-VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Miethig - Spiritual Energy (Extended Mix) [6:25]
-02. Sergey Salekhov & Andrew Mirt - Diamond (Extended Mix) [6:58]
-03. Claus Backslash - Spiritual Elements (Extended Mix) [6:39]
-04. Skyvol & DJoy - Inverse (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B8034F76BA7D9283E242E80CA549E752FB54E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682603   (129810) от 09.12.2023
-
-Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter [00:05:37]
-02. Alleys Of Your Mind [00:03:32]
-03. Industrial Lines [00:06:13]
-04. The Line [00:05:01](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682845   (129804) от 09.12.2023
-
-Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Journey's End (Extended Mix) [6:26]
-02. Talla 2XLC & Gid Sedgwick - Destined From The Start [6:19]
-03. DJ Sakin & Talla 2XLC - Nomansland (David's Song) (Extended Mix) [6:54]
-04. Pulsedriver - Cambodia (Talla 2XLC Extended Vocal Mix) [6:37](   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90D88808167AA255D7C20A23A35089F2302E6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306731   (129667) от 10.12.2023
-
-Oliver Koletzki - 7 альбомов (2007 - 2023) [FLAC|Lossless]<Tech House, Deep House, Electropop, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ElectropopПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8FD43CEDBB68DFDDD81AEAA6644FFEE1D48392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525514   (129618) от 20.01.2022
-
-Meteora - Gradients III Lights In The Sky (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiery Rainbow (12:11)
-02. Wake Turbulence (10:53)
-03. Rain On The River (1:34)
-04. Lights In The Sky (6:33)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E738083CDE85FF4EEAF36524AD3A65BF13F94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525328   (129558) от 20.01.2022
-
-Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of the Path (3:12)
-02. Arctic Flight (11:00)
-03. Whiteout (7:03)
-04. Polar Expedition Part 1 (2:27)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBB5F0F6414F22D80C3F815C1010E0BA329F544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525511   (129543) от 20.01.2022
-
-Meteora - Gradients II Westerlies (2016) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyclone Belt (8:22)
-02. Twisting Monster (6:58)
-03. Westerlies (6:50)
-04. Cataclysm (9:02)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6B0E18EB63B5EA1A64D931D6EE17AD45B547F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525508   (129541) от 20.01.2022
-
-Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Storm Warning (9:34)
-02. Through The Clouds (7:27)
-03. Heaven And Eternity (2:37)
-04. Gradients (9:27)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1983B42DBFE8EE8BD5A854897A42F7670B6A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525147   (129522) от 20.01.2022
-
-VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Skysurfer - Chill to the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Sylvan Bliss (06:05)
-02. Michael E - When Eyes Speak (feat Diego Porchile) (05:21)
-03. Matt Sour - Longing For The Sea (04:05)
-04. Simon Le Grec - Sibir (radio mix) (04:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:16
+01. Circling Elements (Down by the Sea Mix) (Feat. Lovay)
+02. Eclipse of the Sun (Dreamwaver Mix)
+03.  Take Your Time (Full Relaxed Mix)
+04. Impressions (Wellguitar Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE5DE18DE6D207C026639A359C019018E82661D9
+magnet:?xt=urn:btih:7442EE7CFE9DAE866077F8BDE148330976BD8A60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +201,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525750   (129335) от 21.01.2022
+###  Публикация: 1679051   (134181) от 29.11.2023
 
-Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Downtempo, Experimental>
+Infected Mushroom - Part of the Dream (2023) [MP3|320 Kbps] <Psy-Trance, Electro-House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infected Mushroom & Skazi - I Wish (Skazi edit) 04:48
+2. Omiki, Skazi & Lynn - Stay 03:40 (radio edit)
+3. Vini Vici - Damage 02:57 (radio edit)
+4. Blazy & Kathy Brauer - Hologram 07:39(   Читать дальше...   )Жанр: Psy-Trance, Electro-HouseПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA346AB53615DDBB44B215689F369BB291CA7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680725   (133839) от 30.11.2023
+
+Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, dark ambient, neoclassic>
 
 >>Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tanß (5:41)
- 02. Interval Signal (6:23)
- 03. Night Shift (6:03)
- 04. Formanta (4:10)(   Читать дальше...   )Жанр: Ambient, Techno, Downtempo, ExperimentalПродолжительность: 00:56:31
+01. Life Is A Straight Way To Death [00:02:01]
+02. Echoes Of Departed Souls [00:04:39]
+03. Imminence [00:03:20]
+04. Masks Of Death Under The Gleam Of A Burning Sun [00:04:30](   Читать дальше...   )Жанр: Ambient, dark-ambient, neoclassicПродолжительность: 00:24:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80196170024458286B78D81DC8885FDE1EE6D6C6
+magnet:?xt=urn:btih:B2FA51F375D92802EED625A96D517490E56EC425
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,57 +259,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525739   (129186) от 21.01.2022
+###  Публикация: 594424   (133764) от 26.12.2012
 
-VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
-02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
-03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
-04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824137   (128982) от 14.10.2025
-
-VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, House, Electro>
+VA - Housepital's Secret Club Weapons Vol.1 (2012) [MP3|320 кб/с]<Funky, Club House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Salvatore Mancuso & Max Niklas - The Tide Is High 02:25
-02. Jens O., Spacekid & Barbaros - Derb (Jens O. & Spacekid Mix) 03:26
-03. Brooklyn Bounce - Loud & Proud (Indecent Noise & Ontune Remix Edit) 03:15
-04. Special D., Toby Gad & Andy Judge - All Of Me 02:37(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:56:39
+01. Adam Burn - Morphine
+02. Nopopstar - Shakes Yeah
+03. Christian Arenas - Out of Line - Martin Dhamen Remix
+04. Nestor Delano - One and Only - Junior Faria Remix
+05. Wow & Flute - This Goes Out! - Adrian Funk Remix
+06. Baramuda - Fiesta en Paris
+07. ST. ELM8 - Timezone
+08. Andy Leka - Eclipse
+09. Sound Blast Stereo - Bassa
+10. Blacktron - 32 Km - Lucas & Steve Remix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:34:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03184B873A0A2904F37E2AC17B8D5CFD3C5C32EF
+magnet:?xt=urn:btih:23584F8A73FC8BB0FC444114CF793957BEFEDEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +294,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824135   (128969) от 14.10.2025
+###  Публикация: 1680934   (133415) от 01.12.2023
 
-VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+VA - Pop Ambient 2024 (2023) [MP3|320 Kbps] <Electronic, Ambient, Pop>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. T.Raumschmiere - Eterna 2
+2. Mikkel Metal - Octarine
+3. Yui Onodera - Cromo 7
+4. Blank Gloss - Weedless Hook(   Читать дальше...   )Жанр: Electronic, Ambient, PopПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34662F9F840525552100CF8013BE9F068F45F023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408513   (133228) от 27.12.2012
+
+VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup & Denver Knoesen - Another Day (Anders Ponsaing Remix) 07:21
-02. Chris Le Blanc, Roberto Sol, Karmaloft & Rana - Labyrinth Of Life (Christos Fourkis Remix) 05:30
-03. The Boogeyman - Porto Covo (Original Mix) 05:00
-04. Pjr Peter Rooke - Você Amanhã É Da Música 06:14(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:15:38
+01. Damcase - Sunset Blvd (Tsiridis Post Accademy Mix) (06:41)
+02. Drehwerk - Mecca Calling (08:55)
+03. Echonomist - The All Together (06:48)
+04. Eddie Zarook - Bang Bang (06:41)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:41:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8368E75B6AB3F19983E8C1A129F75142418323BB
+magnet:?xt=urn:btih:389280BB12E6D844D4BF56EC4F89874A8F62D11A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,144 +352,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824120   (128968) от 14.10.2025
+###  Публикация: 1681129   (133139) от 02.12.2023
 
-VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Tranquility (Extended Mix) [6:05]
-02. Sons Of Maria - Bohemian World (Extended Mix) [4:54]
-03. Animal Trainer - Come Around (Black Circle & Reezna Extended Remix) [6:40]
-04. Danny Wade - GATU (Extended Mix) [7:02](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2D67CC7D2BBB0BB10196845C2E8384DE7369F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824296   (128940) от 14.10.2025
-
-VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Evan Cortez - A Night in Rome (04:18)
- 02 - Lofi Village - Another Love (03:20)
- 03 - Ingo Herrmann - Nature View (02:41)
- 04 - Twen T4 - Dana's Hill (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683023   (128765) от 10.12.2023
-
-VA - A State of Trance Year Mix 2023 (Mixed by Armin van Buuren) (2023) [FLAC|Lossless|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128765.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren – Am I AI? (A State of Trance Year Mix 2023 Intro) (Mixed) (02:33)
-002. Gareth Emery feat. Maria Lynn - Missing You (Mixed) (02:03)
-003. Above & Beyond - 500 (Mixed) (00:44)
-004. Armin van Buuren feat. Anne Gudrun - Love Is A Drug (Mixed) (0:59)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346055AE1CF8757B765AF390BFBE36D38BE42ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681877   (128754) от 10.12.2023
-
-VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel One & Justin Prins - Sirens (Extended Mix) [6:15]
-02. Chasing Kurt - Let It Run (Momo Khani & Meindel Remake) [4:57]
-03. Milk & Sugar - Has Your Man Got Soul (Chasing Kurt Remix) [4:26]
-04. Karol XVII & MB Valence ft. Lazarusman - Whispers (2022 Retouch) [4:49](   Читать дальше...   )Жанр: Funky/Club HouseПродолжительность: 02:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2CC3C4E5A3143EF842A0327418C7DFC891EA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683150   (128706) от 10.12.2023
-
-Markus Schulz - Global DJ Broadcast World Tour: Open to Close Solo Set, Stereo Montreal, Canada (2023-12-07) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search Of Sunrise 19 Release Special (2023-11-30) [MP3|320 Kbps] <Progressive House, Trance, Techno>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Markus Schulz (Recorded Live from Stereo in Montreal - October 8 2023)
-01. Mike EFEX - Orbiter
-02. Markus Schulz presents Dakota - Kanan
-03. Wehbba - Basic Pleasure(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:00:45
+01. Markus Schulz - Summer of '99 (from In Search of Sunrise 19)
+02. Anske - Heavenly Cake
+03. OCATA - Welcome to the Awakening
+04. Ben Bohmer - After EarthЖанр: Progressive House, Trance, TechnoПродолжительность: 01:59:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD9FB9BCE7AA51390F8D3FCF0C0F7B4D5530C811
+magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +381,376 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682738   (128700) от 10.12.2023
+###  Публикация: 1681071   (133127) от 02.12.2023
 
-Alison Goldfrapp - The Love Reinvention (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie-pop, Synthpop>
+VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. NeverStop [00:04:34]
-02. Love Invention [00:04:19]
-03. Digging Deeper Now [00:04:16]
-04. In Electric Blue [00:03:19](   Читать дальше...   )Жанр: Indie-pop, SynthpopПродолжительность: 2 CD, 02:35:07
+01. Zack Martino - Kill My Heart (Evoxel & Antrex Remix)
+02. Ferry Corsten & Diandra Faye - Stay Awake
+03. Alex Sonata & TheRio - Feels Like Home
+04. Ruben de Ronde & Farius & David Frank - Radiant(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6EB41CCE1ED55D8F87516EA13971C5395CBC2CE
+magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681416   (133125) от 02.12.2023
+
+VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov & Dmitry Chelnokov with Sharon Valerona - Live Without You (Extended Mix) [4:21]
+02. Anton By - ILUMC (Extended Mix) [5:01]
+03. KayZen - Heaven (Extended Mix) [4:26]
+04. TLUXX - Forever Together (Extended Mix) [5:52](   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1111C150D8ADD53CD92B0CC998A41AACCB83A2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681398   (133119) от 02.12.2023
+
+VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & NoMosk & Christina Novelli - Lost Soul (Extended Full Fire Mix) [6:14]
+02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+03. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
+04. Roman Messer & Six Mists & Jaki Nelson - Just Be You (Extended Mix) [6:23](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9BF95B8ADA3B8EE138F8E3DFB00CD5C98850881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681244   (133109) от 02.12.2023
+
+VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Dresden - Should In (Original Mix) [02:50]
+02. Danny Vegas - Naturally (Original Mix) [02:56]
+03. Madison Holmes - Back In Time (Original Mix) [02:44]
+04. Ellise Morgan - Tell That You Love Me (Original Mix) [02:57](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9E9D0F56003ABC0411A13006C0B0BB4A8D5AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681070   (133101) от 02.12.2023
+
+VA - Blissful Journey: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Off (Original Mix) (4:10)
+02. Michael E - Lost in Thought (Original Mix) (5:18)
+03. Matt Sour - Confession (4:09)
+04. Beamy - Angel (4:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C543F937D36EDDA2F83F2480505016E401DEE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681237   (133099) от 02.12.2023
+
+VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Clarke - Stayin Forever (Original Mix) [02:45]
+02. Floating Brothers - I Remember (Original Mix) [02:38]
+03. David Thompson - Crash Dance (Original Mix) [03:20]
+04. Sean Newman - Emptiness (Original Mix) [03:05](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C567DB424ADF9FAE915B826095CEA1E5BB54D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681274   (133093) от 02.12.2023
+
+Rein - God Is A Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro-Industrial, Synth Punk>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How's It Gonna Be? [00:03:12]
+02. Mutual Satisfaction [00:03:11]
+03. Kiss You Goodbye [00:04:02]
+04. Snakes [00:04:08](   Читать дальше...   )Жанр: EBM, Electro-Industrial, Synth PunkПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27AA38674CD90970CC88D5C73E789C427974C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681263   (133089) от 02.12.2023
+
+GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:18]
+02. Chess [00:03:07]
+03. Dirty Pain [00:03:58]
+04. Broken Destiny [00:03:11](   Читать дальше...   )Жанр: Dark-Electro, EBM, IndustrialПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAD702A38DCA1B3AB6F9685FCF915CEA9D5C520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681138   (133080) от 02.12.2023
+
+Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Come Back (Evolution Extended Edit) [4:14]
+02. Chicane & Ferry Corsten feat. Christian Burns - One Thousand Suns (Extended Edit) [5:09]
+03. Chicane - Hiding All The Stars (Evolution Extended Edit) [4:45]
+04. Chicane - No Ordinary Morning (Edit) [5:09](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3141CDAF30B3483A6A4D49D25969B060606FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681258   (133060) от 02.12.2023
+
+Blank & Jones - Chilltronica EP 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Things You Said (Chilltronica)
+02. WYB (Chilltronica)
+03. Freelove (Chilltronica)
+04. LonelinessЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9DFE203F4F8040417D75808BC6E51B8E942726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681140   (133028) от 02.12.2023
+
+Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piero Pirupa - Change Your Mind (Korolova Remix)
+02. ID - ID
+03. ARTBAT - Remember
+04. ID - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C7749E56E17739637F856F428E8108B1E93558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681092   (133018) от 02.12.2023
+
+VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Extended Remix) [5:40]
+02. Three Drives On A Vinyl feat. Three Drives - Greece 2000 (KREAM Extended Remix) [4:27]
+03. Afro Medusa - Pasilda (Sunnery James & Ryan Marciano Extended Remix) [3:33]
+04. Gadjo - I'm Watching You (So Many Times) (Bruno Furlan Extended Remix) (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11DA8FD0F1523702D3A88CD4FAC8D685E9E07E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681251   (133012) от 02.12.2023
+
+Chicane - The Greatest Misses (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back (Evolution Edit)
+02. One Thousand Suns (Edit) (feat. Ferry Corsten & Christian Burns)
+03. Hiding All The Stars (Evolution Edit)
+04. No Ordinary Morning (Edit)(   Читать дальше...   )Жанр: Trance, House, AmbientПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B46BCF5A66B283F744E10E41965AA44BB461EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

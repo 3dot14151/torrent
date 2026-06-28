@@ -1,3 +1,116 @@
+###  Публикация: 1357487   (973078) от 04.02.2020
+
+London Boys - Playlist: The Best of London Boys (2016) Compilation [FLAC|Lossless|WEB-DL|tracks] <EuroDisco, EuroPop, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem (4:18)
+ 02. London Nights (4:02)
+ 03. Harlem Desire (3:46)
+ 04. My Love (3:05)(   Читать дальше...   )Жанр: EuroDisco, EuroPop, 80sПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2298AEC7F5D5BADC4C1DBEA288F06F5AF0EEBC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975605   (971932) от 15.01.2016
+
+Dimitri From Paris - Night Dubbin' (2009) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Winans - Let My People Go (dub version) (6:38)
+02. Third World - One More Time (dub) (6:24)
+03. Wuf Ticket - The Key (dub) (8:34)
+04. Lenny White - My Turn to Love You (dub) (6:38)(   Читать дальше...   )Жанр: Dub, DiscoПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617710   (971737) от 12.02.2013
+
+C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975992   (970760) от 16.01.2016
+
+VA - Disco Fever (2001) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That's The Way I Like It (3:05)
+02. Donna Summer - I Feel Love (Full Length Version) (5:52)
+03. Fatback Band, The - (Are You Ready) Do The Bus Stop (3:16)
+04. Detroit Emeralds - Feel The Need In Me (3:41)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5BE0C29198F391EE54D2C1007019BE863E55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358038   (970460) от 06.02.2020
 
 Modern Talking - The 1st Album (1985) [FLAC|Lossless]<Disco>
@@ -637,122 +750,6 @@ VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE0A57EE072BED95404B675C6ECD1DE7922506E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366811   (918882) от 14.03.2020
-
-Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Carnival Is Over
-02. El Lute
-03. Somewhere In The World
-04. Where Did You Go(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8043837D2458EBB9322E94B7D656F9CCA6E3A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989115   (918806) от 21.02.2016
-
-Arabesque - The Magic of Arabesque (2016) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey 3:28
-02. Someone Is Waiting For You 4:04
-03. Six Times A Day 3:12
-04. Buggy Boy 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A540F5AE683FA043709B56770471A0CE0A99B3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367345   (917227) от 15.03.2020
-
-VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love’s Theme - Love Unlimited Orchestra [3:35]
- 2. Dancing Machine - The Jackson 5 [2:42]
- 3. Rock the Boat - The Hues Corporation [3:09]
- 4. Honeybee - Gloria Gaynor [3:45](   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 04:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 64935   (914925) от 22.08.2021
-
-Alphaville - First Harvest  The Best Of Alphaville 1984-1992 (2003) [APE]
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big In Japan
-02. Sounds Like A Melody
-03. Sensations
-04. The Mysteries of Love(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FAA322E5711D24438A0FCBDDC448DCBCDFA274
 ```
 
 https://mybot314.ru/tekegram_catalog/

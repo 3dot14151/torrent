@@ -1,3 +1,177 @@
+###  Публикация: 1498957   (237525) от 14.10.2021
+
+VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Listening, Lounge, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Therese - When You Come Home (4:23)
+02. Nightzoom - So Much (Short Plugged Vocal Remix) (3:08)
+03. The Compunist - Deep Funk (4:49)
+04. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497395   (237514) от 14.10.2021
+
+VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - A World of Beauty (4:49)
+02. Buddhatronic - Back to the Beginning (4:18)
+03. Aqualuna - Electric Cloud (4:00)
+04. For Found Future - Bees of the Wonderland (4:01)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DBF7EACAD6A0144BA315DC18871453C43ECCDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502302   (237507) от 14.10.2021
+
+VA - Urban House Grooves, Vol. 2 (2021) [AAC|~323 Kbps] <House, Progressive House, Club House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldera - Not Fidel (Edit) (3:22)
+02. Jag, Yuji Ono - Remind Me (Original Mix) (5:51)
+03. Congotronik, Maria Jap - El Mata Mara (Original Mix) (5:00)
+04. MiCON (UK) - The Gate (Original Mix) (6:54)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 02:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0FCB9152B47CE6DBEE90ACA705DFCB78AAC062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502300   (237498) от 14.10.2021
+
+VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive House, Club House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Victorio - Arpège (House and Glitter Mix) (2:40)
+02. YNOT, Francesco Diaz - Spread Love (Trilllion Radio Edit) (3:33)
+03. Sordid Soundz, Chris Marina - Get Ready (Original Mix) (6:29)
+04. Fijin, Nessa - The One (Sovi Remix) (4:58)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5D56466E8633193D009585B6C3C00F3D4AF4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499724   (237490) от 14.10.2021
+
+Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В тёмную воду. Intro (3:40)
+02. Никого не останется (4:20)
+03. Вьюгина ты дочь (5:33)
+04. Сам с собой (4:46)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499027   (237478) от 14.10.2021
+
+VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Easy Listening, Lounge, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiozoom - Lounge Girl (4:37)
+02. Soundset City - Bar Nights (3:31)
+03. Soundset City - Lounge (Sun Is Shining Mix) (3:52)
+04. CiYou - Merge Of Delays (2:03)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274AC542A9821133731A009D5300B6A0E2DB7288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498988   (237459) от 14.10.2021
 
 VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 3 (2017) [AAC|~309 Kbps] <Easy Listening, Lounge, Nu Jazz>
@@ -571,180 +745,6 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 1 (2020) [AAC|~326 Kbps] <Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57494F3FF0D9C4E21635F9D3ED9A66FB24AD85D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505847   (236488) от 28.10.2021
-
-VA - Sun Shiners by Smooth Deluxe, Vol. 4 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fenena Garcia Mijas - Sleeping Beauty (6:00)
-02. 351 Lake Shore Drive, Genius Jane - Time (5:09)
-03. Aiemo, Martha - Only Illusion (3:44)
-04. Yantra Mantra - Blaze and Glory (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53E07499FDD458EDAD4110B2BE886F79F444F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505599   (236475) от 28.10.2021
-
-VA - Mystic Chill, vol. 1 (2014) [AAC|~331 Kbps] <Psychill, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kayatma - Anthem Of Space (Original Mix) (7:05)
-02. Dhamika - Ayurveda (Original Mix) (5:58)
-03. Kanc Cover - Sirius A (Original Mix) (8:59)
-04. Chilled C'quence - Beyond (Original Mix) (10:42)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6A08C321F6EB9BC59B789DC872E31E3BF63CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505902   (236362) от 29.10.2021
-
-Hazell Dean - The Dean & Ware Collection, Vol. 2 (2021) [AAC|~313 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgement Day (5:30)
-02. Nightlife (4:07)
-03. Out of Control (6:27)
-04. Whatever I Do (Wherever I Go) (5:51)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035A590B2F1DBB00BC31F8031B3CA2A49A923B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505890   (236356) от 29.10.2021
-
-VA - Chillout Orange, Vol. 3: Relaxing Chillout Vibes (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Seling - Run Away (3:41)
-02. Simply Chill - Here Comes the Rain Again (5:20)
-03. Magmatunes - A Place to Be (4:11)
-04. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BF0342B901A98D8C0EF4EFD24404D7E293868A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506071   (236335) от 30.10.2021
-
-VA - Late Night Lounge Music (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigrun II - Murky Water (5:57)
-02. Jagel - Enlightened (5:53)
-03. El Nicoya - Tropicaliente (5:40)
-04. Vakanzregel - Forest Tales (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34A3631AE5049783FE51EAB43455AFBEE7A29FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510262   (236258) от 16.11.2021
-
-VA - Ibiza Sundown Chillout (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigrun II - Murky Water (5:57)
-02. Jagel - Enlightened (5:53)
-03. Sammelsurium - Albatrosses (5:27)
-04. Naturmentoring - Recurrent Processes (6:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B22AF21145EADB8B8555E6C952845D2F1375D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

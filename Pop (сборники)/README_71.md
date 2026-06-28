@@ -1,90 +1,3 @@
-###  Публикация: 1303130   (576460) от 19.05.2019
-
-VA - German Top 100 Single Charts 24.05.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juju - Vermissen (feat. Henning May)
-002. Shindy - Nautilus
-003. Ed Sheeran & Justin Bieber - I Don't Care
-004. Lil Nas X - Old Town Road(   Читать дальше...   )Жанр: PopПродолжительность: 05:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC1F0E3EA2DD878DF9FC6AA4694C70BD2D640EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042630   (576449) от 14.08.2016
-
-VA - Europa Plus №5 50х50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576449.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elefunt's Groove - На Одной Волне
-002. Алиса Кожикина - Мы Вместе
-003. Джокеры - Параллели
-004. Слава - 2 Л 2 Ю(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9983F6CFE17FA63ABD7859A8568227DC3131554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302919   (575637) от 19.05.2019
-
-VA - Shazam Хит-парад Russia Top 200 Май (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575637.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billie Eilish - Bad Guy 3:14
-002. Aaron Smith feat. Luvli - Dancin (Krono Remix) 3:17
-003. Ilkay Sencan - Do It 3:51
-004. Havana feat. Yaar - I Lost You 3:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06715D10546FCB93CDEA02439C029BBC176BD35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361988   (575124) от 11.07.2011
 
 VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
@@ -739,6 +652,102 @@ VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A14181988DF59ECE5FBEEE2045C70E5A48650EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362352   (571542) от 13.07.2011
+
+VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8D702AB2E7D5B476AC67F5E307E6410E434BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528733   (571294) от 29.07.2012
+
+VA - Летняя улетная вечеринка (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MiXi - До Рассвета (DJ VAL Remix)
+ 02. Ирина Билык И Ольга Горбачева - Не Ревную
+ 03. MaXimA - Алло (Fidel Wicked mix)
+ 04. Женя Вилль feat. Van Lider - Ты Для Меня
+ 05. Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (EU Radio Edit)
+ 06. Фабрика - Зацелую
+ 07. Jennifer Lopez feat. Pitbull - Dance Again
+ 08. Иракли - Ты Одна
+ 09. Milena & MaXimA - Города
+ 10. Virus - Sekrety (Club Mix)Жанр: PopПродолжительность: 05:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB1E7103550A0273E50191C184040212FB25ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528716   (571048) от 29.07.2012
+
+VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Джиган (Geegun) - Поиграем В Любовь
+ 02 Ольга Lucky - Последний Поцелуй
+ 03 Денис Майданов Feat. Филипп Киркоров - Стеклянная Любовь
+ 04 Катя Чехова - Новая Я
+ 05 Никита - Танец В Темноте (Dance Remix 2012)
+ 06 Дискотека Авария - Недетское Время (Alex Neo Remix)
+ 07 Лавика - Осень Это Я (Dj Melloffon Radio Edit)
+ 08 Алиби - 5 Элемент
+ 09 Наталья Пугачева - Разлюбила
+ 10 G-Nise & Алексей Кабанов Feat. Dj Half - Наше ЛетоЖанр: PopПродолжительность: 05:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9992B071FFC534106E660D9C0291E058357B39EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

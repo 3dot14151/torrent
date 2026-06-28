@@ -1,3 +1,119 @@
+###  Публикация: 1635133   (242049) от 24.05.2023
+
+Marty Stuart And His Fabulous Superlatives - Altitude (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Byrd Space Train (Scene 1) (2:18)
+02. Country Star (3:06)
+03. Sitting Alone (2:54)
+04. A Friend Of Mine (3:48)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92320F8EABA778252C89B05695EBBEE75311CD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108554   (242016) от 25.02.2017
+
+John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sable Lake (00:05:51)
+02. Gentle Smile (00:06:41)
+03. De-Stress (00:04:57)
+04. Dusk (00:05:55)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C39A855FA21504E42CEF9614DD562271975DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624964   (241449) от 11.04.2023
+
+Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Altamar, Punales [04:47]
+02. Inerte [03:58]
+03. La Senda de Enfrente [02:44]
+04. No Sabe Perder [04:54](   Читать дальше...   )Жанр: Native American, Rock, WorldПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D5B0AE4946DD078D2115D7AE8318B769F8E595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119559   (241208) от 29.03.2017
+
+VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|320 Kbps] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Goze – Take a Breath – Main
+ 02. Yves Touati – Celtic Dream
+ 03. Adam Fielding – Going Home
+ 04. Christophe Lebled – Flying Clouds – Main(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120749   (241061) от 02.04.2017
 
 Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
@@ -626,122 +742,6 @@ Dropkick Murphys - Turn Up That Dial (2021) Expanded Version [FLAC 2.0|96/44.1/2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC93A596AF8747042F33EABBE4E69CBD97230BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279928   (234170) от 20.05.2022
-
-Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Promenade (5:51)
- 02. To The Unknown Man (5:15)
- 03. Movement 9, Mythodea (3:49)
- 04. Moonlight Reflections (3:11)(   Читать дальше...   )Жанр: Electronic, New Age, ClassicalПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EA1555EE110D1A8C0965206D087FA322C16AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278756   (234118) от 20.05.2022
-
-Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossover>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Promenade (05:51)
-02. To the Unknown Man (05:14)
-03. Irina Valentinova – Mythodea - Movement 9 (03:48)
-04. Moonlight Reflections (03:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C4FC8B31D27B9F6B7E28049B90CB3C5B49BCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633781   (233762) от 18.05.2023
-
-VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RIOPY - Meditation (4:55)
-02. Matteo Myderwyk - Pastorale (2:04)
-03. Carlos Cipa - Sonata Fragment (3:28)
-04. Bertrand Chamayou - 5 Lieder, Op. 49 No. 4, Wiegenlied (Transcr. Reger) (1:41)(   Читать дальше...   )Жанр: Meditation, PianoПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634325   (233688) от 19.05.2023
-
-J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [FLAC|Lossless|tracks + .cue] <New Age, Healing, Chant>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. El De'ot YHWH
-03. Y-H-W-H Echad
-04. Y-H-W-H Elohekha Esh'oklah(   Читать дальше...   )Жанр: New Age, Healing, ChantПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
 ```
 
 https://mybot314.ru/tekegram_catalog/

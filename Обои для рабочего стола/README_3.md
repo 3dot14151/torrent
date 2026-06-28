@@ -1,3 +1,29 @@
+###  Публикация: 613905   (982888) от 04.02.2013
+
+Wallpapers - 500 Anime Wallpapers 1920x1080 part-1 [JPEG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982888.jpg" />
+</div>
+
+
+###  Подробнее
+
+500 Anime Wallpapers 1920x1080 part-1.Разрешение файлов: 1920x1080Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE67CC1C33D8E2E3DED2C320D378801478031BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613868   (982604) от 04.02.2013
 
 Картинки - 500 Anime Wallpapers 1920x1080 [JPEG]
@@ -664,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCC98318BF53646C9288757F5795ED490E8F276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975033   (974467) от 13.01.2016
-
-Обои - Сборник обоев. Фрукты и ягоды. 1920x1080 - 50 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка качественных фруктовых и ягодных обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093981FA2F199EC8AF993D040D929F1AA58B2CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

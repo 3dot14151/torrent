@@ -1,3 +1,177 @@
+###  Публикация: 1524929   (130302) от 18.01.2022
+
+VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Logophilia - Surfaces (6:03)
+03. Ace Of Duty - Prerogatives (6:13)
+04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524736   (130298) от 18.01.2022
+
+Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salama (7:12)
+02. Piccolo Violino (7:32)
+03. Salama (Stephane Salerno Remix) (8:10)
+04. Salama (El Sonido Project Remix) (7:40)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E6952907AEEA2214C83CB4013134961A684834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524775   (130292) от 18.01.2022
+
+VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francois Maugame - Ocean (6:04)
+02. Yu Namikoshi - Sencitive (2:36)
+03. Ann Grace - From The Deep (5:41)
+04. Mark Dwane - Codex (8:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDA4439A5916D4AE7C4C2C04570EED934C35450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524912   (130279) от 18.01.2022
+
+VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ackeret - Unofficial Meeting (6:03)
+02. Pique Dame - Souvenir de Bordeaux (6:14)
+03. Aqua Mundi - Chuchaqui (5:47)
+04. Kieloval - Space Thoughts (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C167E0B8AC20E357D631465846777D39BC03AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524773   (130278) от 18.01.2022
+
+Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saraswathi Devi Sloka (3:36)
+02. Bolo Krishna (3:57)
+03. Om Namo Bhagavate Vasudevaya (4:52)
+04. Surya Narayana Dandakam (5:03)(   Читать дальше...   )Жанр: Folk, EDMПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFB2B6082809A5E0824F99F223FD4E7DFC40356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524865   (130277) от 18.01.2022
+
+VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mare et Monti - Sans Soucis (5:43)
+02. Jean Mare - Dandelons in Space (Deep Flow Ambient Lounge Mix) (7:21)
+03. The Compunist - Arrived on Mars (3:57)
+04. Lightson - One (Mystic Indian Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D8B7A0EA540CC9E4483E4B3E88930F1BDB080B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524861   (130276) от 18.01.2022
 
 For Found Future - Ambient Story (An Electronic Downbeat Journey from Chill to Lounge) (2016) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
@@ -571,180 +745,6 @@ VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D928D1F9D6E0E22215B82293F9762DDE2AAE91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525415   (129512) от 20.01.2022
-
-VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Omar - Dile (3:27)
-02. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
-03. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)
-04. Cali Y El Dandee - Ay Corazón (3:10)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525362   (129508) от 20.01.2022
-
-VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luc Forlorn - Love Hope (6:49)
-02. Remundo - Zone Desert (3:38)
-03. Dr. Beat - D melo (4:05)
-04. Mr. Groove - You Can t Stop Me (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C13C2B3284BAEC06BF6C2A96E6ED2FC527ADA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525422   (129505) от 20.01.2022
-
-VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kieloval - Space Thoughts (5:53)
-02. Pique Dame - Souvenir de Bordeaux (6:14)
-03. Ackeret - Unofficial Meeting (6:03)
-04. Duenec - Innuendo (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC67F0DB42F69DE2FC87FF77DD19AEBE06AE070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525417   (129496) от 20.01.2022
-
-VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
-02. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
-03. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)
-04. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525370   (129494) от 20.01.2022
-
-VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Koletzki - Get on the Bus (3:45)
-02. Deorbiting - Ocean Drive Miami 84 (7:00)
-03. Deer Jade - Perfect Place Perfect Time (5:43)
-04. Daniel Rateuke - Godana (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525425   (129490) от 20.01.2022
-
-VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo, Soulfull House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matthew Daniel, Lina Loi - Joy (Alternative Version) (3:00)
-02. Svendaq - Sweep Melodies (Original Mix) (4:18)
-03. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)
-04. Stepo Del Sol - Paris at Night (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, Soulfull HouseПродолжительность: 02:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1808647   (64944) от 25.07.2025
+
+Tomoyasu Hotei - Compilation (1988-2025) [MP3|320 Kbps] <Rock, Miscellaneous>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Battle Without Honor Or Humanity (OST Shin Jinginaki Tatakai | 2000)
+002. Doberman (Doberman | 2003)
+003. Frozen Memories (Electric Samurai | 2004)
+004. Medusa (New Beginnings | 2014)(   Читать дальше...   )Жанр: Rock, MiscellaneousПродолжительность: 08:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9048FCEF53FC8CA084FB119EF3049B4BE4D8C70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808775   (64847) от 27.07.2025
+
+Joe Lynn Turner - Voice Of Rock - Compilation (1977-2025) [MP3|320 Kbps] <Hard rock, Art rock, Glam metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Your Heart (& Vitalij Kuprij) (Revenge | 2007)
+02. Hellraiser (Bat Head Soup-A Tribute To Ozzy | 2000)
+03. Down & Dirty (& Akira Kajiyama) (Fire Without Flame | 2006)
+04. Mirror Mirror (& Def Leppard & Icarus Witch) (Songs For The Lost | 2007)(   Читать дальше...   )Жанр: Hard rock, Art rock, Glam metalПродолжительность: 20:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E22E419685EA118E6BE8F90D5FFA6AA0C94C070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707632   (62637) от 17.03.2024
+
+VA - Rock & Blues Rock compilation part 65 (2024) [MP3|320 Kbps] <Rock & Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trixie Whitley - Pieces
+02. Medicine Head - Alibi
+03. Geordie - Little Boy
+04. Trixie Whitley - Closer(   Читать дальше...   )Жанр: Rock & Blues RockПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710507   (61605) от 27.03.2024
+
+VA - Russian Indie (2024) [MP3|320 Kbps] <Rock, Alternative Rock, Indie Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mitya - переживу (03:23)
+002. Лэривэйн - Шампанское (01:48)
+003. внимание брусника! - божья коровка (04:03)
+004. Сироткин - Silver Needle In The Sky (Cover) (03:04)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Indie RockПродолжительность: 10:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3D26112B6C7B72C5E748F5F49396C314956012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711918   (61099) от 01.04.2024
+
+VA - Russian Indie II (2024) [MP3|320 Kbps] <Rock, Alternative Rock, Indie Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обстоятельства - Радио «Ретро» (03:19)
+02. #ЗАЦВ - Пустота (02:44)
+03. Beautiful Boys - Падает, падает, падает белый снег (03:40)
+04. 130 по встречной на старенькой Vespa - Заговор экскурсоводов (02:54)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Indie RockПродолжительность: 02:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7541C9393E0C078E807D22DB1B1BF8CB46D1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714069   (60382) от 08.04.2024
+
+VA - Цой агент ЦРУ - Трибьют (2014) [MP3|320 Kbps] <Rock, Tribute>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. РОвнА - Когда-то ты был битником [03:25]
+02. Алеся Давыдова - Просто хочешь ты знать [03:57]
+03. Брем Стокер - Твой номер [02:16]
+04. Відстань - Красно-желтые дни [04:46](   Читать дальше...   )Жанр: Rock, TributeПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD23F3AED459F470199780C1C86A0B6CD4D3FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716798   (59301) от 18.04.2024
 
 Whitesnake - Collection (2024) [MP3|320 Kbps] <Rock>
@@ -572,180 +746,6 @@ VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655634DB373FA72E29BE91D1A72405EA34B4AC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756057   (39854) от 19.10.2024
-
-VA - Heavy Workout (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39854.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Limp Bizkit - Break Stuff (2:46)
-002. Slipknot - Psychosocial (4:43)
-003. Drowning Pool - Bodies (3:22)
-004. Mötley Crüe - Kickstart My Heart (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F537C76F23A5A86CE137F2A8E239E22742BE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756526   (39592) от 22.10.2024
-
-VA - Turn To Rock (2024) [MP3|320 Kbps] <Alternative, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39592.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Home Brewed Universe - Minimalist Consumerism - (03:30)
- 002. Silverstein - Sound Of The Sun - (03:20)
- 003. Corners - Lifemare - (04:21)
- 004. Vanden Plas - My Icarian Flight - (05:59)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 13:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68968E843C3C163E1BD5001E04D572A455452FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756996   (39268) от 25.10.2024
-
-VA - Invisible Strings (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anitta - Savage Funk
-002. Precious Pepala - Death Of The Party
-003. Bella Poarch - Don't Like Anybody
-004. Casso, Raye, D-Block Europe - Prada(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 10:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81860BD3C3630CD343B8EEABEADCF8B70DC8E153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758685   (38373) от 03.11.2024
-
-VA - The Echo Of The Heart Strings (2024) [MP3|320 Kbps] <Rock, Soft rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Santa Ana Winds - E.S.P
-002. Tina Turner - Private Dancer
-003. Frankie Valli - Sometimes Love Songs Make Me Cry
-004. America - Ventura Highway(   Читать дальше...   )Жанр: Rock, Soft rockПродолжительность: 09:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C9D681E6C52E4FD024269F96E8B97040820322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760253   (37400) от 13.11.2024
-
-VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37400.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Dreams - (04:18)
- 002. Maude Latour - Heaven - (03:01)
- 003. Why Bonnie - Wish On The Bone - (03:53)
- 004. America - Ventura Highway - (03:32)(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 11:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7DFACCFB0A4455D0DE798F8036694DE953393A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761635   (36578) от 21.11.2024
-
-VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Accept - Humanoid [04:35]
-002. Metallica - 72 Seasons [07:39]
-003. BABYMETAL, Tom Morello - METALI!! (feat. Tom Morello) [03:29]
-004. Megadeth - We’ll Be Back [04:30](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 11:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB02427F24F99DB6987E30AD7D78C01167EE33F
 ```
 
 https://mybot314.ru/tekegram_catalog/

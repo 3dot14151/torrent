@@ -1,3 +1,32 @@
+###  Публикация: 197410   (1030098) от 20.02.2021
+
+Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak [APE|Lossless|image + .cue] <Classical, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. Storm 			(03:45)
+02. Toccata And Fugue In D Minor(07:49)
+03. Sabre Dance 		(06:01)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 02:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412904   (1029932) от 21.02.2021
 
 The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|image + .cue] <Stage & Screen>
@@ -730,34 +759,6 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138362   (881573) от 05.04.2020
-
-Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Collection [FLAC|Lossless|tracks+.cue]<Field Recording>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Surf (72:29)
-
-Эта настоящая запись океана предлагает самое реалистическое воспроизводство настоящего прибоя. Нежные звуки набегающих волн на скалы, слушатель может представить будто он находится на береговой линии. Океанский прибой является бесконечным и возвышенным и, как гарантированно, обеспечит терапевтический, успокаивающийся эффект.Жанр: Field RecordingПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

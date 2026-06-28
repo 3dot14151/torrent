@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1878045   (1074425) от 
+
+Little Axe - Best of (1994-2017) [MP3|320 Kbps] <Modern Electric Blues, Dub, Funk>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Party
+02. Deep River
+03. Great Heroes
+04. Inspiration...(   Читать дальше...   )Жанр: Modern Electric Blues, Dub, FunkПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52485A3DE3AB6BD5A99C52BDEBCDA23F471D9406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868167   (1067294) от 29.04.2026
 
 VA - Jazz Pulsations (2026) [MP3|320 Kbps] <Jazz>
@@ -717,35 +746,6 @@ VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB58B39CB9F9FD8A939A03F439E409222017BE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844678   (1050422) от 28.12.2025
-
-VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Miz Tasha Cobb - Dust on the Wall
-02 - Velvet Ashes - The Most Beautiful Jaz
-03 - Ai - Still on the Road (A Farewell to Chris Rea)
-04 - Ai - I Call Your Name(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

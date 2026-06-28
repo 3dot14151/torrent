@@ -1,3 +1,119 @@
+###  Публикация: 33144   (375013) от 12.11.2012
+
+Music of the Shamans (Музыка шаманов)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Shamanic Way (Путь шамана) 18:50
+02 Forest Spirit (Дух леса) 12:27
+03 La Bruja de la Cura 11:31
+04 Rain Dance (Танец дождя) 9:38Жанр: Музыка шамановПродолжительность: 52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254365   (374945) от 13.10.2018
+
+Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovers Moon (5:04)
+02. Cafe Romantico (5:16)
+03. Rain Drops (5:03)
+04. Sweet Dreams (4:59)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947844   (374863) от 24.10.2015
+
+Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374863.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Adios Pampa Mia
+002 - El Choclo
+003 - Mi Buenos Aires Querido
+004 - Malevaje(   Читать дальше...   )Жанр: TangoПродолжительность: 04:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409BC030AC25D6C836116275267E7CA604D09B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175890   (374343) от 20.10.2017
+
+VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble Sleeping Music Universe - Astral Dreams
+02. Calm Music Masters Relaxation - Bath Before Bedtime
+03. Buddhist Meditation Music Set - Meaning of Motivation
+04. Zen Natural Sounds - Mind & Body(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A70FEE2344AE818D5A0A24572DB8B58C2BDB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069434   (373682) от 04.11.2016
 
 James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -623,122 +739,6 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327099   (366028) от 29.09.2019
-
-VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day In Paradise - Phil Collins  (3:46)
-02. Right Here Waiting – Richard Marx (3:22)
-03. Hey Jude - McCartney / Lennon  (3:43)
-04. I Just Died In Your Arms Tonight – Nicolas Eede (3:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153436   (365816) от 21.11.2009
-
-VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
-
-01. Fragrance of Water
-02. Fine Tea Is Like a Beauty(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327209   (365543) от 29.09.2019
-
-Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taron Egerton, Rachel Muldoon - Don't Go Breaking My Heart (Interlude) [01:34]
-02. Taron Egerton, Richard Madden (2) - Honky Cat [02:34]
-03. Taron Egerton - Pinball Wizard (Interlude) [02:02]
-04. Taron Egerton - Rocket Man [04:31](   Читать дальше...   )Жанр: Rock, Pop, Stage & ScreenПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951101   (365490) от 28.10.2015
-
-Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calypso [8:23]
-02. Calypso Part 2 [7:11]
-03. Calypso Part 3 [6:23]
-04. En Attendant Cousteau [46:46]Жанр: ElectronicПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C82A06414613A081F9BE6C25EF1AEBE733570A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

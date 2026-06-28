@@ -1,3 +1,32 @@
+###  Публикация: 1215579   (757933) от 26.03.2018
+
+Peru - 7 Studio Albums (1981-1993) [MP3|320 Kbps] <Electronic, Synth-pop, Ambient, Electro, Space>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757933.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Голландской электронной группы Peru началась в 1979 году вместе с Peter Kommers и Ruud van Es, давших названию группы первые слога своих имен. В ближайшее время в состав вошли: Rob Rapen и Jos van de Dungen. Три члена группы параллельно выходили под названием Nova, (так-же есть в клубе)Список альбомов:
+1981 - Constellations
+1981 - Macchu Picchu
+1983 - Continents(   Читать дальше...   )Жанр: Electronic, Synth-pop, Ambient, Electro, SpaceПродолжительность: 05:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC4A2D4DA9E316BB8980CA71F8100BE3EB3EEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395399   (755571) от 10.07.2020
 
 The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
@@ -716,35 +745,6 @@ Delpano Shock - Wired (2020) [MP3|320 Kbps] <Synthpop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A78D15D3B1D388A87F05CE5588ECCCCECE8A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131223   (708775) от 05.05.2017
-
-Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthquake
-02. Dystopia
-03. When Sirens Sing
-04. Razorblade(   Читать дальше...   )Жанр: Synthwave, Retrowave, Electronic RockПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0928DD6896F1EB03EA3E8CA9F5E7B435FB76EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

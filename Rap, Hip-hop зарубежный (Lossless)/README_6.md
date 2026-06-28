@@ -1,3 +1,61 @@
+###  Публикация: 606200   (47625) от 07.08.2024
+
+ТНМК (Танок на майдані Конго) - 13 Albums + 4 Специальных проекта + 25 Singles (1998-2024) [APE, FLAC|Lossless|tracks + .cue, image + .cue, tracks] <Hip-Hop, Rock, Jazz, Funk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1998 - Зроби мені хіп-хоп (Limited Edition) (2006)
+2001 - Неформат (Limited Edition) (2006)
+2004 - Пожежі міста Вавілон (2006)
+2005 - СилаЖанр: Hip-Hop, Rock, Jazz, FunkПродолжительность: 22:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B025BFB3E8046E957011F8E7FA0F97E244F7130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749152   (43693) от 13.09.2024
+
+Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edition [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Renaissance [1:39]
+02 - Habits [4:59]
+03 - Trouble [0:42]
+04 - Brand New Dance [3:27](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8237F9567556C6B30C1942A1A4A237A5068F2E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751215   (42607) от 23.09.2024
 
 VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>

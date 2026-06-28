@@ -1,3 +1,32 @@
+###  Публикация: 1413424   (385391) от 08.10.2020
+
+James Brown - Messing With The Blues , 2CD (1990) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like It Is, Like It Was (The Blues) (04:57)
+02. Don't Cry Baby (Undubbed Version) (03:01)
+03. Caldonia (Version 1) (02:55)
+04. Somebody Done Changed the Lock on My Door (Undubbed Version) (03:39)(   Читать дальше...   )Жанр: BluesПродолжительность: CD1,CD2  01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD3A7C5E15337B88B4F7717DE86C648C75EE7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253658   (381690) от 10.10.2018
 
 The Michelle Taylor Band - Dirty Love (2018) [MP3|320 Kbps] <Blues Rock, AOR>
@@ -716,35 +745,6 @@ Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B5A1F532357148A960A565BE8DC214430F71215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255354   (366040) от 17.10.2018
-
-VA - The Blues White Album (2002) [MP3|320 Kbps] <Blues, Cover>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Thackery & The Drivers - Why Don’t We Do It In The Road? [5:34]
-02. Lucky Peterson - Yer Blues [5.20]
-03. Anders Osborne - Happiness Is A Warm Gun [3:26]
-04. Kenny Neal, Lucky Peterson, Tab Benoit - Revolution [4:54](   Читать дальше...   )Жанр: Blues, CoverПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FE7B12EE0C6BD4AFB291A64B5989F9E30F83FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

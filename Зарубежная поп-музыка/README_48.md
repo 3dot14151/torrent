@@ -1,3 +1,32 @@
+###  Публикация: 936987   (492473) от 13.09.2015
+
+Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anchor (03:32)
+02. Return Policy (03:01)
+03. It Don't Get Better Than This (03:10)
+04. Blame (03:43)(   Читать дальше...   )Жанр: Country PopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4C97387E2272B80061AD959A0A348B1E54BE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936967   (492372) от 13.09.2015
 
 Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
@@ -716,35 +745,6 @@ VA - The Best Acoustic Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C105D9B5B2B23CD7C9088691DEBCE30C86AE4D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160356   (475854) от 24.08.2017
-
-Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [MP3|320 Kbps] <Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doesn't Really Matter
-02. Standing in the Dark
-03. Sad Sad Rain
-04. Take It From Me(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A0580E951BC62BA6DCC95FC2B616EE14CC8C4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1299001   (599903) от 01.05.2019
+
+American Education Publishing | The complete book of phonics (2003) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599903.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book emphasizes the key phonics skills that children need to know as they learn to become independent readers. Lessons involve children in the process of reading, writing, listening, and speaking. Children learn to recognize frequently occurring initial and final consonant sounds, and they are introduced to initial and medial short vowel sounds. Creative activities (   Читать дальше...   )Жанр: Учебное пособие, Для детей, Развитие речи, ЧтениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15EE039AA6C17168F40B07EC9AF91024401233D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299009   (599902) от 01.05.2019
 
 M. Zaorob, E. Chin | Games for Grammar Practice (2001) [PDF] [EN]
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01897774EB9CF31AB2106F76B5B76A9841E2DAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299929   (594838) от 04.05.2019
-
-Н.И. Шахова | Learn to read science: курс английского языка для аспирантов. Учебное пособие (2006) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой комплексный курс английского языка, направленный на развитие навыков чтения научной литературы на базе знаний, предусмотренных программой по английскому языку для неязыковых вузов. Курс рассчитан в первую очередь на специалистов в области точных и естественных наук, но может быть использован и в группах гуманитарного профиля. Пособие состоит (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5068AF69C4D5C853134011C5622D22401245C764
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1000841   (855416) от 27.03.2016
+
+Ivan Moravec, Josef Vlach - Mozart: Piano Concertos K. 449, 488, 503 (1998) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 14 in E flat major, K. 449 
+01. Allegro vivace   08:34
+02. II. Andantino   07:52
+03. III. Allegro ma non troppo   05:42Жанр: Classical, ConcertoПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC8F557EEE1E80138A93FE60957EE0C0DAAFA22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001017   (855415) от 27.03.2016
 
 Victor Merzhanov - Scriabin (12 Etudes op. 8), Rachmaninov (Piano concerto No.3) 1997 [FLAC|Lossless|tracks] <Classical, Piano>
@@ -713,35 +742,6 @@ Storgards, Helsinki Philharmonic Orchestra - Korngold: Much Ado About Nothing & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6274853E4565BFAE740D6CF4B95AC0442FD879D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002064   (848696) от 31.03.2016
-
-Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gaitas  3:37
-02.  Zangarilleja  1:59
-03.  "A del arrebol luciente" (Juan Hidalgo)  3:36
-04.  Fandango  2:53(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDDB5015A2F400A127C891FFD98855B86F0B6A41
 ```
 
 https://mybot314.ru/tekegram_catalog/

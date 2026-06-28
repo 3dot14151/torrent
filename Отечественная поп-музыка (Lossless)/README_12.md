@@ -1,3 +1,61 @@
+###  Публикация: 805687   (606043) от 17.07.2014
+
+Батыр (Батырхан Шукенов, ex. A'Studio) - Душа (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Взлетай
+02. Детство
+03. Душа
+04. Дождь(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23635394525C1A34449BD116E198B91D45EE172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147997   (605635) от 04.07.2017
+
+VA - Rec Top vol. 2 Моя Москва (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маликов Дмитрий - Прощай, моя блондинка [04:11]
+02. Валерия - Моя Москва [03:29]
+03. Овсиенко Татьяна - Школьная пора [03:38]
+04. Анка - По Парижу [03:03](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85237283D19418A01C2236130DDDB8DD36C1886E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297503   (604047) от 22.04.2019
 
 VA - Вечеринка у t.A.T.u. 2 (Unofficial) (2002) [FLAC|Lossless|image + .cue] <Pop>
@@ -699,64 +757,6 @@ Plazma - Six | Zero | Seven (New Version) (2004) [FLAC|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B2B2AAAF1F1150E50AC7859C705185087A3957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048580   (545512) от 03.09.2016
-
-#2Маши - Теперь нас двое (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Теперь нас двое
-02. Мысли
-03. Птицы
-04. Свободные линии(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF1786914029A65721B3DFDC5063FE602DFD15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049041   (544248) от 04.09.2016
-
-Plazma - Take My Love (2000) Reissue, 2004, CD Land [FLAC|Lossless|image + .cue] <Pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take My Love
-02. The Sweetest Surrender
-03. Memories
-04. Jump In My Car(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA04AC97039566E881DF2677F4E697E8A8B931
 ```
 
 https://mybot314.ru/tekegram_catalog/

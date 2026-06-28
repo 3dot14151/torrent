@@ -1,3 +1,61 @@
+###  Публикация: 1465870   (1018974) от 27.04.2021
+
+Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 . All That Jazz (00:03:40)
+02. She Used To Be Mine (00:04:24)
+03. Trust In Me (00:04:29)
+04. My Ship (00:03:58)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6782913EB6ED16F382845E1399A274FC93AF7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465973   (1018833) от 28.04.2021
+
+Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for DiFang [5:26]
+02. Happy People [5:12]
+03. Tango in 6 [5:53]
+04. Ain't Nothing but the Blues [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1B574C1752D237153182EEE7A0C62447B3AC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465878   (1018827) от 28.04.2021
 
 André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Cool Jazz>
@@ -491,6 +549,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468221   (1017291) от 07.05.2021
+
+Stan Getz - My Old Flame (1981, 1992) 2CD, 2001, Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017291.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Dolphin:
+01. The Dolphin [9:50]
+02. A Time for Love [6:42]
+03. Joy Spring [9:42](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAF19FF4C93CC072C0FF12E87121F9E35B06B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467961   (1017288) от 07.05.2021
 
 Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -578,6 +665,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468816   (1016944) от 09.05.2021
+
+Or Bareket - 33 (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Post Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Still Searching (Or Bareket) - 5:39
+2. Feb. 1st (Or Bareket) - 4:05
+3. Reginia (Or Bareket) - 6:30
+4. Zamba De Argamonte (Ernesto "Cuchi" Leguizamon and Manuel Castilla) - 3:26(   Читать дальше...   )Жанр: Jazz, Post Bop, Modern CreativeПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADB581281551AB60B911F3BEA7428F9A266B9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468637   (1016800) от 10.05.2021
+
+Woody Herman - 1939 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks for Everything [3:05]
+02. The Umbrella Man [3:03]
+03. They Say [3:07]
+04. Deep in a Dream [2:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2B9A1D25C6A6973C7A1C3FC99F51699A5C6637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468743   (1016799) от 10.05.2021
 
 Bobby Hackett - 1938 - 1940 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
@@ -600,151 +745,6 @@ Bobby Hackett - 1938 - 1940 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E5A8C2FAF575B169BFF131AAD7BB0C21E55FF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468732   (1016792) от 10.05.2021
-
-Louis Armstrong - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Misbehavin' [3:59]
-02. Rockin' Chair [5:15]
-03. Back o' Town Blues [4:20]
-04. Pennies from Heaven [3:49](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C5814FAE8E216C330F91544567D36E21EA6EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468749   (1016790) от 10.05.2021
-
-Glenn Miller - 1935 - 1938 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Blues Serenade [2:51]
-02. Moonlight on the Ganges [2:41]
-03. In a Little Spanish Town [2:30]
-04. Solo Hop [2:47](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73F6921BCC1A0673BDC82635922D3501BC98630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468926   (1016783) от 10.05.2021
-
-Django Reinhardt - Guitar Genius (2000) [FLAC|Lossless|image + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sue, Just You [2:56]
-02. You Rascal, You (I'll Be Glad When You're Dead) [3:07]
-03. Improvisation [3:00]
-04. Crazy Rhythm [3:04](   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17EAB0655E9F4C0B0EBA2CAD820D5B43B9EC932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469060   (1016698) от 10.05.2021
-
-Stan Getz - 5 Original Albums (1955 - 1958) 5CD, 2016, Verve [FLAC|Lossless|tracks + .cue] <Cool,  West Coast Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016698.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-  West Coast Jazz:
-01. East of the Sun [6:20]
-02. Four [7:36]
-03. Suddenly It's Spring [7:00](   Читать дальше...   )Жанр: Cool,  West Coast Jazz, BopПродолжительность: 03:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FC86A6DD7621A8E340599668B3CB4AC43F8640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469393   (1016466) от 12.05.2021
-
-Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Mechanics / Asteroid
-02. Connections
-03. Home Outside / Deep Drilling
-04. Citylights / Dance & Steam(   Читать дальше...   )Жанр: Free Jazz, Free ImprovisationПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4044EBC379D227FF5A7328D98AADD1E23406F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

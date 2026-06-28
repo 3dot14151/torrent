@@ -1,3 +1,32 @@
+###  Публикация: 1786668   (68988) от 21.03.2025
+
+Brenda Lee - Best of Brenda Lee (2025) Remastered [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sweet Nothin's (Remastered) [00:02:19]
+02 - I'm Sorry (Remastered) [00:02:38]
+03 - I Want to Be Wanted (Remastered) [00:03:02]
+04 - One Step at a Time (Remastered) [00:02:39](   Читать дальше...   )Жанр: PopПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAADCAF64E462C4AC67B74AD4AA8384625C32AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788765   (68446) от 01.04.2025
 
 VA - Best Movie Hits Vol. 2 (1994) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock, Reggae, Stage & Screen>
@@ -715,35 +744,6 @@ VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111D355ED3C2E795B0A44F147DD5A22282D8C823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728227   (54133) от 06.06.2024
-
-VA - DJ Hits 33 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr.Alban - This Time I'm Free
-02. Ace Of Base - Lucky Love
-03. Clock - Everybody
-04. Imperio - Veni Vidi Vici(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02489115F64C4A9C6980C37608063D632A138D84
 ```
 
 https://mybot314.ru/tekegram_catalog/

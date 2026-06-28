@@ -1,3 +1,29 @@
+###  Публикация: 565444   (401284) от 25.10.2012
+
+Desktop Wallpapers (24.10.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B24DDB24775DB2720289D3BC8B9E6BADDFF3B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565376   (401276) от 25.10.2012
 
 [Wallpapers] Nature Desktop Wallpapers Pack 3
@@ -718,32 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95690AFB1AA4EFC9BF9EB72778731EA4326C37F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570011   (390991) от 04.11.2012
-
-Computer Desktop Wallpapers Collection (03.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F4B47097A8A3D71392B931E36220EEA8A2F234
 ```
 
 https://mybot314.ru/tekegram_catalog/

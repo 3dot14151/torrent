@@ -1,3 +1,56 @@
+###  Публикация: 1225163   (661782) от 14.05.2018
+
+Текстуры - Photo Libraries - Marble Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры.Формат: JPGРазрешение файлов: 2048 x 3072
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87035BBC48361F4908C0FB8F6BE3E0CB0C95D9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225141   (661777) от 14.05.2018
+
+Фоны - Creative Market - Marble & More Collection - 696830 [JPG, PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны с дополнениями.
+Автор: Feather & Sage Design.Формат: JPG, PSD, PNGРазрешение файлов: 3852 x 2592 - 1660 x 5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C29E97EDCC05AC329494994243E8670429A0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225106   (661774) от 14.05.2018
 
 Текстуры - Creative Market -  Marble Halftone Pack + Bonus! - 649035 [PNG, AI, EPS]
@@ -633,60 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3FCDA159DD5D1F4D45068839C7513A760E14456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226061   (657641) от 18.05.2018
-
-Текстуры - DeviantArt - Old paper seamless textures - 507236128 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры - старая бумага.
-Автор: jojo-ojoj.Формат: JPGРазрешение файлов: 2000 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920EE29F09451E3C9D7E72AD650B0412F84E43AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226277   (656751) от 19.05.2018
-
-Текстуры - Creative Market - Art Textures: Marbled Folk Song - 2269113 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные художественные текстуры - узоры.
-Автор: SHP Digital DesignФормат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EC3108AA4249778E2F442B194A06A07C659CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

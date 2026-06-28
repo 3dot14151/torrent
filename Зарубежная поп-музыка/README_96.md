@@ -1,3 +1,32 @@
+###  Публикация: 1791360   (21525) от 13.04.2025
+
+VA - 90s Greatest Hits (2007) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - Life
+02. Chyp-Notic - I Can't Get Enough
+03. Londonbeat - I've Been Thinking About You
+04. Bad Boys Blue - You're A Woman 98'(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Pop, EuropopПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252645A42F4946EC1649A2BEFA369826F555A388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791632   (21331) от 15.04.2025
 
 VA - 80s Forever (The Greatest Pop Hits) (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock>

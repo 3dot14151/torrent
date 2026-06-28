@@ -1,3 +1,90 @@
+###  Публикация: 1785149   (69356) от 15.03.2025
+
+VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaron Inc. vs. Wavetraxx - Summerbreeze (Jaron Inc. Mix) [3:43]
+02. Marc Dawn - Expander (Flutlicht Remix) [6:52]
+03. Green Court feat. De/Vision - Shining (Tiësto Mix) [9:23]
+04. Human Force - Sun Rising High (Reysan Khan Vocal Trance Mix) [5:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785586   (69216) от 16.03.2025
+
+VA - Ablazing Spring Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze & Fischer & Miethig - Follow Me (Extended Mix) [6:42]
+02. Transaphonic - Tachyon Theory (Extended Mix) [8:58]
+03. Guava Project - New Horizons (Extended Mix) [7:01]
+04. Thomas Lloyd & Hidden Tigress - Faded Whisper (Claas Inc. Extended Remix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B48902CDF6379A43347DC5FD306D962E5E1E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785634   (69185) от 17.03.2025
+
+VA - 40 Years Techno Club (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Split Second - Flesh (03:53)
+02. Zwischenfall - Flucht '84 (English Version) (05:27)
+03. Moskwa Tv - Generator 7/8 (06:20)
+04. Westbam - Monkey Say Monkey Do (Kurzmix) (03:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B923B652F6F8B42DD062680C17DA9E55D75617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785595   (69160) от 17.03.2025
 
 VA - Trance Horizons, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
@@ -656,93 +743,6 @@ VA - Nothing But... Trancetopia, Vol. 25 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E344FC10E6B53D663BDEC1E05A66F57E0938259C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793281   (67549) от 23.04.2025
-
-VA - Uplifting Only Top 15: April 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JINGYAN - Azure Above (Intro Mix) [4:02]
-02. HALIENE & Maratone - Make It To Tomorrow (Illitheas Extended Remix) [6:56]
-03. Tycoos & Eximinds & Djoy - Night Sky (Extended Mix) [5:51]
-04. Tony Irrmani & Irina M. - Irene (Extended Mix) [5:34](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABDFBE57E001B211CB2FD79F10DC22DCC590F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793306   (67546) от 23.04.2025
-
-VA - Trancendence, Vol. 01 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 32bit_ - Crystal Tears (Extended Mix) [7:54]
-02. Inci3ion & Zara Taylor - Empty Promises (Extended Mix) [6:37]
-03. Peter Illias - Edge Of Space (Extended Mix) [7:15]
-04. Xavian & Paul Bartolome - Angel In The Light (Air Project Extended Remix) [6:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E7E23057CBF8BC16EEF1B84F43D35F80A91247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793877   (67416) от 27.04.2025
-
-VA - Techno Club Vol. 74 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torsten Stenzel & Mahe' - Never Give Up (York Extended Mix) [6:09]
-02. XiJaro & Pitch x JKult - United In Dreams (Extended Mix) [7:06]
-03. Talla 2XLC - Touch The Light (Extended Mix) [6:30]
-04. Woody Van Eyden - Sky (Extended Mix) [5:20](   Читать дальше...   )Жанр: TranceПродолжительность: 03:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE759AB2F46C17ECD5124BFA11C494BF163C2233
 ```
 
 https://mybot314.ru/tekegram_catalog/

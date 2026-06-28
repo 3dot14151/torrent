@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1877296   (1074013) от 
+
+VA - The Orient Collective: Skybound Spirits (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortisha - Equinox (7:06)
+02. Ancient Soul - Way to Fuji (6:38)
+03. Willco - Whispering Leaves (7:20)
+04. Cox (EG) - Am I Dreaming (6:34)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CB77F24D455DA51E477C65C7182B33B670656C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876191   (1073037) от 
 
 VA - The Orient Collective: Roots & Relics (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -717,35 +746,6 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 197410   (1030098) от 20.02.2021
-
-Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak [APE|Lossless|image + .cue] <Classical, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Storm 			(03:45)
-02. Toccata And Fugue In D Minor(07:49)
-03. Sabre Dance 		(06:01)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 02:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
 ```
 
 https://mybot314.ru/tekegram_catalog/

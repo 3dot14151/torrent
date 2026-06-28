@@ -1,3 +1,177 @@
+###  Публикация: 1498720   (852424) от 29.09.2021
+
+VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, TechHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RaviGauly - House Of Shiva (Full Moon Mix)
+02. Trip2 Universe - Fake Reality (Original Mix)
+03. WiNeSk feat. Carmen Miller - Business (Original Mix)
+04. Thomas Dur - One Way (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, TechHouseПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBA4555498A6933225629D11C188D4DFA25A49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110789   (852272) от 03.03.2017
+
+VA - Enhanced Miami (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal & Sj ft. Emma Gatsby - Hung Up (Original Mix)  3:40
+02.  LEVV - Collateral Damage (Original Mix)  4:25
+03.  Vanrip - Find Your Love (Original Mix)  2:57
+04.  No Way Back - Minute (Original Mix) (feat. Sophia Black)  3:40(   Читать дальше...   )Жанр: HouseПродолжительность: 03:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93733253A480F4B86E760CFADE183C3DBC1DF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110401   (852176) от 03.03.2017
+
+VA - Deep House Paris Vol 3 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александер Конинг - Grown & Sexy (David Dorad Remix) 7:54
+002. Alex Roque - Luxuria (Latin Remix) 6:35
+003. Robbie Dee - House Tool 5:45
+004. Tiziano Iervolino - Aurora 5:15(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA13927CF222D3B349E222E2D7B661994966CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110593   (852175) от 03.03.2017
+
+VA - Last Night In Miami (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bit Express - Bass Down Low (Anthony Maserati's Night Mix)  3:34
+02.  Leon Victory - Mad Lion Junglist (Raggadeep Mix)  3:33
+03.  Alex Martinez - Costa Blanca (Original Mix)  6:09
+04.  Bamboo Rhythms - Pushing On (Man On The Moon Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B7FD99A594BC0A4320AC3EFA7A15F0058AC967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110552   (852167) от 03.03.2017
+
+VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiden Bell – Test the Feelings [03:23]
+02. Ellen Avalon – About Last Night [03:25]
+03. North Line – Out of the Blue [03:23]
+04. 13 Monkeys – Shake It Up [04:07](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080899BAFF939987A63EB9C907DEC3552CFAB533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110543   (852163) от 03.03.2017
+
+VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Soul – Love in the Net [03:08]
+02. Paul Smith – Into the Night [02:57]
+03. Johnny Sonny – Clap Your Hands [03:12]
+04. Goldeep – One Last Dance [03:38](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473B8145F6E93C171426C208558BDDE62D225C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110700   (852081) от 03.03.2017
 
 VA - Fitness Tech Beats (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -571,181 +745,6 @@ VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112498   (843386) от 08.03.2017
-
-VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midimute — Idea [04:02]
-02. Mike Goldberg — Simon [03:45]
-03. Karasto — Plus [04:30]
-04. Klinikum — Stronger [04:32](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:50:09
-Лейбл: Skyheels - 10118910
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7946D771CF603196B5B56DEAB3B1E303EE19AF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112545   (843302) от 08.03.2017
-
-VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barg Van - Hai (Original mix) [00:03:11]
-02. QKazoo - Summer (Original mix) [00:04:20]
-03. Sound Diller - Make Some Drop [00:05:21]
-04. Bonix - Tirex (Original mix) [00:04:41](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC502E2035AF53A8B661D0446DD518F48241BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112826   (841727) от 09.03.2017
-
-VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daiden - Snow Is Falling 03:45
-02. Luke Meyers - Play House (Vocal Edit) 05:40
-03. Milord - The World Is Mine (Club Mix) 06:41
-04. James Marley Feat. Nathan Brumley - Summer Won't Wait (Extended Mix) 05:50(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD18ED321DF13E0E19BF0560BFBD2345C23419C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112666   (841237) от 09.03.2017
-
-ATB - Best Hits & Remixes (2000) [MP3|320 Kbps] <House, Progressive House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Repulse [02:40]
-02. ATB feat. York - The Fields Of Love (Club Mix) [06:25]
-03. ATB - Tune [06:09]
-04. ATB - The Summer (Ibiza Version) [03:44](   Читать дальше...   )Жанр: House, Progressive House,TranceПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E7C44C396CAB8EF35CAF5DBF51D1E4CE930977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379318   (840971) от 28.04.2020
-
-VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia – Greyhound
-02. Jax Jones – Breathe
-03. ZEDD – Stay The Night (featuring Hayley Williams of Paramore)
-04. Major Lazer – Lean On(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2187A78D21D0067ACD639E7B930D72BC96F2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379580   (839450) от 29.04.2020
-
-VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Edward Hilder – Back In Usa (Radio Edit)
-02. Trillogee And Taw ft Gemeni – TNT (Happy Gangsters Remix Edit)
-03. Edher Torres – If You Sexy (Radio Edit)
-04. Reaster And Danage – Milf (Radio Cut)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03A7EFBD0F684FA3082641EBD74D0EC3C45B524
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1244741   (479924) от 02.09.2018
+
+Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside
+02. Given
+03. Journey
+04. Perspective(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244617   (479923) от 02.09.2018
+
+Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmony in Motion (07:20)
+02. Tearful Moments (08:51)
+03. Stationary Spirits (09:57)
+04. The Pathway of Life (06:39)(   Читать дальше...   )Жанр: New Agе, Relax, MeditativeПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938760   (479798) от 19.09.2015
+
+Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air 1:47
+02. Der Flug 4:32
+03. Casa Del Mar 6:10
+04. Wurzburg 5:32(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B93B74988840A0AE6455FD25CFEE4F156CA2818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938900   (479559) от 19.09.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056446   (479488) от 26.09.2016
 
 Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
@@ -637,122 +753,6 @@ Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939416   (473558) от 22.09.2015
-
-Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Hat Blues (02:49)
-02. When It Comes To Loving You (02:41)
-03. Darlin Its A Waste Of Time (03:28)
-04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797289   (473540) от 05.09.2018
-
-Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:43)
-02. The Rains of Castamere* (02:42)
-03. Breaker of Chains (04:05)
-04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701841   (472067) от 20.09.2013
-
-IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitled>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472067.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:53] 01 - SOFA
-[04:15] 02 - Atusubitu
-[03:03] 03 - 12на5
-[01:16] 04 - Bionic Commando Groder's Anthem cover(   Читать дальше...   )Жанр: untitledПродолжительность: 00:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFF13FF1958CFB03C008B1F9557F4CE09993D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245470   (472014) от 06.09.2018
-
-Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumemtal, Guitar, Downtempo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Togetherness (*) 01:58
-02. Holiday Souvenir (*) 01:49
-03. Lasting Friendship (*) 01:30
-04. Sunshine Hug (*) 01:45(   Читать дальше...   )Жанр: Instrumemtal, Guitar, DowntempoПродолжительность: 00:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

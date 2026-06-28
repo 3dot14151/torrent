@@ -1,3 +1,29 @@
+###  Публикация: 993434   (895526) от 05.03.2016
+
+Обои - Superb Wallpapers. Release 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный сборник обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C02F740CE87B476B5E676099374F2559C4B016A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993447   (895362) от 05.03.2016
 
 Обои - Computer Desktop Wallpapers Collection 1453-1455 [JPG]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC5FA6C82F6332102FF77F405D03CDFFBF7EDFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996437   (880946) от 13.03.2016
-
-Обои - Amazing Nature Wallpapers. Release 10 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему природы.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC5BBF399E541108485B245091F7F856AFA867D
 ```
 
 https://mybot314.ru/tekegram_catalog/

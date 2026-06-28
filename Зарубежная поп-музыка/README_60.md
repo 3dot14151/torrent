@@ -1,3 +1,32 @@
+###  Публикация: 1582248   (324599) от 08.10.2022
+
+Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel
+02. One Day Like This
+03. Glosoli
+04. Lento E Largo From Symphony No. 3, Op. 36 (Symphony Of Sorrowful Songs)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C28080549BD9D1F713E66D37DB245E76BD9DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581787   (324598) от 08.10.2022
 
 Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
@@ -734,35 +763,6 @@ VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9131703636CB094B6FFB789578DE708B44461ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959406   (317210) от 24.11.2015
-
-Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландцы Texas выпустили новый альбом «Texas 25». Стандартное издание включает в себя 12 треков, - в том числе восемь перезаписанных известных хитов (а ля «Black Eyed Boy», «Halo», «I Don't Want a Lover», «Say What You Want», «Summer Son» и «The Conversation») и четыре совершенно новых. Специально в честь юбилейного релиза, старые песни были переработаны и перезаписаны (   Читать дальше...   )01. Start A Family
-02. Black Eyed Boy
-03. Say What You Want
-04. Supafly Boy(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1529288   (732645) от 06.02.2022
+
+VA - 100 Greatest 80s Pop Songs (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George Michael - Careless Whisper (6:32)
+002. Richard Marx - Right Here Waiting (4:24)
+003. Irene Cara - Flashdance...What A Feeling (From Flashdance ) (3:44)
+004. Billy Joel - Tell Her About It (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 07:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997AAD150406F459C578B5D4E484C2759D4E8D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127396   (732173) от 21.04.2017
 
 Al Caiola - Bonanza! 1960-1969 (2002) CD [MP3|320 Kbps] <Instrumental, Easy Listening, Pop>
@@ -717,35 +746,6 @@ VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218676   (721736) от 10.04.2018
-
-Brad Paisley (Брэд Пейсли) - Who Needs Pictures (1999) Arista Nashville [MP3|320 Kbps] <Country, Country Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брэд Пейсли (полное имя - Брэд Дуглас Пейсли) - американский кантри-исполнитель и автор песен, один из самых популярных в 2006-2010 годах в своём стиле в «Billboard Top 200». Обладатель трёх премий «Грэмми», четырнадцати «Academy of Country Music Awards», четырнадцати «Country Music Association Awards» и двух «American Music Awards». В 2011 году Пейсли выпустил автобиографическую (   Читать дальше...   )01. Long Sermon 3:19
-02. Me Neither 3:20
-03. Who Needs Pictures 3:46
-04. Don't Breath 2:54(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D361916F5F173CFF3E17ECD7E8852F6C32F0843
 ```
 
 https://mybot314.ru/tekegram_catalog/

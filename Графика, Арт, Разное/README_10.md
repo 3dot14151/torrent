@@ -1,3 +1,57 @@
+###  Публикация: 606635   (994672) от 22.01.2013
+
+Иконки - Романтические иконки/Love icons pack
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наборы иконок в романтическом стиле.
+Все файлы проверены, иконки хорошего качества, мусора нет.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:541EEEB97B3166BE91F15683E4649E4FF94A27FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607318   (994650) от 22.01.2013
+
+Работы художников - Digital Art by John Aslarona (.jpg)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994650.jpg" />
+</div>
+
+
+###  Подробнее
+
+John Aslarona — профессиональный художник из Нью-Йорка.
+Автор сборки:  lelik56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD54CA5EE7DB259612627E0F9452694DAD59E040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607190   (994647) от 22.01.2013
 
 Работы художников - Работы Российской художницы Татьяны Киргетовой (Tatiana Kirgetova) (.jpg)
@@ -632,58 +686,6 @@ Majestic castles of the world Wallpapers (25.01.13) [Wallpapers] (jpg)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E17995B247A471A2E496511CA3EC60F050DF52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608914   (992821) от 26.01.2013
-
-Gold And Money Wallpapers (25.01.13) [Wallpapers] (jpg)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED33CFE046A15273FCF075164A0C6D89A172E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608912   (992819) от 26.01.2013
-
-Space Wallpapers (25.01.13) [Wallpapers] (jpg)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2537274642D4949E2E309947D15CDA080A9C6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

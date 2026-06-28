@@ -1,3 +1,171 @@
+###  Публикация: 1511328   (789423) от 20.11.2021
+
+Synth Replicants - atlantis (2021) [AAC|~321 Kbps] <Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. atlantis (13:32)
+02. in the dark (4:45)
+03. life sign (5:12)
+04. water and ice (6:05)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3807DEE97C34FBD5C9BFB6CF30B3AA741D8B5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275614   (789383) от 13.01.2019
+
+Грецкий орешек  (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кажется, что у Артура всё хорошо. Он молод, остроумен, ведет свое шоу на модном радио, живет с красавицей, на которой собирается жениться. Но! Его избранница вынесла ему мозг. И внезапная страсть к поиску себя подталкивает молодого человека сбежать в Грецию! Там он быстро находит друзей. Вместе они вытворяют такое, что даже местные мафиози не могут пройти мимо. Целая (   Читать дальше...   )Производство: РоссияЖанр: Комедия, приключенияРежиссер: Стас ИвановАктеры: Кирилл Каганович, Антон Васильев, Александр Робак, Полина Толстун, Михаил Пшеничный, Максим Лагашкин, Геннадий Пачис, Мария Болонкина, Антонина Комиссарова, Анастасия СтежкоПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D221A917B13E56C8BEB1F7BC03C1A489075C50AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511349   (789374) от 20.11.2021
+
+Swingrowers - Remote (2014) [AAC|~344 Kbps] <Electro, Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight (3:44)
+02. Baby Lone (3:47)
+03. That's Right! (3:19)
+04. Stay Swing (3:33)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBDFDCD37F15CD94DEAF9A0EA58FC3CF9A7ECDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511351   (789363) от 20.11.2021
+
+Swingrowers - Hits & Remixes (2017) [AAC|~344 Kbps] <Electro, Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingrowers, The Lost Fingers - Pump Up the Jam (3:49)
+02. Kiawami (Skeewiff remix) (4:40)
+03. Swingrowers, Gypsy Hill - The Queen of Swing (4:18)
+04. Midnight (3:42)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23FAE02CD599825DE156E052095F1BE95FC86D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511286   (789360) от 20.11.2021
+
+Marina & the Kats - Wild (2016) [AAC|~320 Kbps] <Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kat Walk (2:51)
+02. Shim Sham (3:23)
+03. Miss Jekyll & Mister Hyde (3:59)
+04. Bamboozle Boogie (3:32)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C900B8FC29038733980988B622311781DD486A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275776   (789323) от 13.01.2019
+
+Грецкий орешек  (2018) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кажется, что у Артура всё хорошо. Он молод, остроумен, ведет свое шоу на модном радио, живет с красавицей, на которой собирается жениться. Но! Его избранница вынесла ему мозг. И внезапная страсть к поиску себя подталкивает молодого человека сбежать в Грецию! Там он быстро находит друзей. Вместе они вытворяют такое, что даже местные мафиози не могут пройти мимо. Целая (   Читать дальше...   )Производство: РоссияЖанр: Комедия, приключенияРежиссер: Стас ИвановАктеры: Кирилл Каганович, Антон Васильев, Александр Робак, Полина Толстун, Михаил Пшеничный, Максим Лагашкин, Геннадий Пачис, Мария Болонкина, Антонина Комиссарова, Анастасия СтежкоПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CE2E4D5094C3752C25EB769369AC7C7938AB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511327   (789192) от 20.11.2021
 
 Synth Replicants - time walker (2021) [AAC|~322 Kbps] <Electronic>
@@ -529,177 +697,6 @@ VA - Chill Out Perfection, Vol. 1 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671AD3583F7A5D253FB9E758DFDAA2CCC81CED1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511645   (788421) от 22.11.2021
-
-VA - Calm Down and Chill, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Butterfly (5:37)
-02. Eddie Silverton, Teresa Pozgaj - High Flyers (4:36)
-03. Yantra Mantra - Solitaire (5:06)
-04. Xemplify - Always You (Acoustic) (6:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA31A5C2E25DFCE66E8C1013D775FAD20E6B16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511649   (788420) от 22.11.2021
-
-VA - The Perfect Lounge (Santorini Edition) (2021) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helfau Reload - Off the Hook (5:46)
-02. Les Liaisons Dangereuses - In the Nature of Things (5:52)
-03. Miethe - Revealing (5:33)
-04. Bio Logical Theory - Another Stratosphere (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F90158D2075AE63833281FB316B20C55FCDC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276250   (788404) от 15.01.2019
-
-Хантер Киллер / Hunter Killer (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская атомная подлодка «Хантер Киллер» вместе с подразделением военно-морских сил США вступает в крайне рискованную боевую авантюру по спасению мира от катастрофы. Когда время на исходе и каждая минута на счету, элитной команде придется совершить невозможное, чтобы предотвратить конфликт мирового масштаба.Производство: США / Hunter Killer Productions, Millennium FilmsЖанр: Боевик, ТриллерРежиссер: Донован МаршАктеры: Джерард Батлер, Гэри Олдман, Коммон, Зейн Холц, Микаэл Нюквист, Тоби Стивенс, Линда Карделлини, Кори Джонсон, Адам Джеймс, Генри Гудман, Колин Стинтон, Александр Дьяченко, Михаил Горевой, Юрий КолокольниковПеревод: Дублированный  (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083F6452DB56BBA3E90431363480C99435CB1955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511770   (788381) от 22.11.2021
-
-VA - Piano Moods Collection, Vol. 3 (2021) [AAC|~296 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Estación Del Mar - Libelulas Y Colibris (4:45)
-02. Joseph Nimoh - Inner Peace (4:53)
-03. Dyan Garris, Sherry Finzer, Rebekah Eden - Timeless Traveler (6:21)
-04. Gary B - Wilderness (Original Mix) (2:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAA622ACB3368DB13585BEF7A5964A4A299BAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511723   (788377) от 22.11.2021
-
-Sia - Everyday Is Christmas (Snowman Deluxe Edition) (2021) [AAC|~315 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa's Coming for Us (3:27)
-02. Candy Cane Lane (3:32)
-03. Snowman (2:46)
-04. Snowflake (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33FF4F2B97908975DE670E8C81BFFF7CB07860B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511887   (788376) от 22.11.2021
-
-VA - Life is Beautiful (2021) [AAC|~292 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miraflores - Habanera (5:49)
-02. Schriever - Sublime (5:48)
-03. The Entelechia Society - Apollonian Eyes (5:46)
-04. Adaptationes Mirabiles - Near the Mill (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE1A3EBEA78548B42065FD95A0A5C80B844717F
 ```
 
 https://mybot314.ru/tekegram_catalog/

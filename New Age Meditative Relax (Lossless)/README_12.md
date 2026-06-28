@@ -1,3 +1,90 @@
+###  Публикация: 1128976   (724218) от 27.04.2017
+
+Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Sadeness Part I (Meditation Mix) 3:00
+02. Enigma - Mea Culpa Part II (Fading Shades Mix) 6:13
+03. Andru Donalds - Simple Obsession 4:07
+04. Andru Donalds - Wating For The Hurricane 4:45(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936DEF5CF1E44DFFEDF2CCFB35694FD16A7CD4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129176   (722262) от 28.04.2017
+
+VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial - Cang Ding 4:45
+02. Mythos - Planinata 3:24
+03. Delerium - Flatlands 6:57
+04. Mythos - June 4:58(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8209780D95BABBF0C589B2A61DE41240096DF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023922   (722245) от 06.06.2016
+
+Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light of Dawning [00:08:32]
+02. Contemplating Prasada [00:08:51]
+03. Bindu [00:08:33]
+04. Holding a Peaceful Repose [00:08:38](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7BF0691AC5DEC894892B89C98D94531D303040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128936   (720714) от 29.04.2017
 
 Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
@@ -657,93 +744,6 @@ VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402348   (701706) от 14.08.2020
-
-VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calming Music Sanctuary - Relieving Stressful Feelings (03:27)
-02. Meditation Music Zone - Spriritual Rest (03:39)
-03. Beautiful Magical Music Collection - Funny Mood (03:31)
-04. Japanese Zen Shakuhachi - Welcome to Ancient China (03:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6836328A4593F649DE0C8B36848E42129EC04EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132572   (701115) от 09.05.2017
-
-Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Works I (3:18)
-02. Ancient Person Of My Heart (5:52)
-03. O'Ecclesia (3:35)
-04. Interlude I (1:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132495   (700848) от 09.05.2017
-
-D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svoboda 5:51
-02. The Mountain Song (Pritouritze Planinata) 6:54
-03. Optaki 4:54
-04. Sebastien's Song 3:29(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
 ```
 
 https://mybot314.ru/tekegram_catalog/

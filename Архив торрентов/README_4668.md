@@ -1,84 +1,31 @@
-###  Публикация: 468350   (96732) от 15.03.2012
+###  Публикация: 469368   (96893) от 17.03.2012
 
-Сиеста / Siesta (1987) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чертовски отважная парашютистка приходит в себя на взлетной полосе в Испании вся в крови. Кровь, как выясняется, не ее, и она обнаруживает, что у нее амнезия. Все остальное время она пытается разгадать, что же все-таки произошло. Это история прекрасной, но психически нездоровой женщины, дошедшей до самого края пропасти, рассказана в фрагментарной, прыгающей во времени манере. Воспоминания, напоминающие галлюцинации, поддерживают напряженный интерес, благодаря экстравагантной, великолепной игре Баркин. А приехала она в Испанию, чтобы найти любимого мужчину, акробата Гэбриела Бирна, женившегося на другой женщине (Росселлини). Поставлен фильм-загадка по роману Патрис Чаплин. Визуально картина сделана весьма плотно и интересно - это первый художественный фильм Мэри Ламберт, известной видеоклипами, снятыми для МадонныЖанр: Триллер, Драма, МелодрамаРежиссер: Мэри ЛамбертАктеры: Эллен Баркин, Гэбриел Бирн, Джулиан Сэндс , Изабелла Росселлини , Мартин Шин , Грейс Джонс , Джоди Фостер , Гари Кэди , Грэм Флетчер-Кук , Дэниэл МартинПеревод: Многоголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468103   (96727) от 15.03.2012
-
-[Wallpapers] Nature Full HD Wallpapers Pack (14.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96727.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Full HD Wallpapers Pack (14.03.12) 
-Название:  Nature Full HD Wallpapers Pack (14.03.12) 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD91140EC7D9436CD024F1C5EC62ED1DB40796E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467224   (96725) от 15.03.2012
-
-Dj Alex Spark - Onle the Dark Sound (2012) [MP3|320 кб/с]<Electro House>
+VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dj Alex Spark - Onle the Dark Sound (2012)Год: 2012
-Жанр: Electro House
-Продолжительность: 01:03:25
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBR
-Трек лист: N/AВремя раздачи: (24/7 - круглосуточно) - по возможности
+01.Andre Visior – Moonraker (Tube & Miller Remix) 7:25
+02. Mind X – Sensation Seekers (Club Remix) 7:06
+03. Arty – The Wall (Feat Tania Zygar) 8:07
+04. Serenade – Serenade (Etasonic Remix) 9:12
+05. Matt Pincer meets Tezija & Keyra – A Good Day 6:17
+06. Dereck Recay – Nebula (Dj Eco Remix) 7:56
+07. Gabriele Menten – Back 10:11
+08. Koorie – Alone On The Moon 7:06
+09. Alexey Yakimov – Sky 8:20
+10. Progressiver – Blue Variations 7:06(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:34:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D17A17DE3A3DDDEA02F6575AACC5A3F5C9F8F680
+magnet:?xt=urn:btih:E2FCD718EC789B89D470733660958B88A19776AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,63 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468083   (96724) от 15.03.2012
+###  Публикация: 469411   (96891) от 17.03.2012
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96724.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Black Girls Desktop Wallpapers Pack 27 
-Название:  Black Girls Desktop Wallpapers Pack 27 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 4288х2848
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A85DAB8C53928DF797C8199A39D724E70066423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467889   (96711) от 15.03.2012
-
-VA - DESTINATIONS 2 - compiled by DJ Murus & Cubixx (2008) [FLAC|Lossless]<Psychedelic / Progressive>
+VA - TMP: Clear Sky 062 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Yotopia - Stereo Bug [7:30]
-2. Midimal - Deep Devil (Zyce Remix) [8:12]
-3. ARW - Searching for new levels [7:33]
-4. Motion Drive - Disco Slave [8:55]
-5. Time in Motion - Shadowgaze [9:14]
-6. Flowjob - Don't believe in mirrors [8:41]
-7. Nasser - Fixed [8:15]
-8. TimeDrained - Bob Jackson (Mute Remix) [7:31]
-9. S-Range - Ilha Bela (NASA Remix) [8:49]Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:16
+01. Traces Traxx - Berlin Nights (Original Mix)
+02. Tom Cloud - C-Sharp (Original Mix)
+03. Realistic Brain - Hope (Original Mix)
+04. Thomas Coastline - Kill My Skill
+05. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
+06. Sophie Sugar - Skyline (DNS Project Remix)
+07. System F vs. Cosmic Gate - The Blue Theme (Ferry Corsten Fix)
+08. Straight Up - The Sky Is Not The Limit (Cristian Poow Remix)
+09. Shooting Star - This One (Original Mix)
+10. Scott Lowe & Duncan Brewer feat. Dan Winter - Together We Will Be (Original Mix)2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 1:08:17
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:308B8F4F08BE2A82A2119644FA987E36AAF9DBCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -150,25 +68,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467883   (96707) от 15.03.2012
+###  Публикация: 467170   (96890) от 17.03.2012
 
-SIV (System Information Viewer) 4.27 + Portable [Английский]
+Gorod - A Perfect Absolution (2012) [MP3|320 кб/с]<Death Metal,Technical Death,Progressive Death>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SIV (System Information Viewer) - Утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы при работе с разными приложениями. Утилита в реальном времени показывает, сколько оперативной памяти свободно на данный момент и как используется файл подкачки.Название программы: System Information ViewerЯзык интерфейса: Английский
+01. Birds Of Sulphur (5:10)
+02. Sailing Into The Earth (4:57)
+03. Elements And Spirit (5:09)
+04. The Axe Of God (3:48)
+05. 5000 At The Funeral (5:55)
+06. Carved In The Wind (6:21)
+07. Varangian Paradise (4:35)
+08. Tribute Of Blood (4:03)2012Жанр: Death Metal,Technical Death,Progressive DeathПродолжительность: 00:39:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D0F599983C69777433C930BCEA9B97C7F9E57694
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -176,25 +101,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467857   (96706) от 15.03.2012
+###  Публикация: 469216   (96889) от 17.03.2012
 
-Перевод с американского / American Translation (2011) [1080p] BDRip
+VA - Супер Микс Продвинутых Хитов (2012) [MP3|256 кб/с]<Pop, Dance>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аврора - богатая наследница, Крис - паршивый щенок, ни кола, ни двора; их страсть предопределена законами жизни и искусства, где барышня всегда отдаёт предпочтение хулигану. Однако есть одно отягчающее и не вписывающееся ни в какие рамки обстоятельство: Крис - прирождённый серийный убийца. Для него лишение жизни случайно встреченных парней и девушек легкого поведения - род мучительной и сладостной болезни, не тупая уголовщина, а почти мистический опыт, который Аврора, кажется, не прочь разделить.Жанр: ДрамаРежиссер: Паскаль Арнольд, Жан-Марк БаррАктеры: Лиззи Брошер, Пьер Перрье, Жан-Марк Барр, Бенжамин Болен, Эстебан Карвахаль-Алегрия, Фредерик ЭнгПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский, Французский (forced)Продолжительность: 01:53:43
+001. Mixi - Между Мной И Тобой (Dj Prado Remix)
+ 002. Julia Lasker - День за днем
+ 003. Антон Зацепин - Ты знаешь
+ 004. Изя Листин - Не Покидай
+ 005. Глюкоzа - Взмах
+ 006. АЖУР - Город
+ 007. Анастасия Приходько - Заждалась
+ 008. Ирина Билык - Девочка (Dj Fisun Edit)
+ 009. DJ Kil.Bims feat. Ангелина Сланевская - Улетаю Я
+ 010. Dj Smash, Dj Рыжов, Chinlong - На Заре(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:03:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E8E064444E37581BA789C04017F7F130952EA254
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,55 +136,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466918   (96704) от 15.03.2012
+###  Публикация: 469509   (96888) от 17.03.2012
 
-[EN] Пограничные Мальчики / The Frontier Boys (2012) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96704.jpg" />
-</div>
-
-
-###  Подробнее
-
-На бесконфликтном внешнем фоне начала фильма показана трогательная дружба четырех сверстников и одноклассников средней школы небольшого городка штата Мичиган, трое из которых,- Брент, Джет и Льюис,- звезды баскетбольной команды школы, а четвертый,- Джексон,- член группы поддержки команды.Однако вскоре все рушиться,-и дружба, и баскетбольный сезон,- когда в город прибывает наркодиллер, затянувший в свою преступную сеть Брента вместе с его старшим братом Майком. Однажды Брент становится свидетелем рокового выстрела из пистолета, который произвел Майк из движущегося автомобиля в Льюиса. В результате Льюис- в коме в реанимации, а перед Брантом - дилемма,- либо промолчать и спасти старшего брата, либо все рассказать копам...Жанр: Боевик, Приключения, СемейныйРежиссер: Джон ГрутерсАктеры: Ребекка Ст. Джеймс, Биг Кенни Элфин, Эфквейк Келли, Тимоти ЛофингПеревод: ОтсутствуетПродолжительность: 01:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B07C238B92625E73A3EA5A662B434E9C32C9D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468094   (96703) от 15.03.2012
-
-[Wallpapers] Black Girls Desktop Wallpapers Pack 29
+[Wallpapers] Desktop Wallpapers Pack 79
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 29 
-Название:  Black Girls Desktop Wallpapers Pack 29 
+[Wallpapers] Desktop Wallpapers Pack 79
+Название: Desktop Wallpapers Pack 79
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5154х3632
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C3E763BD0B96036EA71C6A1C976313D34A80BA6
+magnet:?xt=urn:btih:3C0A72B27CE0155898A9BF5A62106DDBBF2FAAAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,15 +166,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468189   (96698) от 15.03.2012
+###  Публикация: 469516   (96886) от 17.03.2012
 
-Mozilla Thunderbird 10.0.3 Final (Extended Support Release) [Русский]
+[Wallpapers] Avto Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96886.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 13
+Название: Avto Wallpapers Pack 13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469574   (96885) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 90
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96885.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 90
+Название: Desktop Wallpapers Pack 90
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469223   (96883) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 75
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96883.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 75
+Название: Desktop Wallpapers Pack 75
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1600х1200/1680х1050 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718ED7AF2F4BC43B1D3C552CBD3A51073EDCB943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469188   (96882) от 17.03.2012
+
+Mozilla Thunderbird 12.0 Beta 1 [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96882.jpg" />
 </div>
 
 
@@ -284,34 +282,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467391   (96695) от 15.03.2012
+###  Публикация: 469000   (96880) от 17.03.2012
 
-Zavod - Industrial City (2012) [MP3|192 кб/с]<Industrial Metal>
+[Wallpapers] Nature Pictures №22
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Panzer (4:28)
- 2.Inhale (3:50)
- 3.Friends with death (2:48)
- 4.Into the night (3:32)
- 5.We rust (2:58)
- 6.Da ili njet (2:40)
- 7.Vanity Allstars (3:11)
- 8.Pripyat (3:48)
- 9.Storm (3:03)
- 10.Spee (3:48)(   Читать дальше...   )2012Жанр: Industrial MetalПродолжительность: 00:41:05
+[Wallpapers] Nature Pictures №22
+Название: Nature Pictures №22
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 3900х2616
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2A9D4ADAE8C14D2E17450B1289DB58A688130CA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,29 +312,154 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468004   (96694) от 15.03.2012
+###  Публикация: 469133   (96879) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 9
+VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с]<Progressive Trance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 9 
-Название:  Desktop Wallpapers Pack 9 
+1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
+ 2. Indecent Noise - Battlestar (Sly One vs. Jurrane Dark Mix) (6:11)
+ 3. Marcel Woods - Black Angus (Original Mix) (5:42)
+ 4. Koele Vaten - Boom (Original Mix) (6:45)
+ 5. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) (4:25)
+ 6. Spade - Do It Again (Original Mix) (8:16)
+ 7. Tempo Giusto - Dodger (Original Mix) (8:29)
+ 8. MDX - Drive Out (Marc Simz Remix) (6:27)
+ 9. Mark Young & Damo Kay - Eight Legged Freak (Original Mix) (8:19)
+ 10. Running Man - Eternity (Original Mix) (8:07)(   Читать дальше...   )16.03.2012Жанр: Progressive TranceПродолжительность: 03:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469192   (96878) от 17.03.2012
+
+[Wallpapers] Nature Pictures №23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96878.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №23
+Название: Nature Pictures №23
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E2D4EC63523CAC31F2C12CC6FB80B23EBE2808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469215   (96877) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 73
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96877.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 73
+Название: Desktop Wallpapers Pack 73
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469497   (96876) от 17.03.2012
+
+[Wallpapers] Nature Pictures №27
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96876.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №27
+Название: Nature Pictures №27
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 1600x1280
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468491   (96875) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96875.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 12 
+Название:  Desktop Wallpapers Pack 12 
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFF26EE0DFEF81E55B6F8F3C4E15AD3CCBF11BAA
+magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +467,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466950   (96685) от 15.03.2012
+###  Публикация: 468497   (96874) от 17.03.2012
 
-[EN] Четыре / Four (2011) DVDRip
+[Wallpapers] Desktop Wallpapers Pack 14
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-План следующий: похитить любовника своей жены, увести его на заброшенный склад, причинить ему боль, попугать его. Но не делайте это сами. Для этой грязной работы наймите детектива. Просто? Нет ничего проще этого.Жанр: ТриллерРежиссер: Джон ЛангриджАктеры: Мартин Компстон, Крэйг Конуэй, Джордж Моррис, Шон Пертуи, Кирстон ВэрэйнгПеревод: ОтсутствуетПродолжительность: 01:24:49
+[Wallpapers] Desktop Wallpapers Pack 14 
+Название:  Desktop Wallpapers Pack 14 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE22E0373C3C8F360BF93670712C3B7796BF89E0
+magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,69 +497,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468021   (96679) от 15.03.2012
+###  Публикация: 469455   (96872) от 17.03.2012
 
-VA - 538 Dance Smash 2011 vol.2 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Avicii - Street Dancer
-02 - Inna - Sun Is Up
-03 - The Partysquad & Reverse feat. Gers Adje & Jayh - Ik Ga Hard
-04 - Basto - Gregory's Theme
-05 - Clokx - Time Of My Life
-06 - R.I.O. - Like I Love You
-07 - Ian Carey feat .Snoop Dogg & Bobby Anthony - Last Night
-08 - Tiesto vs. Diplo feat. Busta Rhymes - C'Mon (Catch 'Em By Surprise)
-09 - La Fuente - Lost Without You
-10 - Armin Van Buuren feat. Laura V - Drowning(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECC8B50FBC7AB43106C5B8F7F87B3AD1D3A2D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468036   (96675) от 15.03.2012
-
-VA - 538 Dance Smash 2011 vol.3 (2011) [MP3|320 кб/с]<Dance>
+VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - LMFAO feat. Lauren Bennett & Goonrock  - Party Rock Anthem
-02 - Bingo Players - Cry (Just A Little)
-03 - Alexandra Stan  - Mr. Saxobeat
-04 - Snoop Dogg vs. David Guetta  - Sweat
-05 - Sander Van Doorn - Koko
-06 - Kate Ryan  - Lovelife
-07 - Swedish House Maffia - Save The World
-08 - Elena  - Disco Romancing
-09 - Martin Solveig feat. Kele  - Ready 2 Go
-10 - Ferry Corsten - Feel It(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:15:33
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
+03. Hannah - Falling Away (Armin van Buuren Remix)
+04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
+05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
+06. Michelle Cecchi - One (Original Mix)
+07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
+08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
+09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
+10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F053E05630659E6D81C732502D005A38D1193CD9
+magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,34 +532,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468020   (96659) от 15.03.2012
+###  Публикация: 469217   (96871) от 17.03.2012
 
-VA - Big Air Vol. 2 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
+[Wallpapers] Nature Pictures №24
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 3D Mode - New Dawn (Solaris Vibe Rmix) (8:49)
-02. Dualism - I Beg You (Mind Spin Remix) (8:46)
-03. Etic - The Pulse (7:28)
-04. Mental Broadcast & Minimal Criminal - Out of Range (9:24)
-05. Nitrodrop - Saw Great (8:37)
-06. Shanko - Slow Light (8:42)
-07. Sonic Sense - Future Shock (7:42)
-08. Soulscape - Up Side Down (9:14)
-09. Tectum - Harmonic Form (6:25)
-10. Zonka & Pakman & Subsistence - Outside Surface (8:01)Жанр: Psychedelic / ProgressiveПродолжительность: 01:23:18
+[Wallpapers] Nature Pictures №24
+Название: Nature Pictures №24
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABB177899AA773197268E6F077183848136E1542
+magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,26 +562,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467748   (96635) от 14.03.2012
+###  Публикация: 469225   (96870) от 17.03.2012
 
-Исола: 13я личность / Isola: Tajuu jinkaku shоjo (2000) DVDRip
+[Wallpapers] Avto Wallpapers Pack 10
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История этого фильма повествует о девушке-волонтере Юкаре Камо, которая прибыла из Токио, чтобы помочь пострадавшим от жуткого землятресения. Однако причина не только в желании помочь людям, но и в том, что Юкаре отчаянно ищет себя: всю жизнь чувствуя себя изгоем из-за своего дара телепатии, как ей кажется бесполезного...потому что, как бы она не хотела, помогать людям у нее не получается.
-Недалеко от центра Юкаре встречает странную девочку, которая оказывается психически больной. Почувствовав духовную близость к несчастной отверженной и всеми гонимой Чихиро, она всеми силами старается выяснить причину ее состояния и помочь ей. Оказывается, что в девушке живет и постоянно сменяется 13 личностей. Все они - это разные аспекты ее состояний, отношения к себе и к людям. Все, но не 13я из них. Она назвала ее Исолой - персонажем из Легенд луны и дождя Угетсу Моногатари - мстительным призраком ревнивой женщины, который явно выделяется среди остальных проявлений девочки и кажется чуждым, лишним. Юкаре, движимая желанием (   Читать дальше...   )Жанр: Триллер, Драма, УжасыРежиссер: Тошиюки МизутаниАктеры: Йошино Кимура,  Ю Куросава,  Кен Ишигуро,  Макико Ватанабе,  Сатоми Тезука,  Сусуму Тэрадзима,  Казухиро Ямаджи,  Хидэо Мурота,  Shirô Shimomoto,  Yôzaburô ItôПеревод: Одноголосый закадровыйПродолжительность: 01:34:00
+[Wallpapers] Avto Wallpapers Pack 10
+Название: Avto Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F1BCF23A6C31E35BD8E79B6D0451D783C21C6D
+magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +592,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467089   (96624) от 14.03.2012
+###  Публикация: 469549   (96869) от 17.03.2012
 
-Все начинается с конца / Ça commence par la fin (2010) DVD5
+[Wallpapers] Desktop Wallpapers Pack 89
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лето. Париж. Откровенная история любви, начинающаяся снова и снова каждый раз, когда кажется, что это конец. Габриэль и Жан — влюбленные на грани расставания, охваченные страстью, страхами и сомнениями, измученные бесконечными ссорами и примирениями. И однажды они преступают эту грань…Жанр: МелодрамаРежиссер: Микаэль КоэнАктеры: Эммануэль Беар, Микаэль Коэн, Жан-Пол Дюбуа, Патрик Винсент, Жан-Пьерр МонньерПеревод: Многоголосый закадровыйПродолжительность: 01:23:16
+[Wallpapers] Desktop Wallpapers Pack 89
+Название: Desktop Wallpapers Pack 89
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,25 +622,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467161   (96617) от 14.03.2012
+###  Публикация: 469195   (96867) от 17.03.2012
 
-Константин Кузнецов | Реактивное оружие Второй Мировой [2010] [DJVU]
+[Wallpapers] Desktop Wallpapers Pack 72
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хотя ракетное оружие известно еще со Средних веков, до Второй Мировой войны оно не играло на поле боя сколько-нибудь заметной роли, считаясь скорее курьезом, военной "экзотикой", сугубо вспомогательным средством. Все изменилось на рассвете 22 июня 1941 года, когда германские "Небельверферы" обрушили море огня на Брестскую крепость, а месяц спустя Красная Армия ответила врагу сокрушительными залпами легендарных "катюш". С тех пор рев и вой реактивных минометов стал обязательным аккомпанементом боевых действий.2010Формат: DJVU
+[Wallpapers] Desktop Wallpapers Pack 72
+Название: Desktop Wallpapers Pack 72
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8980D92EBD5BC6D4FAD0F0EC5A5B9826EBC6A489
+magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,25 +652,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467595   (96612) от 14.03.2012
+###  Публикация: 469529   (96866) от 17.03.2012
 
-Freemake Video Converter 3.0.1.25 [Мульти, Русский]
+[Wallpapers] Desktop Wallpapers Pack 85
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Freemake Video Converter – это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, подготавливать материалы к просмотру на специфических мобильных устройствах, создавать качественные слайд-шоу и извлекать звуковое сопровождение из понравившихся фильмов.Название программы: Freemake Video ConverterЯзык интерфейса: Мульти, Русский
+[Wallpapers] Desktop Wallpapers Pack 85
+Название: Desktop Wallpapers Pack 85
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2700х1800
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,33 +682,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467978   (96610) от 14.03.2012
+###  Публикация: 469470   (96865) от 17.03.2012
 
-VA - Лучшая 100ка - Хитовый взрыв 4 50/50 (2012) [MP3|256 кб/с]<Pop>
+[Wallpapers] Nature Pictures №25
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Eminem - Not Afraid
-002 Инфинити - Бежать
-003 Bloody Faeries - Revolution
-004 Егор Сесарев & Dj Anton Liss - With You (Radio Edit)
-005 Pink Floyd - Money
-006 АнгелиЯ - Всё Сбудется
-008 СтаЯ - Сердце
-009 Brainstorm - Below The Line
-010 А.Р.М.И.Я - Львица2012Жанр: PopПродолжительность: 06:29:29
+[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:135F3AB700D1DC857AABB5BB02CCE00BA1C14881
+magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,34 +711,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467365   (96609) от 14.03.2012
+###  Публикация: 468994   (96864) от 17.03.2012
 
-Black Light Discipline - 2 albums (2008, 2012) [MP3|320 кб/с]<Industrial Metal>
+[Wallpapers] Nature Pictures №21
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. For All You Heavy Hearted (Feat.Proteus)
-2. Tides
-3. On The Stars
-4. Out Of This Place
-5. Words Have A Meaning
-6. Same Story,Different People
-7. Hey Boy,I Know
-8. Confession Equals Salvation
-9. The Song By Heart
-10. No Perfect Plan(   Читать дальше...   )2008, 2012Жанр: Industrial MetalПродолжительность: 01:29:32
+[Wallpapers] Nature Pictures №21
+Название: Nature Pictures №21
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40CE1C38EB2CB189CBDBFA854FD0C8A881BD902F
+magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,27 +741,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467134   (96603) от 14.03.2012
+###  Публикация: 469528   (96863) от 17.03.2012
 
-Масакра / Масакра (2010) DVD5
+[Wallpapers] Desktop Wallpapers Pack 84
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В загадочное имение графа Владимира Пазуркевича прибывает Николай Казанцев — молодой человек, намеревающийся учиться изобразительному искусству в Италии, однако, не имея средств, рискнувший на авантюру! Представившись профессором, Казанцев старается убедительно делать вид, что изучает обширную библиотеку графа, параллельно успевая активно приударять за невестой Пазуркевича, красавицей Анной.
-
-Однако странные события, происходящие в имении, втягивают гостя в водоворот мистической и жуткой истории…Жанр: Ужасы, ТриллерРежиссер: Андрей КудиненкоАктеры: Андрей Назимов, Дмитрий Миллер, Мария Курденевич, Александр Колбышев, Вячеслав Павлють, Полина Сыркина, Сергей Власов, Оксана Лесная, Елена Одинцова, Геннадий Фомин, Филипп Филимонов, Александр Кашперов, Иван Мацкевич, Алексей Сенчило, Светлана Зеленковская, Сергей Журавель, Олег ГарбузПеревод: не требуетсяПродолжительность: 01:38:05
+[Wallpapers] Desktop Wallpapers Pack 84
+Название: Desktop Wallpapers Pack 84
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,104 +771,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467245   (96601) от 14.03.2012
+###  Публикация: 468989   (96861) от 17.03.2012
 
-VA - Best of Club 2012 (01.03.2012) [MP3|320 кб/с]<Progressive House, House>
+[Wallpapers] Avto Wallpapers Pack 7
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rafael Santti – Wireless (Original Mix)
- 02. Alex Rodriguez – Limit  (Original Mix)
- 03. Soul Playerz – Reload (Original Mix)
- 04. Diogo Menasso feat. Vuk Lazar – Dub Me (Vocal Mix)
- 05. Eric Destler, Franka – On Fire (Suplozz Remix)
- 06. Martyn Negro – Cataleya (Original Mix)
- 07. Cavin Viviano – S.Y.M.P.A. (Original Mix)
- 08. Alvita feat. Levy Pro – Baby (Upside Down) (Original Mix)
- 09. Drama – Life (ErXon & Spinne Remix)
- 10. Shena, Pedro Carrilho, DJ Xenon – 5 Elements (DJ Mause Remix)(   Читать дальше...   )01.03.2012Жанр: Progressive House, HouseПродолжительность: 01:57:26
+[Wallpapers] Avto Wallpapers Pack 7
+Название: Avto Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E433909D87916BC813A1AB19036876FAE18FDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467909   (96599) от 14.03.2012
-
-VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sound Access - The Sunny Time (Slayback Edit Remix)
-02.Robbie Neji & A-Peace - Can't Get Enough (Matthieu Dorsay Remix)
-03.Freestyler - Cracks (Sickstrophe Remix)
-04.Axwell - I Found U (Locco Lovers remix)
-05.LMFAO - Sexy and I know it (Disco Reason Remix)
-06.Danny S & TAITO - Rainbow (Downlow'd Remix)
-07.Kristian Tuska - Final Dance (Original mix)
-08.LMFAO feat. Lauren Bennett, GoonRock - Party Rock Anthem (Downlow'd + MAD-SIN Bootleg Mix)
-09.Skream & Example - Shot Yourself In The Foot Again (Dj nErU Remix)
-10.Ian Carey - Keep On Rising (Dj nErU Remix)(   Читать дальше...   )2012Жанр: Electro-House, HouseПродолжительность: 01:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EFE1EE3434B69245629FED9DC985AA662A500B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467366   (96594) от 14.03.2012
-
-UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Universe Creation (7:21)
-02. My World (8:10)
-03. Artificia Intelligencel (7:43)
-04. Strange Dream (6:53)
-05. Dancing in The Air (7:48)
-06. Inception (6:41)
-07. The Mental Trip (7:09)
-08. Lsd (7:26)
-09. No Rules (5:27)
-10. Vortex (5:59)Жанр: Psychedelic / Full OnПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597178F996F0DA7DD7A60446E675DB56537C87F2
+magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
 ```
 
 https://mybot314.ru/tekegram_catalog/

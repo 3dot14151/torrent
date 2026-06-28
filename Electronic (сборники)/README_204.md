@@ -1,3 +1,159 @@
+###  Публикация: 1086377   (153443) от 24.12.2016
+
+VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153443.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gareth Emery - Reckless
+002. Alan Morris Ft. Jess Morgan - Made Of Light (Radio Edit)
+003. Armin Van Buuren - Freefall (Manse Remix)
+004. Maarten De Jong & Katty Heath - All That Matters (Radio Edit)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 06:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913ABCF6200DF262C641EEE842C8689935EDD0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086410   (153361) от 24.12.2016
+
+VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitrii G - Stronger (Original mix)
+02. Lee & Sun - Underwater
+03. Dykane - Lost Summer (Original Mix)
+04. Frank Pleasure Night - Good(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB29661A8221D4E19854E183A86E067907350CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086428   (153284) от 24.12.2016
+
+VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn - Shine (Extended Mix)
+02. Deep Brother Feat. Rehane & Pasquier - Lost In Time
+03. Rino Da Silva - Trip To Rimini
+04. Enrico Donner - Untouched Ground(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1E0B177CC17161843187B2F0C778B3EB78434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588013   (153172) от 14.12.2012
+
+VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Albin Myers feat. Tiesto vs. Depeche Mode - Maximal Hells Bells, Jesus! (Riverhouse Bootleg)
+2. Andrew Bennett - Roadtrip
+3. Arno Cost - Lifetime
+4. Audien - Sup
+5. Benny Benassi - House Music
+6. Benny Benassi feat. Pink Is Punk - Perfect Storm
+7. Duvoh feat. Tess Marie - Come Over (Deorro Remix)
+8. Far East Movement - Dirty Bass (James Egbert Remix)
+9. Fedde Le Grand feat. Nicky Romero vs. Matthew Koma - Sparks (Jochen Miller Remix)
+10. Franky Rizardo feat. Roul And Doors - Elements (Hardwell feat. Dannic Remix)(   Читать дальше...   )Жанр: House/Electro House/ElectroПродолжительность: 02:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588627   (153138) от 14.12.2012
+
+VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aly & Fila Feat. Jwaydan - We Control The Sunlight (Original Mix)
+2. Parka feat. Anna Basel - Momentarily Gone (Mike Nichol Remix)
+3. Trance Arts featuring DaJan - Beneath The Shadows (Astuni Remix)
+4. Steve Allen & Ian Holing Feat. - Control It Down (Aurosonic Mas
+5. Smart Apes Vs DJ Anna Lee - Running Away (Fat Kid Remix)
+6. Noel Gitman - Endless Love Oen Bearen Remix
+7. Shogun Feat Emma Lock - Run To My Rescue (Original Mix)
+8. A.T.M. - Broken Dreams (Mindful Innovations Remix)
+9. Fast Distance - Pacifica (Temple One Remix)Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 06:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3C39835694E25DC0B21699CED7BF9863E2F46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589095   (152763) от 14.12.2012
 
 Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]<Dub Step>
@@ -605,151 +761,6 @@ VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347708   (148708) от 24.12.2019
-
-VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148708.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deaky Ear Candy - The Pure Tour (Original Mix)
-002. Neon Lights - Bad Boy
-003. Simian Mobile Disco - V Formation
-004. Tone Of Arc - Loosen Up The Vibe(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAEADB0D955FB10B848CABABA4F189165036DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519456   (148688) от 24.12.2021
-
-VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкая танцевальная музыка с богатыми традициями от Disсо 80-х - и есть то, что ожидаешь услышать в данном сборнике. Своеобразный выразительный вокал и неповторимый мелодизм. Каждая песня сборника насыщена всем тем необходимым, что требуется для приятного времяпровождения, пассивного или активного отдыха. Несмотря на то, что этот стиль, как и многие другие предшественники, (   Читать дальше...   )001. Danros - Can't Get Enough
-002. The Sunburst Band - Rough Times
-003. French La Touche - Hard Life
-004. Holy Aliens & Dawn Tallman - Dance With You(   Читать дальше...   )Жанр: Jackin, Funky, Disco HouseПродолжительность: Jackin, Funky, Disco House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519430   (148684) от 24.12.2021
-
-VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
-002. Grum - Price Of Love
-003. Lezcano - In My Time Of Need
-004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519437   (148651) от 24.12.2021
-
-VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная подборка позитивных танцевальных треков в стиле "Завтра выходной!". Окончание рабочей или учебной недели для каждого нас настоящий праздник. Ведь впереди выходные, и в конце концов можно расслабиться. А проводить выходные лучше всего под музыку, создающую правильный позитивный настрой.001. Jason D3an & Jack Lack - Dream About You
-002. Ed Sheeran - Bad Habits
-003. Paul Reeves - I'm In
-004. Tenzin - Club Banger(   Читать дальше...   )Жанр: EDM, Dance, ClubПродолжительность: 07:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA67104C4F87ACFDA91374CB5B8DE993C60A6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519439   (148640) от 24.12.2021
-
-VA - Friday Night: EDM Dance Party (2021) [MP3|320 Kbps] <Dance, Electro, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культура клубной музыки — явление довольно уникальное. Особая атмосфера и, конечно, музыка — это то, что создаёт настроение тех, кто пришел отдохнуть на танцполе. Клубная музыка отличается от других музыкальных стилей прежде всего особым драйвом, заставляющим Вас снова и снова выплескивать бурю эмоций в энергичном танце.001. Basanata - Hide And Seek
-002. Andrew Spencer - Think About The Way 2021
-003. Lost City feat Emerique - In Pose
-004. Bsharry - What's(   Читать дальше...   )Жанр: Dance, Electro, Club, HouseПродолжительность: 08:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B056BF5FBF7D2EAE39A8DCF937EFA3CA46CD207D
 ```
 
 https://mybot314.ru/tekegram_catalog/

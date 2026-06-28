@@ -1,3 +1,32 @@
+###  Публикация: 1035732   (624572) от 18.07.2016
+
+VA - The Real... Blues: The Ultimate Collection (2015) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624572.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 01. Mississippi Sheiks - Sitting On Top Of The World (3:15)
+ 02. Mississippi John Hurt - Stack O'Lee (2:57)
+ 03. Maceo Merriweather - Worried Life Blues (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2ABF3651F9B62F1BA8AB7FEFB1497F6E2E2FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910003   (624240) от 19.06.2015
 
 Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
@@ -718,35 +747,6 @@ Shaw Davis & The Black Ties - Shaw Davis & The Black Ties (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1DA9856F7D54E309BA0EB35F991B5ADD24689D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912513   (610880) от 26.06.2015
-
-Last Chance Saloon - Last Chance Saloon (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravy Train (3:45)
-02. Turning My Back (4:59)
-03. Delta Sky (3:32)
-04. Fistful Of Mojo (3:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E4517917E152C3A6A6F31AFBD5CC66FC334C08
 ```
 
 https://mybot314.ru/tekegram_catalog/

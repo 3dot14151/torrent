@@ -1,3 +1,32 @@
+###  Публикация: 1143930   (631630) от 20.06.2017
+
+Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
+1. Supersempfft - 1979 - Roboterwerke
+2. Supersempfft - 1981 - Metaluna
+3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520565   (631435) от 09.07.2012
 
 Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
@@ -723,50 +752,6 @@ Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523147   (618850) от 15.07.2012
-
-Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618850.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1| Продолжительность: 01:15:18
-01. We Shall Dance
-02. Fire And Ice
-03. No Way Out
-04. My Reason
-05. Forever And Ever
-06. Velvet Mornings
-07. Goodbye My Love, Goodbye
-08. My Friend The Wind
-09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
-01. Kyrila
-02. Mourir Aupres De Mon
-03. Ainsi-Soit-Il
-04. Life In The City
-05. That Once In A Lifetime
-06. Loin Des Yeux, Loin Du Coeur
-07. The Wedding Song
-08. Lost In Love
-09. I Need You(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
 ```
 
 https://mybot314.ru/tekegram_catalog/

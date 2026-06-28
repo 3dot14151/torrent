@@ -1,3 +1,116 @@
+###  Публикация: 868815   (889650) от 16.02.2015
+
+VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 01:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6C864A4F643FB92551373EE8738D2AB7DF7CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493616   (889098) от 07.09.2021
+
+Pravin (Правин, Павел Новиков) - Swarg Ashram (2008) [FLAC|Lossless|tracks + .cue] <Indian, Mantras, Bansuri>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baro Anurage Daki Toma Pita
+02. Nimne Dharanir Gati Durbar
+03. Ar Sab Jai Jak
+04. Jharna Jharna(   Читать дальше...   )Жанр: Indian, Mantras, BansuriПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494372   (889009) от 07.09.2021
+
+Tina Guo - Dies Irae (2021) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tina Guo (28.10.1985) – американская виолончелистка китайского происхождения. Ее международная карьера музыканта и композитора характеризуется не только тщательно продуманным видеорядом с театральными декорациями и оригинальными костюмами, но и множеством музыкальных жанров (classical, classical crossover, new-age, heavy metal, industrial metal), в которых работает (   Читать дальше...   )01. Moonlight Sonata (4:30)
+02. Moonheart (4:31)
+03. Double Cello Concerto MVT.1 (4:08)
+04. Rivers Flows In Youy (3:55)(   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369B839FAA2B99FF840CB313750A924DD746D134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371666   (888581) от 01.04.2020
+
+Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofolk, Darkwave, Atmospheric>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Design [07:27]
+02. Good Morning Sick World [05:20]
+03. Don't Mind [04:21]
+04. Recreation [04:32](   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245526   (888298) от 01.04.2020
 
 Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New Age>
@@ -628,122 +741,6 @@ Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E9712E1C340CC6C8507F403F99E25D55F717BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995414   (884406) от 11.03.2016
-
-Acoustic Heroes - Relaxing Piano Sounds (Acoustic Bar and Lounge Music) (2014) [MP3|320 кб/с] <Piano, Acoustic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rather Be
-02. Habits
-03. Dangerous
-04. Shake It Off(   Читать дальше...   )Жанр: Piano, AcousticПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE7642704C1ED35A7E63D543659EA52ECEAFA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995306   (884258) от 11.03.2016
-
-VA - Romantic Collection-Cinema (1999) [FLAC|Lossless|image + .cue] < Soundtrack, Pop, Ballad>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Homme Et Une Femme (Francis Lai)
-02. Love Theme From The Godfather (Nino Rota)
-03. The Windmils Of Your Mind (& His Orchestra) (Henry Mancini)
-04. Love Story (Francis Lai)(   Читать дальше...   )Жанр: Soundtrack, Pop, BalladПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0BBB4E5F55CC9FDB6040C99C673B0FEB4110A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103840   (883190) от 13.02.2017
-
-Tyler Bates & Joel J Richard - John Wick / Джон Уик (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Ending Has a Beginning (01:31)
-02. Story of Wick (03:05)
-03. John Mourns (02:30)
-04. Assassins (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAD753EA974BE8759E78802CE3D856CA97FEDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103812   (883016) от 13.02.2017
-
-Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Heart (02:50)
-02. Shark Chevelle (01:18)
-03. Man Of Focus (03:25)
-04. Sumo Showdown (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

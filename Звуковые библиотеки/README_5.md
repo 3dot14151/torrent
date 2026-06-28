@@ -1,3 +1,29 @@
+###  Публикация: 1374982   (868718) от 12.04.2020
+
+Звуковые библиотеки - Fluffy Audio - Venice Modern Strings - RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Venice Modern Strings - это сэмплированный струнный оркестр для Kontakt 5, в котором представлены 8 первых скрипок, 6 вторых скрипок, 5 альтов, 5 виолончелей и 3 контрабаса. В библиотеке представлены три вида легато: портаменто, легато со сменой пальцев и легато со сменой смычка. Они могут быть запущены либо по велосити, по MIDI CC или колесом модуляции. Кроме того, (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NKX, NKI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472E7CDE86E19B9AB5E57DBBC2E4A1022689BFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377647   (851627) от 22.04.2020
 
 Звуковые библиотеки - Ezra Cohen – Odyssey SFX [WAV]
@@ -646,32 +672,6 @@ NNM-Club Sound Cleaner Collection from werter21
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5940B439BBF9CB01F089D41D7D854F250FCB0201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275372   (790324) от 11.01.2019
-
-NNM-Club Sound Cleaner Collection from STouR
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника STouR, активного члена группы Sound cleaner.Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB582C958AB99888202D9B9A30069FC36BDEA536
 ```
 
 https://mybot314.ru/tekegram_catalog/

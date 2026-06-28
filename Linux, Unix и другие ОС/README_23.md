@@ -1,83 +1,3 @@
-###  Публикация: 1076258   (310824) от 26.11.2016
-
-Adobe Dreamweaver CC 13.1 build 6443 [MULTi / Русский] [x86, amd64] (wine)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Dreamweaver CС - новая версия программы для создания профессиональных веб-сайтов. Программное обеспечение для веб-дизайна Adobe Dreamweaver CС содержит интуитивно понятный визуальный интерфейс для создания и редактирования веб-сайтов и мобильных приложений. Используйте «резиновые макеты» (Fluid Grid Layouts) с межплатформенной поддержкой для создания страниц. (   Читать дальше...   )Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0297B438DAF37B51CD5E759C21BE93071125257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077361   (306321) от 28.11.2016
-
-Fedora 25 [i386] 11xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально представлен релиз Linux-дистрибутива Fedora 25. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon. Дополнительно поставляется образ для Docker и сборки для различных устройств с процессорами ARM.
-
-Одновременно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422726   (305904) от 10.11.2020
-
-Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пятнадцать месяцев с момента прошлого выпуска компания Red Hat представила релиз дистрибутива Red Hat Enterprise Linux 6.10. Установочные образы RHEL 6.10 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Ветка RHEL 6.x сопровождается параллельно с веткой RHEL 7.x и будет поддерживаться до 30 ноября 2020 года (цикл поддержки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025CEF17BC712B0758EE4B92681E038BE978522D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422729   (305888) от 10.11.2020
 
 Red Hat Enterprise Linux 7.9
@@ -708,6 +628,86 @@ Linux Mint — дистрибутив операционной системы Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336508   (276854) от 08.11.2019
+
+Red Hat Enterprise Linux 8.1
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 8.1. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. Ветка RHEL (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF000F77DD712C9EC8995CF0BED0202809307F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336507   (275776) от 09.11.2019
+
+Red Hat Enterprise Linux 7.7
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.7. Установочные образы RHEL 7.7 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal и подготовлены для архитектур x86_64, IBM POWER7+, POWER8 (big endian и little endian) и IBM System z. Исходные тексты пакетов можно загрузить из Git-репозитория проекта CentOS.
+
+Ветка (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082617   (275404) от 14.12.2016
+
+CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоялся выпуск дистрибутива CentOS 7.1611, вобравшего в себя изменения из Red Hat Enterprise Linux 7.3. Напомним, что номер версии 7.1611 связан с введением в практику ежемесячной сборки rolling-обновлений установочных образов и отражает время очередной сборки, при том, что в рамках подготовки данной сборки репозиторий был переведён на пакетную базу RHEL 7.3, т.е. (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

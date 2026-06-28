@@ -1,3 +1,61 @@
+###  Публикация: 1781577   (26568) от 24.02.2025
+
+VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Gibb - Juliet
+02. Samantha Fox - I Surrender (To the Spirit of the Night)
+03. Bros - When Will I Be Famous
+04. Sabrina - Boys(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D79607761DB2971D2745A35D788DCA14580B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781830   (26458) от 25.02.2025
+
+VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milli Vanilli - Girl You Know It's True
+02. A-ha - Take on Me
+03. Alphaville - Big In Japan
+04. Laura Branigan - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C71C4F0130A1C8093C04A9E2F90BC376D9D91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782100   (26277) от 27.02.2025
 
 VA - 100 Hits Power Ballads (2016) [AAC|320 Kbps] <Classic Rock, Pop Rock, Vocal>

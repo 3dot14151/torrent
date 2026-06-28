@@ -1,3 +1,84 @@
+###  Публикация: 984496   (938107) от 09.02.2016
+
+Проекты - VideoHive - The Film Channel [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет представление логотипа ТВ канала.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928854E9140DD11B48495083822C0143C3DC1E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985170   (935141) от 11.02.2016
+
+Проекты - Motion Array - 3D Metallic Stone Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A502E355FBEEF1A18939B5EA5C87E7DF019093A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985247   (934985) от 11.02.2016
+
+Проекты - VideoHive - Sea Water Logo Intro [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A00F54D3E28E29679EB4797FDB1BC2A5F90BA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093078   (934846) от 14.01.2017
 
 Проекты - VideoHive - Luxury Logo - 19239624 [AEP]
@@ -603,85 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20049643E0CEE81DDDD43028B93ABDC4B05565CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097711   (913653) от 27.01.2017
-
-Проекты - VideoHive - Black And White Logo Reveal - 17258360 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень стильный и эффектный проект для демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F9402A0D012DC1385DBF1C981AE16781363634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367730   (913416) от 17.03.2020
-
-Проекты - VideoHive - Page Flip Logo - After Effects Template - 22090263 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это проект с быстрой демонстрацией ваших фотографий и логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1895D78F3D3F65480E90DB096A81EAD9A394BB1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990022   (913164) от 24.02.2016
-
-Проекты - VideoHive - Flush Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BC028FF2AA175159EC8BC0B518C95E5E1E18B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1505717   (802940) от 28.10.2021
+
+Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Of Death And The Holy Rose (4:05)
+02. Sin In Me (7:09)
+03. Jetpack (6:27)
+04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120662   (802007) от 31.03.2017
+
+Ultrаnоire - Intrоnаut (2017) [FLAC|Lossless|image + .cue] <SynthPop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technicolor Lies (4:11)
+02. Playing Dead (4:37)
+03. Phantom (3:49)
+04. Poisoned (3:59)(   Читать дальше...   )Жанр: SynthPop, ElectronicПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31241E859D62C5D0A9F61725DC35CB4872B693E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282114   (799989) от 23.05.2020
+
+Tesla Boy - Collection 6 Releases (2010-2020) [FLAC|Lossless|tracks + .cue, tracks] <Synthpop, New Wave, House>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eintrag (0:18)
+02. Абьюзер (4:09)
+03. Музыка моя (4:45)
+04. Почаще (5:10)(   Читать дальше...   )Жанр: Synthpop, New Wave, House |Продолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AA970DD8B430AFCC325ADCDCADD9CA45064DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508230   (797985) от 07.11.2021
+
+Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redshift (8:28)
+02. Distance (8:15)
+03. Next Steps (7:31)
+04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B036BE763BACA1659E784EFA5723E6624A61C0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508227   (797978) от 07.11.2021
 
 VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop, Synthwave>
@@ -630,122 +746,6 @@ Debbie Tebbs - Chrome (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92581903EAAE2E75E4E48E0FBC507E26A24F6DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210710   (778514) от 04.03.2018
-
-HollySiz - Rather Than Talking (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unlimited (02:51)
-02. Rather Than Talking (04:16)
-03. Karma (02:46)
-04. Love is a Temple (03:24)(   Читать дальше...   )Жанр: Indie Pop, Synth-PopПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD84A1ACA596CAE119BE1D17E4BDFA6E0A3F353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277900   (775095) от 22.01.2019
-
-John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossless|tracks + .cue] <New Wave, Lo-Fi>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streetlight (2:53)
- 02. Quantum Leap (2:53)
- 03. ...And the Rain (2:47)
- 04. Hey Moon (4:09)(   Читать дальше...   )Жанр: New Wave, Lo-FiПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B079F47B2314E13605785ECE52EBBA36F5178C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278249   (773016) от 24.01.2019
-
-LaserDance - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless|image + .cue] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Humanoid Invasion (7” Version)
-02. Shotgun (Into The Night) (Remix)
-03. Goody’s Return (Album Version)(   Читать дальше...   )Жанр: Spacesynth |Продолжительность: 02:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACBBA70BBE3E3F8E3BDA6D10021012B33546C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392348   (769233) от 26.06.2020
-
-Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber Ninja (7:05)
-02. Star Polygon (6:33)
-03. Path To Mind (5:43)
-04. Flight To Unknown Planet (5:44)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD7CE5C1B6F2DF05B8EBBF15F6F1A60E4C7EB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

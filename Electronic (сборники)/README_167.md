@@ -1,3 +1,148 @@
+###  Публикация: 1330408   (340616) от 10.10.2019
+
+VA - Dance Generation: Soulfull Party (2019) [MP3|320 Kbps] <Eurodance, Club, Popdance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coen - Aryavarta
+002. Lucio Battisti - Con Il Nastro Rosa
+003. Sm Project - Lethal Industry
+004. Sebastian Suarez - A Long Way From Home(   Читать дальше...   )Жанр: Eurodance, Club, Popdance, ElectroПродолжительность: 11:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3977A7EFC62F1D5C4780320915184791BA7246D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073208   (340560) от 18.11.2016
+
+VA - Maxweb Dance (2016) [MP3|320 Kbps] <Dance, Break Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Atomic Project-We Are Atomi
+02 Cosmic EFI-Let The Battle Begin
+03 Cosmic EFI-Memories
+04 D.Yashnov feat. Reski-Russian Break King(   Читать дальше...   )Жанр: Dance, Break DanceПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFA695557174E9105D77CBB2DAEEA697B89C021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074064   (340367) от 18.11.2016
+
+VA - EDM Top 50 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Campell - Tonight (Holmes & Watson Remix) [02:42]
+02. Patrick Miller - Who's Gonna Know (David May Remix) [03:22]
+03. Andrew Spencer & Aquagen - Here Without You 2.5 (Cj Stone Festival Remix) [03:23]
+04. Astoria Feat. Pitbull - Show Me What U Got (Bodybangers Remix) [03:35](   Читать дальше...   )Жанр: EDMПродолжительность: 05:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDB24957C0F340A75B19FCEB7E2C25C5AB9CB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257953   (340183) от 28.10.2018
+
+VA - Deep House Collection Vol.189 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340183.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airmow & Shadowkey feat. Clelsea Paige  -  Nothing To Lose  (Sixty Remix)
+002. al l bo & Sairtech, Panarin - Black Tower (Original Mix)
+003. al l bo ft. Sairtech & Panarin - Black Tower (Sairtech Edit)
+004. Alain Loden  &  Voiceen  - Don't Let Me  (feat. Voiceen) (Mark Langarde Deep ReMix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D3A2849734186CE44C96C034E7ED0B6AE47CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954675   (340103) от 08.11.2015
+
+VA - Bassleader (07.11.2015) [MP3|320 кб/с]<Techno, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psyko Punkz - Frozen Planet (Official Bassleader 2015 Anthem) (Extended Mix) 05:59
+02. Max Enforcer And Coone - Love X Hate (Radio Version) 03:50
+03. Psyko Punkz - Like A Loco (Extended Version) 04:44
+04. Noisecontrollers - Wolfs (Radio Version) 03:03(   Читать дальше...   )Жанр: Techno, HardstyleПродолжительность: 10:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329084195A4132638D4C550CA3891711F527601F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954652   (340097) от 08.11.2015
 
 VA - Resident Advisor Top 50 Charted Tracks October (2015) [MP3|320 кб/с]<Electronica, Techno, Minimal, Tech House, Deep House>
@@ -618,151 +763,6 @@ VA - Perfect Tech House: Deep Session (2019) [MP3|320 Kbps] <Techno, Tech House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002C4933187F8002F3691B9E7A8D774DE48E8D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074819   (336122) от 20.11.2016
-
-Альберт Артемьев - Планета Глория (2016) [MP3|192 Kbps] <New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Планета Глория
-2. Город богов
-3. Сближение
-4. Сияние небосвода(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4200811D392505A5396D95D82B97E3D0182F4BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074851   (336107) от 20.11.2016
-
-VA - Extra Trance (episode 12) (2016) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronski Speed & Ana Criado - A Sign (Chris Metcalfe Remix) (6:22)
-02. Giuseppe Ottaviani, Christian Burns - Brightheart (Extended Mix) (6:09)
-03. Vintage & Morelli - Contrasts (7:21)
-04. Mhammed El Alami - Dawn (5:39)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5938B23874566713CE77B86A4D111E57D4DA33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419582   (335742) от 30.10.2020
-
-VA - Deep Blue: Pure Deep House (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Murysin - 115 Beats Per Minute
-002. Walid Ivarsson - Xena (Original Mix)
-003. Paul Green - Spring Garden
-004. True Passion - Cherry Bomb(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5077EAE15CB9DB0FD0A468B88A5DD86039C82269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419906   (335717) от 30.10.2020
-
-VA - Autumn Club Beats (2020) [MP3|320 Kbps] <Club, Dance, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Joker - White Sun
-002. Antonio Restivo - Shout
-003. Epizod - The Drop
-004. Electro Boy - Festival (Open Mix)(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 11:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA72D55DBD558609CB947124FD12FC8EF303693F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419899   (335714) от 30.10.2020
-
-VA - Interior Lounge Sounds Vol.05 (2020) [MP3|320 Kbps] <Lounge, Background, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335714.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bastian Clark - Mister Key
-002. Lounge Ibiza Cafè - Coffee
-003. Stepo Del Sol - Touch My Soul
-004. Daniel Ray - Wrapped Around(   Читать дальше...   )Жанр: Lounge, Background, DowntempoПродолжительность: 09:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8BD21B33DD8C3862DB3A6AAC3C65F619C55075
 ```
 
 https://mybot314.ru/tekegram_catalog/

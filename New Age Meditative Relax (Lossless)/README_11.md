@@ -1,3 +1,90 @@
+###  Публикация: 1215791   (756349) от 27.03.2018
+
+Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	In Spiritu Sancti	2:58
+02.	Ave Verum	2:43
+03.	Believe In You	4:31
+04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018615   (755677) от 20.05.2016
+
+Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Ride [5:49]
+ 02. Eagle And Condor [4:52]
+ 03. Cool Breeze [6:59]
+ 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522131   (755290) от 09.01.2022
+
+Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haibe Ajike Amar Sakal
+02. Be Brave
+03. Dure Aji Bahu Dure
+04. My Silence Speaks(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663023   (754996) от 31.05.2013
 
 Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
@@ -653,93 +740,6 @@ Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [A
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128976   (724218) от 27.04.2017
-
-Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness Part I (Meditation Mix) 3:00
-02. Enigma - Mea Culpa Part II (Fading Shades Mix) 6:13
-03. Andru Donalds - Simple Obsession 4:07
-04. Andru Donalds - Wating For The Hurricane 4:45(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936DEF5CF1E44DFFEDF2CCFB35694FD16A7CD4A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129176   (722262) от 28.04.2017
-
-VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial - Cang Ding 4:45
-02. Mythos - Planinata 3:24
-03. Delerium - Flatlands 6:57
-04. Mythos - June 4:58(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8209780D95BABBF0C589B2A61DE41240096DF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023922   (722245) от 06.06.2016
-
-Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of Dawning [00:08:32]
-02. Contemplating Prasada [00:08:51]
-03. Bindu [00:08:33]
-04. Holding a Peaceful Repose [00:08:38](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7BF0691AC5DEC894892B89C98D94531D303040
 ```
 
 https://mybot314.ru/tekegram_catalog/

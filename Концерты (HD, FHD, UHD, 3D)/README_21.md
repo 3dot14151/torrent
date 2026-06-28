@@ -1,3 +1,124 @@
+###  Публикация: 920752   (578630) от 23.07.2015
+
+Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный концерт группы Led Zeppelin на площадке O2 Arena в Лондоне, который посетили 18 тысяч зрителей из 20 миллионов желающих. Порядок песен (стартуют ребята символично с «Good Times Bad Times» – первой песни первого альбома 1969 года), освещение, работа операторов – здесь все подернуто духом реконструкции, но с искренним ощущением чуда. Никакие фильтры и ракурсы (   Читать дальше...   )01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Dick CarruthersПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0572313D529754EED468FCC899A64FC2A3967F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811614   (578406) от 10.08.2014
+
+Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Презентация альбома «Sub Mira» в клубе «Da:Da», Санкт-Петербург, 31.08.201301. Souls Connection
+02. Maiden Bright
+03. Phenomenon
+04. Double Twins(   Читать дальше...   )Жанр: Ethno-con-fusion, Trip-Hop, DowntempoПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC585EAF40B0B86B68F40FBCDF1F0C7E8BEA5F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526929   (578367) от 25.07.2012
+
+Rammstein - Live aus St. Petersburg (2012) BDRip 720p
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Sonne
+03. Wollt Ihr Das Bett In Flammen Sehen?
+04. Keine Lust
+05. Sehnsucht
+06. Asche zu Asche
+07. Feuer Frei!
+08. Mutter
+09. Mein Teil
+10. Du Riecht So Gut(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 01:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360941   (576577) от 10.07.2011
+
+Stomp: Live (2009) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stomp has grown from its beginnings on the streets of Europe into an international sensation, with touring productions all over the world, and long running shows in London, Las Vegas and Broadway. This special performance brings together performers from the West End, New York and Vegas for the very first time, to Stomp's home town and the theatre where many of the routines were originated: Brighton Dome.
+
+ ...Мы живем в мире разнообразных предметов, поэтому стучать можно по чему угодно. При этом звук от железа, пластика и дерева будет разный, и различное звучание даст музыку. Всякий городской шум, а особенно сочетание шумов, рождает неповторимый ритм, чью поэзию мы просто не замечаем, но она тем не менее существует. Если правильно взглянуть на вещи - простая уборка мусора превращается в поэму экстаза. Из этой идеи исходят авторы шоу "Stomp", сумевшие создать из надоевших горожанам издержек урбанистической среды остроумнейшее представление. Его основной прием - превращение в ударные инструменты любого (   Читать дальше...)Жанр: show, dance, drumsРежиссер: Люк Крессуэлл, Стив МакНиколасАктеры: Conroy, Melanie Joseph, Keith Middleton, Andy Patrick, John SawickiПеревод: не нуждаетсяПродолжительность: 1:49:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361258   (576429) от 10.07.2011
 
 Кайли Миноуг (Концерт в Лондоне) /  Kylie Minogue - Aphrodite Les Folies, 2001  [1080i] (2011) HDTV
@@ -623,116 +744,6 @@ The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:477356BFC5439FB6BD7C7C5DD266F495769780B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924684   (557402) от 04.08.2015
-
-Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557402.jpg" />
-</div>
-
-
-###  Подробнее
-
-После землетресения в 2011году на Фукусиме, Япония. Рок - группа Aerosmith дала ряд концертов в Японии в 2011году, об этом туре Eagle Rock Entertainment выпустил в 2013году фильм - концерт Aerosmith - Rock For The Rising Sun.01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97D161FE845994026EDE91F57F7B209A16E966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153903   (556798) от 28.07.2017
-
-The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556798.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2004 году The Who вернулась на фестиваль Isle Of Wight впервые после их легендарного выступления 1970 года. После долгого отсутствия фестиваль был возрожден в 2002 году. Концерты Who's UK в 2004 году были первыми в их родной стране со времени смерти основателя Джона Энтвисла.1. I Can’t Explain
-2. Substitute
-3. Anyway, Anyhow, Anywhere
-4. Who Are Youhide=Производство: Великобритания / Eagle Rock EntertainmentЖанр: RockПродолжительность: 02:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F72C8DDB18599BF432C4996CD454CEC9809F738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236052   (556270) от 15.07.2018
-
-Квартирник на НТВ у Маргулиса. Мгзавреби (07.14.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556270.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мгзавреби" - грузинская музыкальная группа, образованная в 2006 году в Тбилиси. На "Квартирнике" они исполнят лучшие песни специально для телезрителей НТВ.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F6E6E1042CEFE0EC0E6219CA09A72E3117CD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305948   (555916) от 02.06.2019
-
-Квартирник НТВ у Маргулиса. Юрий Лоза (01.06.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске в гости к Евгению Маргулису пришел российский певец и композитор Юрий Лоза. Известность к артисту пришла, когда он был участником группы «Зодчие», но его самая известная песня «Плот» была исполнена уже сольно. Артист поделился интересными воспоминаниями из жизни и творчества, а также исполнил свои лучшие композиции. Звездный гость и ведущий «Квартирника» (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3B376A36F31C05180DE9626114785FAC3D9876
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 960358   (305448) от 29.11.2015
+
+Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Hyde (06:21)
+02. Video Night (04:42)
+03. Remember September (04:17)
+04. Lady Mystery (05:32)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A04B1EFEF486E89BDA95B89CA619566B412EE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261208   (305336) от 10.11.2018
 
 Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
@@ -713,35 +742,6 @@ Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B1BBA573168F5B551E5947E2DA47A32DA1A88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079842   (294192) от 04.12.2016
-
-VA - Pop Decades: 00s (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnarls Barkley - Crazy (2:58)
-02. Jason Derulo - Whatcha Say (3:41)
-03. Sean Paul - Like Glue (3:53)
-04. Flo Rida - Right Round (3:24)(   Читать дальше...   )Производство: RhinoЖанр: PopПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F716B189187F94B7C765B45C31D0F81749FBACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

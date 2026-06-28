@@ -1,3 +1,119 @@
+###  Публикация: 1368008   (909074) от 20.03.2020
+
+Александр Рябцев - Ностальгия (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Расставание (4:31)
+02. На одном дыхании (3:45)
+03. Осень (3:38)
+04. Влюблённая во флейту (4:49)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098310   (908944) от 30.01.2017
+
+Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:07:37]
+02. A Safe Place [00:06:00]
+03. Sensing the Emotion [00:03:16]
+04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098324   (908937) от 30.01.2017
+
+Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacramental Song
+02. Will You Marry Me
+03. Where Are You
+04. Thunderheart(   Читать дальше...   )Жанр: New Age, Contemporary ChristianПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A7E71DBF46E90FBE9A8689CD4829CADF2852E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098274   (908862) от 30.01.2017
+
+Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New Age, Celtic, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Cuilfhíonn (3:43)
+02. Our Wedding Day (She Moved Through The Fair) (4:31)
+03. The Lark In The Clear Air (3:52)
+04. The Norwegian Minstrel Boy (3:25)(   Читать дальше...   )Жанр: New Age, Celtic, Neo-ClassicalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30D78B9BF6135B6F0C6096668C5E976C38BC6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966507   (908812) от 20.03.2020
 
 Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
@@ -630,122 +746,6 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369396   (903401) от 23.03.2020
-
-Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazca & Wayra Rodriguez - Ancient spirit
-02. Nazca & Wayra Rodriguez - Ceremony
-03. Nazca & Wayra Rodriguez - Vision
-04. Nazca & Wayra Rodriguez - Dream catcher(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A3496CBFB8D1486DEAF068DFD64E11CE9AC7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099659   (903399) от 02.02.2017
-
-Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music for Pregnant Women (16:00)
-02. Touch of Magic (05:46)
-03. Bluebells and Angels (05:11)
-04. Sanctify (06:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D713BA18DF55B6B4068E3FAD8F6A2C53AE67BC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099606   (903376) от 02.02.2017
-
-Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  She Is Untouchable  (06:37) 
-02|  The Journey  (05:38) 
-03|  Gift from the Spirits  (07:01) 
-04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099714   (903278) от 02.02.2017
-
-Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Misty Morning Across the Water (05:48)
-02. Drifting (05:09)
-03. Lonely Shore (05:21)
-04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
 ```
 
 https://mybot314.ru/tekegram_catalog/

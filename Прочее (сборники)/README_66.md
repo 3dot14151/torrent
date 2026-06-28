@@ -1,3 +1,205 @@
+###  Публикация: 1218592   (720902) от 10.04.2018
+
+VA - 100 Самых красивых и необычных песен (2018) [MP3|320 Kbps] <Pop, Rock, Country>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Lovesong
+002. Morland - Skin
+003. Katie Melua - If You Were A Sailboat
+004. Morten Harket - Darkspace(   Читать дальше...   )Жанр: Pop, Rock, CountryПродолжительность: 06:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B022675CF20D2140CA1C7D093749E720720F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129531   (720698) от 29.04.2017
+
+VA - Eurodance Compilation (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr. President - 4 On The Floor  3:17
+02.  DJ BoBo - Amazing Life  4:01
+03.  E-Type - Angels Crying  3:51
+04.  Activate - Let The Rhythm Take Control  3:32(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B111892CD241D8E090306AEBD9AA9CC23CC54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024122   (720430) от 07.06.2016
+
+VA - Ultimate Dance Crazy Shakers (2016) [MP3|253-320 кб/с] <Dance, Euro, Disco, Electronic, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr Sam - Zigomar (Original Mix) 06:33
+02. Jezzpi Feat. Nick Ray - Uncontrolled (Extended Mix) 05:50
+03. Sasha Primitive - Stop (Original Mix) 06:11
+04. TV Noise Ft. Bright Sparks - Bring Me Down (Extended Mix) 03:29(   Читать дальше...   )Жанр: Dance, Euro, Disco, Electronic, Hands UpПродолжительность: 09:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACF79E81EFFCAEE8D53DE60AE868489F0A3F247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024080   (719954) от 07.06.2016
+
+VA - Young, Fresh & Disco (2016) [MP3|320 кб/с] <Soulful House, Dance,Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Palma - Cada Vez (Remember & Feedback Radio Remix) (03:28)
+02. Solanos - Childish Freedom (05:37)
+03. Bug & Heck - Falling Stars (feat. J&J)Жанр: Soulful House, Dance,Nu-DiscoПродолжительность: 03:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9399D1DE4AE1A0E71EA73092359B6C615916DFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024114   (719298) от 07.06.2016
+
+VA - Top 100 Club Tracks (May 2016) (2016) [MP3|320 кб/с] <Dance, Club, Club House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva Simons - Mr. Policeman (Alex2Rome Mashup)
+02. MiM feat. Jaw & Emma Lamadji - Karma (TBBT Remix)
+03. Carla's Dreams - Sub Pielea Mea (Geroina) (D' Luxe & Phoenix Remix)
+04. Laidback Luke Feat Jonathan Mendelsohn - Till Tonight (Fly & Leo Grand Remix)(   Читать дальше...   )Жанр: Dance, Club, Club House, ElectroПродолжительность: 07:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE05BDA0327695429010C4E96848CD2AE53B65CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285644   (719053) от 27.02.2019
+
+VA - New Music Releases Week 8 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719053.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Lambert - Feel Something
+002. Aldous Harding - The Barrel (Radio Edit)
+003. Alex Cuba - Yo No Sé
+004. Alma - Starlight(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 15:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E8997896EA759A115BBACBDF73EBF6BE71BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129929   (718831) от 30.04.2017
+
+VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kindervater - Eight (Extended Mix)
+002. Dj Matrix - Cr9
+003. O-Zone - Dragostea Din Tei (Dj Zed Remix)
+004. Laidback Luke Feat. Majestic - Pogo (Deorro Remix)(   Читать дальше...   )Жанр: Club, Dance, House, Mush UpПродолжительность: 07:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130019   (718710) от 30.04.2017
 
 VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -542,209 +744,6 @@ VA - Music News vol.167 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE7C68198CFC024935D53C60F2B75EA3BA641BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286120   (714364) от 01.03.2019
-
-VA - Дискотека 2019 Dance Club Vol. 188 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka 2019!):
-01. Катя Чехова - Дискотека (NewRetro Remix) (3:54)
-02. Zeyn - Silence (3:48)
-03. Dj Vianu x Vict Molina - Save Me (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 29:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488CF0E52FAAF56C002E5A599A3C1B0D6C84BC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130562   (714131) от 02.05.2017
-
-VA - СОЮЗ 60 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Егор Крид & Molly - Если ты меня не любишь  3:27
-02.  Светлана Лобода - Случайная  3:53
-03.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
-04.  Burito - По волнам  3:19(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2588EFCEC7A76D5AAA5C8A00AF9106ECD8600D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130540   (713921) от 02.05.2017
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol.60 (2017) [MP3|320 Kbps] <Pop, Rap, House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713921.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Anthony El Mejor - Такси Такси (Radio Cover Edit)  3:35
-002.  Monatik - УВЛИУВТ (Pride  Kashtan Remix)  3:41
-003.  Джиган - Дни и Ночи  3:06
-004.  Ленинград - Экстаз  3:48(   Читать дальше...   )Жанр: Pop, Rap, House, Club, DanceПродолжительность: 05:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D763DC092C4EC9FB11F54D9B3B082040908D3733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219346   (713902) от 14.04.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 13.04.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-BooL Giang Pham - DJ Is Your Second Name
-02. Jax Jones feat. Ina Wroldsen - Breathe
-03. ZAYN feat. Sia - Dusk Till Dawn
-04. CamelPhat Elderbrook - Cola (Robin Schulz Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D944F59BFC004B623FFA9D36C05B106C676BFF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219394   (713783) от 14.04.2018
-
-VA - DFM Top 30 D-Chart 13.04.2018 [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janieck - Does It Matter
-02. Katy Perry - Roulette
-03. Avicii - Lonely Together (feat. Rita Ora)
-04. David Guetta Afrojack feat. Charli XCX French Montana - Dirty Sexy Money(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608329DBC380AFFD641934C44FD47207BA92AD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401020   (713473) от 08.08.2020
-
-VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Head & Heart (feat. MNEK)
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. Nathan Dawe - Lighter (feat. KSI)
-04. Harry Styles - Watermelon Sugar(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39054FDDA8ECECE7A779714ADBF2D7CEE5E53823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401026   (712974) от 08.08.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 07.08.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NRD1 - All Good Things (Come To An End) (3:27)
-02. Imanbek & Martin Jensen - I'm Just Feelin' (Du Du Du) (2:45)
-03. Regard & RAYE - Secrets (2:56)
-04. Pascal Letoublon - Friendships (4:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6D0ABAC3E7C5617939463C869527ED1BAC0B96
 ```
 
 https://mybot314.ru/tekegram_catalog/

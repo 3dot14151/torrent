@@ -1,3 +1,119 @@
+###  Публикация: 1581275   (327216) от 05.10.2022
+
+Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edelo (Intro) [00:01:41]
+02. Disco on The Baltic Sea [00:03:17]
+03. Changed Plans [00:02:38]
+04. Brutal Resonance [00:03:42](   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D81AA87551C9A64D5B49798762D490F137C936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582030   (323481) от 09.10.2022
+
+Occams Laser - Occult 91 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prometheus (00:03:20)
+02 - Charred (00:04:06)
+03 - Kindling (00:04:09)
+04 - Scintillation (00:02:18)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA25A0FCC908CB5C232812573CB0BAA9B9D100C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259189   (323386) от 02.11.2018
+
+Tesla Boy - Remedy (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes
+ 02. Compromise
+ 03. Different
+ 04. Glow(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C07DF50CA430884DD6AE857581DEDFFFB65ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075147   (323155) от 21.11.2016
+
+The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLAC|Lossless|image + .cue] <Synthpop, New-Wave, Art-Pop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On Your Own [4:13]
+02. Human (Extended Version) [5:06]
+03. I Need Your Loving (DJ Edit) [2:54]
+04. Love Is All That Matters (Edit) [2:59](   Читать дальше...   )Жанр: Synthpop, New-Wave, Art-Pop, ElectronicПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9818682C6A6FA8A055B3138E22080AF4A11734AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959026   (319266) от 23.11.2015
 
 The Cars - Just What I Needed (1995) [FLAC|tracks+.cue]<New Wave>
@@ -629,122 +745,6 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE39E6541122F5DA9475B60BD9FCED07B1525D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333400   (305401) от 24.10.2019
-
-VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arwelone - Everlasting Journey (4:45)
-02. Richard Alfaro - Eon (3:24)
-03. Kameron - Furnace (3:56)
-04. Tune Crashers & Starblaster - Angel of Attack (3:53)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB96422BC59839F193915AD93983067045742CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333370   (304948) от 24.10.2019
-
-VA - Future City Records Compilation Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aminova - Hexapheme (3:01)
-02. Limited Impressions - Crowded (5:26)
-03. Lolski - Downtown District (3:53)
-04. Crystal Bridge - The Secret Letter or Two Overboard (3:05)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B0BC183FD142AC2B2F092123090668C2E92D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961228   (301121) от 01.12.2015
-
-Silicon Dream - Time Machine (1988) [FLAC|tracks+.cue]<Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Machine (You Are the Master of Time-Age) (5:59)
-02. Jimmy Dean Loved Marilyn - Film ab (The Holywood-Age) (3:39)
-03. Corleone Speaking (The Chicago-Age) (4:48)
-04. Holiday in St. Tropez - Eating Pizza in Ibiza (The Cola-Age) (4:20)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3749B07F0CB1FA837A1BCB99CF7155D50B3B422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261804   (301090) от 12.11.2018
-
-Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Dream 05:57
-02. Giant Star 04:19
-03. Space Wanderer 04:41
-04. Romantic Warrior 05:21(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0942956DCBEF2C3A4B6FB4854CF114AF4A6EC24B
 ```
 
 https://mybot314.ru/tekegram_catalog/

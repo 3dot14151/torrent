@@ -1,3 +1,119 @@
+###  Публикация: 1568718   (459623) от 09.08.2022
+
+The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246839   (459168) от 12.09.2018
+
+Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Valse
+02 Serenade
+03 Faulkner's Sleep (D-Moll)
+04 Field(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162340   (458912) от 01.09.2017
+
+Тюргэн Кам - Ahoi (2011) [MP3|320 Kbps] <Rock, Folk, Modern Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Легенда
+02. Энесай (Ahoi)
+03. Самагалдай
+04. Моя тайга(   Читать дальше...   )Жанр: Rock, Folk, Modern EthnicПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75BC3E69794625E5324AEB03F72679FF86303B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408279   (458008) от 11.09.2020
+
+Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best of My Love (4:12)
+ 02. Peaceful Easy Feeling (4:08)
+ 03. Hotel California (4:29)
+ 04. Take It to the Limit (3:33)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941995   (457968) от 29.09.2015
 
 Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age, Vocal, Mantras>
@@ -634,120 +750,6 @@ Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CA64642B0CC0192D1AF826A0004663F4B323D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163307   (450102) от 05.09.2017
-
-Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi mai (From "Maddalena")
-02. Il colore dei suoi occhi (From "La disubbidienza - La désobéissance")
-03. Sotto la pioggia (From "La califfa - The Lady Caliph / The Queen")
-04. Four Interludes (From "Cinema paradiso")(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B9B16F0EAC48D5BDB547F84B3294349D4DBD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392412   (450050) от 16.09.2018
-
-Канцлер Ги - 17 альбомов (2002-2017) [MP3|97-320 kbps]<Нео-Фолк/блюз>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя исполнительницы - Майя Вячеславовна Котовская — автор и исполнитель песен. Основатель проекта «Брэган Д’Эрт».
-	Родилась 24 июня 1979 года в Свердловске (ныне Екатеринбург). Пишет песни и музыку с 1995 года. Окончила музыкальную школу по классу фортепиано, гитару освоила самостоятельно в 2000 году. Увлекается музыкой (фолк, соул, джаз), историей Средних (   Читать дальше...   )Жанр: нео-фолк,фьюжн,блюзПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943430   (449448) от 03.10.2015
-
-Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give to You
-02. Backlash
-03. Crawl
-04. Rigor Mortis(   Читать дальше...   )Жанр: Soundtrack (Unofficial)Продолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E046BBAD6288C979AECCE0114FE6F257BFEDBE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409132   (449328) от 15.09.2020
-
-Christopher Phillips - Piano Chill: Songs of James Taylor (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire and Rain (3:59)
- 02. Your Smiling Face (3:46)
- 03. You've Got a Friend (4:34)
- 04. Don't Let Me Be Lonely Tonight (3:39)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AF426F9337669EA6D3252AB26F7CF8F7EE3A22
 ```
 
 https://mybot314.ru/tekegram_catalog/

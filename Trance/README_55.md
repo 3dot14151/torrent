@@ -1,3 +1,90 @@
+###  Публикация: 1272217   (145595) от 26.12.2018
+
+VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - A State of Trance: Year Mix 2018 (Intro: License To DJ)
+002. Omnia - Cyberpunk (Original Mix)
+003. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
+004. Audien feat. Cecilia - Higher (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9657E9B255E8A451FFE9BD646FA3744ECF915C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272442   (144729) от 27.12.2018
+
+VA - The Best of Suanda Progressive (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roman Messer & DJ Xquizit ft. Osito - Empire of Our Own (LTN Extended Sunrise Remix)
+02.LTN - Wind & Cloud (Denis Sender Extended Remix)
+03.Alexander Chekomasov - Azimut (Extended Mix)
+04.Mivase - Hypnotised (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B0872DA296CEA37E5140A3B83E2D39EE22FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272303   (144715) от 27.12.2018
+
+VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tycoos - 717 (Extended Mix)
+02. Paul Boyle - Believe (Extended Mix)
+03. Cris Grey - Parallel Dimension (Extended Mix)
+04. Ozo Effy & RYDEX - The Eridium (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA11143627058BFFC0C5F3306C71341D90EB2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272305   (144710) от 27.12.2018
 
 VA - Tangled Audio: Best Of 2018 (Mixed by Duncan Newell) (2018) [MP3|320 Kbps] <Trance>
@@ -652,93 +739,6 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11DA8FD0F1523702D3A88CD4FAC8D685E9E07E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681622   (132711) от 03.12.2023
-
-VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila x Alex M.O.R.P.H. feat. Cheryl Barnes - Eye Of The Storm (Extended Mix) [7:55]
-02. MurZo - Kiss The Night (Extended Mix) [7:12]
-03. Philippe El Sisi & Omar Sherif - Sunrise In Buenos Aires (Extended Mix) [6:18]
-04. Aly & Fila x Chapter 47 x Richard Bedford - Edge Of Tomorrow (Extended Mix) [8:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAF05932C9D0382C08BC51A3455CC77077316E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681629   (132109) от 05.12.2023
-
-VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GRUE & Av & Ocean.Pop - Without You (Original Mix) [4:21]
-02. Dreamy & Josie Sandfeld - Take It All Away (Suprano Progressive Remix) [4:52]
-03. Alexander Turok - B Side (Extended Mix) [4:51]
-04. Arjans - Happenstance (Extended Mix) [6:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8FB5403F03FCD1EE6FA402828E928C140FDB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681862   (132105) от 05.12.2023
-
-VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Somnia - The Edge (Extended Mix) [5:23]
-02. Tom Exo - Sidereum (Extended Mix) [6:34]
-03. Somnia - Afterglow (Extended Mix) [5:26]
-04. Trance Reserve & DaWTone - This Is My DNA (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FBEC1E741035BE403D22D4368DEC9CE60B467
 ```
 
 https://mybot314.ru/tekegram_catalog/

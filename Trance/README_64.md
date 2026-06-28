@@ -1,3 +1,87 @@
+###  Публикация: 458278   (79547) от 02.03.2012
+
+VA - Markus Schulz - Global DJ Broadcast Top 15 (2008-2011) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 98:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED099B26C71241D66A596003CFE2F9A0DEEB512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770671   (71975) от 02.01.2025
+
+VA - Ablazing Winter Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mercurial Virus - Legacy (Rene Ablaze Extended Remix) [6:54]
+02. Transaphonic - Beamworld (Extended Mix) [7:05]
+03. Fischer & Miethig - Magic Destinations (Extended Mix) [7:03]
+04. Thomas Lloyd & Hidden Tigress - Faded Whisper (Claas Inc. Extended Remix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE5292DA8C718CB110D2B80E1D2D5F88D22C55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770622   (71974) от 02.01.2025
+
+VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lloyd - Fly Me Back (N-sKing Extended Remix) [6:41]
+02. ICARUS PROJECT - Elysian Fields (Extended Mix) [6:07]
+03. Peter Agyagos - The Last Of Us (Extended Mix) [6:34]
+04. Liam Bailey (UK) - Solenoid (Extended Mix) [7:02](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E81F3B1271C9AE014072666F59636464487D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770677   (71956) от 02.01.2025
 
 VA - Ultima Audio: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
@@ -658,93 +742,6 @@ VA - Nothing But... Trancetopia, Vol. 23 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D32CEF4B59F7027F298631CD998BBD0161CE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776844   (71162) от 02.02.2025
-
-VA - Sky Chaser - Yearmix 2024 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa & Elara - Emotion (Mixed) (Intro Mix) [06:48]
-02. Costa & Sarah Lynn - Let Yourself Be Loved (Mixed) (Extended Mix) [04:08]
-03. Costa & Susanne Teutenber - Heart Above Water (Mixed) (Extended Mix) [04:15]
-04. Costa & Emilya Buchan - Break The Spell (Mixed) (Extended Mix) [04:47](   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865F07C6FF3EE33FA99B99AE00EBD7309120D1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776947   (71157) от 03.02.2025
-
-VA - Alex Sonata & TheRio - 25 Years Of Anjuna (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drill & Alex Sonata & TheRio - The Drill (Extended Mix) [6:08]
-02. Norin & Rad - Bloom (Extended Mix) [6:56]
-03. Fatum, Genix, Jaytech & Judah - All In (Extended Mix) [6:21]
-04. Cramp - RU116 (Cramp 2020 Extended Mix) [6:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3947B7EC091DA0EC5300E9B3E1257BF8644B4913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776886   (71154) от 03.02.2025
-
-VA - Trance Anthems 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Welcome To The Future (Schiller Extended Remix) [6:15]
-02. Paul van Dyk - For An Angel (Kolonie Remix) [7:12]
-03. Mark Sherry & Peetu S & Emma Gillespie - Open Ocean (Extended Mix) [7:07]
-04. John O'Callaghan & Paul Skelton & Ren Faye - May The Road Rise (Extended Mix) [8:06](   Читать дальше...   )Жанр: TranceПродолжительность: 04:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B5101E3E6E2212841723A909EA989DB0C41399
 ```
 
 https://mybot314.ru/tekegram_catalog/

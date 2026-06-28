@@ -1,3 +1,29 @@
+###  Публикация: 1191734   (264085) от 14.12.2017
+
+Обои - Новогодние картинки [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю небольшую подборку новогодних картинок для рабочего стола.Формат: JPG, PNGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F52E953AEFA691B335AFBE0FFFEB03BF238DFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340436   (264001) от 23.11.2019
 
 Wallpapers Кошачьи #68 [JPG]
@@ -657,36 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB07B094595C5F641B29ECD8EF7D2C9FD847B0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500567   (257107) от 23.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack 34
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257107.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack 34
-Название: Computer Desktop Wallpapers Pack 34
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B59956307EE72FE6B964AEFEA1F78095A79AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

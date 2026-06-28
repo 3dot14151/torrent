@@ -1,3 +1,29 @@
+###  Публикация: 600611   (998668) от 09.01.2013
+
+Nature Wallpapers (08.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600591   (998666) от 09.01.2013
 
 Nature Wallpapers (06.01.13) [Wallpapers]
@@ -659,32 +685,6 @@ Wallpapers - Зимнее настроение [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14F9B69798D84F4476A6932A148FD799591C86BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609925   (991005) от 28.01.2013
-
-Wallpapers - Обои для ноутбуков [JPEG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1366x768Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E71BBC7B715DF4199920EA96F078C6916E4F19
 ```
 
 https://mybot314.ru/tekegram_catalog/

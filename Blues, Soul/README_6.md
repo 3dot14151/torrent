@@ -1,3 +1,32 @@
+###  Публикация: 1007727   (819808) от 16.04.2016
+
+Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil Keep Chewin' (02:51)
+02. 40 Years in Bars (05:37)
+03. Some Buddy Like You (04:21)
+04. Kiddieville (04:54)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99307AC841740D879FC3AED6B32D7CC0907F2EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382995   (815449) от 13.05.2020
 
 VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Troy Brooks - All I Need (2013) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E606A7C2F7932D57666C270D9E8CB44E2B44A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509210   (795544) от 11.11.2021
-
-Gov't Mule - Heavy Load Blues (2021) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Before Sunrise
-02. Hole In My Soul
-03. Wake Up Dead
-04. Love Is A Mean Old World(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0099D4532BE38A16114268FD5978049169367D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

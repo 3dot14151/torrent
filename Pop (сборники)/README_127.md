@@ -1,178 +1,3 @@
-###  Публикация: 487603   (90412) от 24.04.2012
-
-VA - В Машину! Русский Vol.2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Евгений Белозеров - Разбитое Сердце
-02. Soda - Разлука
-03. DJ Настя Крайнова - Я это ты
-04. Titan Brothers - Мне Надо
-05. Лоя - Розы Темно-алые
-06. Ани Лорак - Обними Меня
-07. 5ivesta Family - Тук-Тук (Alex Menco Remix)
-08. Киевэлектро - Поцелуй
-09. Арина и Размер Project - My Moscow Love
-10. Марка (Марк Савин) - Я Не Жалею2012Жанр: PopПродолжительность: 05:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05B399A0FB1C855B836EECD4F80B23E611C7357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486290   (90023) от 22.04.2012
-
-VA - Лучшие Хиты Радио DFm Часть 8 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Митя Фомин - Хорошая Песня
-002 Thomas Anders and Kamaliya - No Ordinary Love
-003 Blondy feat. Ira Champion - Прости (Burzhuy Extended)
-004 DJ Bobo - Everybody's Gonna Dance (Bryce Remix Edit)
-005 Света - Не новая игра
-006 Fidel Wicked - Enjoy Your Life (Radio Mix)
-007 Афродита - Валера
-008 Dima Meleshkin feat. Romanoz - Caruso (radio edit)
-009 Katty - Тебя не слышно
-010 Michel Telo - Ai Se Te Ue Pego (Sagi Abitbul Remix)2012Жанр: PopПродолжительность: 06:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB65F1ED13203202D8146EEE48B386DDD4143139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486596   (90007) от 22.04.2012
-
-VA - Memories are Made of This (1999) 10CD [MP3|320 кб/с]<Oldies>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Matt Monro - Born Free
-02 Malcolm Vaughan - More Than Ever (Come Prima)
-03 Andy Williams - Canadian Sunset
-04 Al Martino - The Story of Tina
-05 Alma Cogan - Little Things Mean a Lot
-06 Frank Ifield - Call Her Your Sweetheart
-07 Beverley Sisters, The - Greenfields
-08 Vera Lynn - The White Cliffs of Dover
-09 Vic Damone - Let's Face the Music and Dance
-10 Peggy Lee - I've Got the World on a String(   Читать дальше...   )1999Жанр: OldiesПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368DC8CABB70CBDD0A933F7568125EF95F6D61E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485863   (89789) от 21.04.2012
-
-VA - Плэйлист Love Radio (2012) [PCM|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bunhead - Am The Best (Kuba S Remix)
-002 Натаника - Замужняя Девушка
-003 Jennifer Lopez feat. Pitbull - Dance Again (Extended Mix)
-004 Шима - Океан
-005 Star Mind - Japanese Boy
-006 DJ Richi - Пляж (Radio Mix)
-007 Ellie Goulding - Lights (Sex Ray Vision Remix)
-008 Ани Лорак - Я Буду Солнцем
-009 Leyla - Fallen Angels
-010 Евгения Власова - Красивые и Богатые2012Жанр: PopПродолжительность: 06:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A11E539F1BA2D98954C57F7271D1F733118ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486061   (89784) от 21.04.2012
-
-VA - Жаркие Танцы. Europa Plus (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89784.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кристина Орбакайте И Thomas N'evergreen - Тайна Без Тайн (Dance Version) (3:50)
-2. Жасмин - Тук-Тук (3:18)
-3. Sasha Lopez & Andreea D. Feat. Broono - All My People (3:47)
-4. Eugene Star - Electro Pavlik(Mem Mix) (3:41)
-5. Макsим - Осколки (Dj Viduta & Dimixer Remix) (4:08)
-6. My Project - Не Говори (4:08)
-7. Dj Sava Feat. Andreea D & J. Yolo - Money Maker (3:45)
-8. David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (3:12)
-9. Анна Седокова - Love U (3:03)
-10. Дядя Жора - Губки Уточкой (3:21)2012Жанр: PopПродолжительность: 05:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D13C0EAF991EE3703673B41CC753F238597633F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485675   (89779) от 21.04.2012
 
 VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 кб/с]<Pop>
@@ -901,6 +726,181 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA19DEFFFD4332C42282A8D2588E07EA9FCAD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478613   (87351) от 09.04.2012
+
+VA - Музыка для отличного настроения (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шахзода - Все Только Начинается
+02. Неангелы - Прощай
+03. Никита - Танец В Темноте
+04. Винтаж и DJ Smash - Москва
+05. Dante - My Electronic Love
+06. Инфинити - Не Молчи
+07. Турбомода - Супер Мега Пати
+08. Алёна Высотская & Elvin Grej - Это Любовь
+09. Пропаганда - Наберу (Dj Serzhikwen Club Extended Mix)
+10. Пальчики Оближешь - Любовь, как сон(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE4EA9C80FD71E931BF723590B466245882A07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478834   (87343) от 09.04.2012
+
+VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Марта - Это любовь была
+02. Алисия - Небо желаний (DJ Fisun remix)
+03. Hi-Fi - Хорошие песни
+04. Даша Суворова - Я пою тебе
+05. Света - Я улетела
+06. Дискотека Авария - Воля и разум
+07. Градусы - Запишу свое сердце на секцию плавания
+08. Вельвеt - Нанолюбовь (LaTrack mix)
+09. МакSим - Как летать (DJ Shevtsov & Alex Menco remix)
+10. Митя Фомин feat. StuFF - Перезимуем (URAL DJS dance mix)(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAF98762FEFF26A8976ED40869570323B95083F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479045   (87338) от 09.04.2012
+
+VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мурат Тхагалегов - Украдёт и позовёт
+02. Вагир Удмагаев - Поровну
+03. Coctail Royal - Прикосновение
+04. Азамат Юсупов - Танцовщица
+05. Silva Hakobyan - Hat-Hat
+06. Расул Сеитов - Ногайская плясовая
+07. Tоur Best - Обними Меня
+08. Кристина - Твои Глаза
+09. Аслан Кулов - Да, да,да опять звоню
+10. Айдамир Эльдаров - Кареглазая Белая Сирень(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB888CBEB0A7F761F551A4B1AD80196B43BF1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478567   (87328) от 09.04.2012
+
+VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alyosha - Феромоны любви
+02 Britney Spears - Criminal (Dj Sergey Fisun Bootleg remix)
+03 Влад Соколовский - До небес
+04 Sander van Doorn - Koko
+05 5sta Family - Вместе Мы
+06 Bel-Agio feat. Vybrate - Seek love tonight
+07 Градусы - Заметает
+08 Demi Lovato - Give your heart a break
+09 Марсель - Не ищи
+10 Simon From Deep Divas feat. Goody - Disco dancer2012Жанр: PopПродолжительность: 05:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54885B32F042C84E70249E8EB359BB0967A3A0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479282   (87317) от 09.04.2012
+
+VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Reflex - Адреналин
+02 Ace Of Base - Would You Believe (Summer Version)
+03 Elvira T - Все Решено (Alex Curly Remix)
+04 Katy Perry Feat. Snoop Dogg - California Gurls (Mstrkrft Remix)
+05 Жанна Фриске И In-Grid - Падает Снег
+06 Armin Van Buuren Pres. Gaia - Status Excessu D (Radio Edit)
+07 Март Романов - Континенты (Dj Groove Remix)
+08 Vivien Ohara Feat. Adrian Sana - Too Late To Cry
+09 Dj Карась & Mc Shayon Feat. V.Tsymbal - Будет Снег
+10 Tom Pulse - Hip Flip (Sunshine Mix)(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E134CD41B4536C9E2F52CB9BAFA160EFC93DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

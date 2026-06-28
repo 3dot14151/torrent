@@ -1,3 +1,148 @@
+###  Публикация: 1864671   (1065099) от 
+
+Sabaton - REDISCOVER Sabaton (2026) [MP3|320 Kbps] <Power Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Templars (4:54)
+02. The Unkillable Soldier (4:11)
+03. Father (4:38)
+04. Steel Commanders (3:51)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 03:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8826C3210F8557A2F2ABE0623B16BAD887933E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864783   (1065074) от 
+
+VA - Украинский рок (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BaWN - Хороший громадянин (02:46)
+ 02. Electrobirds - Вітер, неси (05:17)
+ 03. Epolets - Уревнощах (02:55)
+ 04. Ikigai - Життя так сильно било (03:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB05EECE4B5667DDB4656003E6E652A40774579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865004   (1064869) от 13.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Without Miracles
+02 - The Last Bite
+03 - The Two Halves
+04 - Whiskey and Broken Wings(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EA7FFBFB5D92A36CFBCE6457FEC7BE2AC5BC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864588   (1064794) от 
+
+Daniele Gazzarin - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Don’t Have Your Faith
+02 - All This Will Be Heaven, All This Will Be Hell
+03 - You Are My Sky
+04 - Ice Without God(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA6B87DA253B52E1DE7CFFC8E566B3AF5252A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864551   (1064792) от 
+
+Clawfinger - Compilation (1993-2026) [MP3|320 Kbps] <Nu metal, Alternative metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Greatest Fears ❂ Deafer Dumber Blinder 2014
+02. Blame ❂ Zeros & Heroes 2003
+03. Confrontation ❂ A Whole Lot Of Nothing 2001
+04. Catch Me ❂ Deaf Dumb Blind 1993(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 04:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84527F0373BB15F2AF1ACD6B3750BE0F4BE93904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864475   (1064745) от 
 
 VA - Greatest Soft Rock Love Songs (2026) [MP3|320 Kbps] <Rock>
@@ -594,151 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16BCFE6E71AB08ABEC135791DB31F7A29CB29431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859613   (1061264) от 16.03.2026
-
-VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061264.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:17]. 001-Би-2 - Детство
-[3:32]. 002-Инкогнито - Чучело
-[3:44]. 003-Mireia - Карма
-[3:41]. 004-Сурганова и оркестр - Привыкай(   Читать дальше...   )Жанр: rockПродолжительность: 10:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDB0910ED4EC92593BD4703CB20122D477275B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858433   (1060485) от 10.03.2026
-
-Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New wave, Miscellaneous>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Single Night (& Martina McBride) ❂ Lucky Numbers 2013
-02. Tragedy Street ❂ Greetings From The Gutter 1994
-03. All Messed Up (& Martina Mcbride) ❂ The Blackbird Diaries 2011
-04. Happy To Be Here ❂ SlyFi 1998(   Читать дальше...   )Жанр: Pop rock, Soft rock, New wave, MiscellaneousПродолжительность: 06:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9A6C073B520BF52E393A5258DFB06C84ADBAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856485   (1058796) от 28.02.2026
-
-VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058796.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:41]. 001-7Б - Майская звезда
-[3:51]. 002-Стереозвук - Без тебя
-[3:29]. 003-Инкогнито - Воздух
-[3:31]. 004-Ночные снайперы - Рим(   Читать дальше...   )Жанр: rockПродолжительность: 08:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8182C6AE938614A4ABF7C72F9909379EF33AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854607   (1057663) от 20.02.2026
-
-Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Ass ❂ So Happy It Hurts 2022
-02. Summer Of '69 ❂ Reckless 1984
-03. (Everything I Do) I Do It For You ❂ Waking Up The Neighbours 1991
-04. Lonely Nights ❂ You Want It-You Got It 1981(   Читать дальше...   )Жанр: Soft rock, Pop rock, Arena rockПродолжительность: 08:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F94D8BAB954D3E9EEC7B6B00E4116E49193560E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852965   (1056283) от 10.02.2026
-
-Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эвтаназия ❂ Резня в Асбесте 2015
-02. 1_1 ❂ Живые, Но Мёртвые 2013
-03. Барон и За Рекой ❂ Маленький Фриц 1990
-04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

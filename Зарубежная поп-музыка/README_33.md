@@ -1,3 +1,29 @@
+###  Публикация: 516957   (647397) от 01.07.2012
+
+Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647397.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: DiscoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517524   (647147) от 01.07.2012
 
 Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
@@ -724,35 +750,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D1D3893BD1BFD4A85BF91C2DA7F09D0DEFFD9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907337   (639729) от 11.06.2015
-
-MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk About You (CD Version)
- 02. All She Wants
- 03. Last Party
- 04. Good Guys(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4706170B4D4B3C2B4C142D0CA8F1645DD39FDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

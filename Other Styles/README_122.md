@@ -1,3 +1,119 @@
+###  Публикация: 1171392   (396680) от 04.10.2017
+
+Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Title
+02 - Atlantis Takes Flight
+03 - Rogue Drone
+04 - Messages(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE816B06332699687713DC64624D27F1A99FB0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171474   (396567) от 04.10.2017
+
+Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Borders
+02. Hembra
+03. Unchosen
+04. To the Horizon(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6FC1E3C7FB1D09AB4CE2226C1989F024D5AC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171443   (396560) от 04.10.2017
+
+Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversary (2001) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Godfather - Waltz
+02 - The Godfather - Love Theme from The Godfather
+03 - The Godfather - Sicilian Pastorale
+04 - The Godfather - The Pick-Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6EDEA0E1F5C14EE1D00DCC3D6C169B5456E922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171430   (395754) от 05.10.2017
+
+Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Day After Tomorrow
+02 - Tornado Warning
+03 - Sam!
+04 - Tidal Wave(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B25F592F3AC978618E60267AC61697A3EE62DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171404   (395703) от 05.10.2017
 
 VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
@@ -652,122 +768,6 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567E7FA070D23AC43FDCDB628B853330746CE235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414104   (387288) от 07.10.2020
-
-Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fine Wine and Love (3:49)
-02. Hot Massage (3:54)
-03. All Night Talking (3:28)
-04. At One's Night (4:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C51AAE5DD8807BA3673B2348CCF3CD69063BAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067080   (387256) от 29.10.2016
-
-Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psychedelic Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Only a River   (05:28) 
-  02| Cottonwood Lullaby   (03:40) 
-  03| Gonesville   (04:09) 
-  04| Lay My Lily Down   (03:57) (   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E207E2D444520A2540E4CA205347A445861DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174154   (387235) от 14.10.2017
-
-Стары Ольса - Medieval Classic Rock (2016) [MP3|320 Kbps] <Folk, Folk rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стары Ольса - группа средневековой белорусской музыки, существующая с 1999 года. Создатель и руководитель - Дмитрий Сосновский, состав - 6 человек. Название - от ручья в западной Могилёвщине. В репертуаре группы - белорусские народные баллады и воинские песни, белорусские народные танцы, произведения белорусских композиторов эпохи Ренессанса, композиции из белорусских (   Читать дальше...   )1. Highway to Hell (AC_DC cover) (3:24)
- 2. Another Brick in the Wall, Pt. 2 (Pink Floyd cover) (4:11)
- 3. Californication (Red Hot Chili Peppers cover) (4:14)
- 4. A Hard Day's Night (The Beatles cover) (2:34)(   Читать дальше...   )Жанр: Folk, Folk rockПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0371CA8AC29B3FFC448883A649200629C904D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326180   (387183) от 19.09.2019
-
-Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Inca Trail (7:21)
-2.Through the Mountains (8:10)
-3.The Sun Gate (7:40)
-4.Conchamarka (8:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5BB6C5C4806541BACE5A27AA860E72CC491D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

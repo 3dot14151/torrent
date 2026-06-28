@@ -1,3 +1,55 @@
+###  Публикация: 579483   (350351) от 22.11.2012
+
+Демотиваторы '220V' (21.11.12) [Графика]
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демотиваторы '220V'
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BD56E8EBBDA7E257756F839EDA934120998F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579484   (350334) от 22.11.2012
+
+Демотиваторы '220V' (22.11.12) [Графика]
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демотиваторы '220V'
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7775F46A55333085DF3FDF3B1CC54162344E252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724269   (350254) от 20.11.2013
 
 Работы художников - SexySupers - Dark Horse, Image etc [JPEG, PNG]
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F3EAAB9A2D34C1EDE09E98DF391C1F5FB60B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580221   (345421) от 24.11.2012
-
-Демотиваторы '220V' (24.11.12) [Графика]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D00FDD7E06B24BCADEAC38E4C01A42E25F2004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580072   (345298) от 24.11.2012
-
-Artworks by Greg Olsen [Графика]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Greg Olsen
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E737144B4583B1E2A6F51F3316580D00A5A3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

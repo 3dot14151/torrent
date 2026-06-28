@@ -1,3 +1,137 @@
+###  Публикация: 542075   (499053) от 02.09.2012
+
+VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Status Quo - In The Army Now [06:17]
+02. Fine Young Cannibals - She Drives Me Crazy [07:06]
+03. Nik Kershaw - The Riddle [05:11]
+04. Sandra - Little Girl [05:11]
+05. Maxi Priest - Wild World [06:10]
+06. Roxette - Dangerous [06:26]
+07. Cock Robin - The Promise You Made [06:39]
+08. The Stranglers - Midnight Summer Dream [10:37]
+09. Duran Duran - Rio [06:42]
+10. Tears For Fears - Shout [08:02](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381505   (498069) от 29.08.2011
+
+Joy - Enjoy (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch
+02. Love Is All Around
+03. Valerie
+04. Far Away
+05. Sunshine Boogie
+06. 10.000 Angels
+07. Obsession
+08. Shine
+09. Back To The 80's
+10. Heaven Must Be Missing An Angel Tonight(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381565   (498065) от 29.08.2011
+
+F.R. David - Reference 80 (2011) [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Words (Original Unreleased Full Mix)
+02. Sahara Night
+03. Pick Up The Phone (Original)
+04. Don't Go
+05. I Need You (Original 7")
+06. Music
+07. Dream Away
+08. This Time I Have To Win
+09. Take Me Back
+10. Sahara Night (Club)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318065   (496588) от 05.08.2019
+
+Eddy Huntington - Greatest Hits & Remixes (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U.S.S.R. (7' Version) [3:26]
+ 02. Up & Down (7' Version) [3:31]
+ 03. Meet My Friend (7' Version) [3:33]
+ 04. May Day (7' Version) [3:31](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BE05FB0F3AF8F0F49C07AA26107868D877E217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053767   (496468) от 18.09.2016
 
 VA - Super Eurobeat Vol. 240 - Anniversary Нits 100 Tracks (2016)2CD [FLАС|Lossless|tracks + .cue] <Eurobeat, Hi-NRG, Dance >
@@ -642,134 +776,6 @@ VA - Hustle! Reggae Disco: Kingston-London-New York (2002) 2017, Reissue [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0300FF9D2BBF42B1D62B8D494CBF199C7FB5A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161264   (469658) от 27.08.2017
-
-VA - DJ Empire presents: A Tribute To Giorgio Moroder (2000) Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder  vs. Jam & Spoon - The Chase (Jam & Spoon Radio Mix) 3:54
-02. Giorgio Moroder vs. Talla 2XLX - E=MC2 3:34
-03. Giorgio Moroder vs. Spotlite Productions presents Sarah Abdallah - Flashdance (What A Feeling) 3:50
-04. Jill Jones vs. Todd Terry - Call Me 3:50(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0D24B1BBC0281E4156897A7D525968E7DF976C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161398   (467373) от 28.08.2017
-
-Samantha vs. Sabrina - Call Me (2010) EP, Enhanced [APE|Lossless|image + .cue] <Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samantha vs. Sabrina - Call Me
-02. Sabrina Salerno - In The Morning
-03. Samantha Fox - I Give Myself To You (Remix)
-04. Sabrina Salerno - Gringo (Remix)(   Читать дальше...   )Жанр: Disco, Eurobeat, Hi-NRGПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209B691E778936F32BD7C03373ADD0208672D74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546575   (466578) от 18.09.2012
-
-Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [FLAC|Lossless]<Pop, Disco, Eurodance.>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Noah's Ark 2001Maxi Version)
-02. Wild Planet (Maxi Version)
-03. Somewhere In The World (Long Version)
-04. Future World (Long Promo Version)
-05. 10.000 Lightyears (Promo Version)
-06. Kalimba De Luna (US Club Mix)
-07. Young, Free And Single (12' Version)
-08. Daddy Cool (Anniversary Recording '86Special Club Mix)
-09. Mother And Child Reunion (Frank Farian CorporationLong Version)
-10. I'm Alive (Frank Farian CorporationLong Version)(   Читать дальше...   )Жанр: Pop, Disco, Eurodance.Продолжительность: 01:02:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548897   (464368) от 19.09.2012
-
-Village People - The Best Of (1998) [FLAC|Lossless]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y.M.C.A. [04:49]
-02. Macho Man [05:15]
-03. Can't Stop The Music [03:39]
-04. San Francisco [05:19]
-05. In Hollywood [04:55]
-06. Ready For The 80's [06:54]
-07. Key West [05:47]
-08. In The Navy [03:46]
-09. Fire Island [05:20]
-10. Go West [06:38](   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

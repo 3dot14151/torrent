@@ -1,3 +1,90 @@
+###  Публикация: 1232531   (600165) от 24.06.2018
+
+VA - Underground Trance Essentials Vol. 01 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depka - Look Back (Eddie Sender Remix)
+02. R-Cross - Ray of Sun (Original Mix)
+03. James De Torres - Chimera (Original Mix)
+04. Diarent - Sunrise (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE05E3AC3082A280B37A4A143A99DD36B3412047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232587   (598494) от 25.06.2018
+
+VA - Dark Summer (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roman Messer & Papulin - Avengers (Extended Mix)
+02.Attila Syah Pres. Gamma & Cari - Every Goodbye (Extended Mix)
+03.Dennis Graft - Voices (Extended Mix)
+04.Roman Messer & Betsie Larkin - Unite (Extended Full Fire Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED1A276DCF8CA50ADDE5ECC41DC6AB2F55AB645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150093   (595287) от 14.07.2017
+
+VA - Total Trance Selections Vol.05 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  C-Systems - Indigo (Radio Edit)  3:45
+02.  Milad Masoumi - Monument (Bager & Last Soldier Remix)  7:33
+03.  Night Sky - Till I Break Free (Original Mix) (feat. Rebecca Louise Burch)  6:46
+04.  Dmitry Kostyuchenko - Many Years Ago (Original Mix)  7:01(   Читать дальше...   )Жанр: TranceПродолжительность: 03:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA8507B7D63ADA161B4771D810C7EEFDC97E79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300568   (593125) от 06.05.2019
 
 VA - A State Of Trance 2019 (Mixed by Armin van Buuren) (2019) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Future Classics Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57ECE13C04A1EEB7C8839BC3DFDEF80EFF106080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235177   (564203) от 09.07.2018
-
-VA - Trance Summer Essentials (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johan Vilborg - Altara (original mix)
-02. Eleven Five & Arielle Maren - Remember (Blood Groove & Kikis remix)
-03. Peter Illias & Lukas Solcani - Be Mine (original mix)
-04. Tara Louise & Masoud - My Dreams (Vintage & Morelli dub remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26478AAC5FC8B1BB26172DADDF582188EDEEB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304253   (564101) от 26.05.2019
-
-VA - Afterdark 002 [Los Angeles] (2019) (Mixed by Sneijder) [MP3|320 Kbps] <Trance, Psy-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sneijder – Back Home (Club Mix) (8:34)
-02. Cold Blue – Another Life (7:30)
-03. Alessandra Roncone – Redemption (4:38)
-04. Billie Gillies – EvolveЖанр: Trance, Psy-TranceПродолжительность: 05:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78097282D39455A50D80B9BE476B1DCC20D13A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235627   (558672) от 12.07.2018
-
-VA - Trance Space Sound (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maratone and Dreamy feat. Emma Chatt - Out from Under (Radio Edit)
-02. Iris Dee Jay and Robert Holland feat. Erin - Faster (Type 41 Dub Mix)
-03. Max Denoise and Swoan Mayer feat. Hoxygen - Suspiria (Original Mix)
-04. DJ Gard - Industries (Extended Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC33D1B472842DABC6E362D16EDBE853E4C17B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

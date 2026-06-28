@@ -1,3 +1,96 @@
+###  Публикация: 1195762   (138081) от 31.12.2017
+
+Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electronic, Pop Rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebrate Christmas (2:32)
+ 02. Walking In The Air (3:57)
+ 03. You'll See The Snow (4:10)
+ 04. Ding Dong (2:14)(   Читать дальше...   )Жанр: New Age, Electronic, Pop RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679659   (135183) от 26.11.2023
+
+Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New Age Music for Making Love (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Game (4:07)
+02. Wild Energy (4:08)
+03. Tantric Background Masters (3:48)
+04. First Experience (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5B014620C3D02477D356E96F72988179C758DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594217   (133923) от 25.12.2012
+
+Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin (Guitar - Mike Oldfield)
+02. Traveller
+03. Flight Of The Eagle (Guitar - Mike Oldfield)
+04. Gayatri
+05. Shadow Dancer
+06. Jai Ram
+07. Moola Mantra
+08. Mangalam
+09. Dancer In The Void (Guitar - Mike Oldfield)
+10. Be StillЖанр: New Age, RelaxПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681758   (132372) от 04.12.2023
 
 Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -662,93 +755,6 @@ Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60EF8A196F15AEE926D293C7BED012906D4ACF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799064   (66430) от 29.05.2025
-
-Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chinmoy, Шри Чинмой) - Gratitude (2014) [FLAC|Lossless|tracks + .cue] <New Age, World, Orchestral>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundara Hate
-02. Purna Kariya
-03. Sonali Jyotir, Mishe Phulla Dale, Oi Akashe, Sukhero Lagiya, Chitta Dolai
-04. I Can Lift Up 240 Pounds(   Читать дальше...   )Жанр: New Age, World, OrchestralПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D877FBB8B566AFC58C89FBA4333ACC77ACC8FC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802786   (65998) от 19.06.2025
-
-Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|WEB-DL|tracks] <World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utpatti(Creation) (9:08)
-02. Utsav(Celebration) (9:16)
-03. Ranjha(Colour Of Love) (9:25)
-04. Benares(Back To Life) (6:42)(   Читать дальше...   )Жанр: WorldПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974EB8073DE173C7986DEF7432F028A79A0C6B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803429   (65819) от 24.06.2025
-
-George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <Meditative, Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Waters    [0:06:03.60]
-02. Zen Tranquility    [0:02:55.42]
-03. Willow Breeze    [0:04:16.01]
-04. Bamboo Fields    [0:03:11.13](   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF594A5C1502347772390D246290CF6799253649
 ```
 
 https://mybot314.ru/tekegram_catalog/

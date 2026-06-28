@@ -1,3 +1,90 @@
+###  Публикация: 1037859   (610313) от 26.07.2016
+
+VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiteout -  Washed Away (feat Vika - Original Mix) 5:16
+02. Ruta & Lucid Blue -  Like A Dream (Original Mix) 4:24
+03. Roman Messer -  Imagination (feat Ange - Denis Airwave Remix) 6:30
+04. Adagio Sensus & Ellie Lawson -  Easy For You (Frainbreeze Remix) 6:11(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A3E10946E03B931722B8A0D2FFEC2EB01BDDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147156   (609179) от 02.07.2017
+
+VA - Dream Dance Vol.83 (2017) 3CD [MP3|320 Kbps] <Trance, House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream Dance Alliance - Full Control (Radio Edit)  4:08
+02.  ATB - Message Out To You (feat. Robbin & Jonnis)  3:35
+03.  Dash Berlin - Coming Home (feat. Bo Bruce)  3:13
+04.  Armin van Buuren - My Symphony (The Best of Armin Only Anthem)  3:10(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 05:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D1E33542CE5A77ADE3CD6AA785051E1E7BCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231122   (609039) от 16.06.2018
+
+VA - Black Hole Trance Music 06-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Roger Shah & JES - Star-Crossed (Club Mix)
+02.Solarstone - Thank You (Extended Mix)
+03.Betsie Larkin With Dennis Sheperd & Liuck - Driving Through The Dark (Extended Mix)
+04.John O'callaghan - Choice Of The Angels(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886CF1A7095A2C97FC7C1ACF975FDC86C850212D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296817   (608645) от 19.04.2019
 
 VA - Markus Schulz - Global DJ Broadcast Top 20 April (2019) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ VA - The Best Of Critical Uprising 001 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27EF68210BBFC434A21073E214CAD559FCC0B323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232531   (600165) от 24.06.2018
-
-VA - Underground Trance Essentials Vol. 01 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depka - Look Back (Eddie Sender Remix)
-02. R-Cross - Ray of Sun (Original Mix)
-03. James De Torres - Chimera (Original Mix)
-04. Diarent - Sunrise (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE05E3AC3082A280B37A4A143A99DD36B3412047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232587   (598494) от 25.06.2018
-
-VA - Dark Summer (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roman Messer & Papulin - Avengers (Extended Mix)
-02.Attila Syah Pres. Gamma & Cari - Every Goodbye (Extended Mix)
-03.Dennis Graft - Voices (Extended Mix)
-04.Roman Messer & Betsie Larkin - Unite (Extended Full Fire Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED1A276DCF8CA50ADDE5ECC41DC6AB2F55AB645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150093   (595287) от 14.07.2017
-
-VA - Total Trance Selections Vol.05 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  C-Systems - Indigo (Radio Edit)  3:45
-02.  Milad Masoumi - Monument (Bager & Last Soldier Remix)  7:33
-03.  Night Sky - Till I Break Free (Original Mix) (feat. Rebecca Louise Burch)  6:46
-04.  Dmitry Kostyuchenko - Many Years Ago (Original Mix)  7:01(   Читать дальше...   )Жанр: TranceПродолжительность: 03:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA8507B7D63ADA161B4771D810C7EEFDC97E79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1857021   (1059422) от 03.03.2026
+
+VA - Smooth Vibes Chillout Edition (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wermuth - Urban Agreement (04:16)
+ 02.  Logophilia - Nightline Vibes (04:29)
+ 03.  Quadra Montres - Thoughtshift (04:16)
+ 04.  Uralkauz - In the Fade (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D8488F2678FE569C1FA20B69DA0BD718BB7E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856552   (1059103) от 28.02.2026
+
+VA - The Orient Collective: Temple Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Dreamers (6:31)
+02. Zedjue - Aiza (6:45)
+03. Noam Garcia - The Room (8:20)
+04. Gavr - Like a Bloodhound (7:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E124E98D124556BA83ED778E573D57EFF59180C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856354   (1058931) от 27.02.2026
+
+VA - The Orient Collective: Organic Rituals (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Astral Illusion (7:18)
+02. Michael Simon - Umami (6:45)
+03. Indiano - Astral (8:04)
+04. Tibetania - Magic Amulet (5:11)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BFAB8E8DC9AC236E81A2A967DD9FE1339BEB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856488   (1058821) от 28.02.2026
 
 VA - The Orient Collective: Ancient Legends (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -658,93 +745,6 @@ VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C1EE2AF972D0EB045C00F14FE1460713566075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848762   (1052855) от 18.01.2026
-
-VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Klasse XXI - Journey to You (04:16)
- 02 - Elan Vital - Still Horizons (04:22)
- 03 - Azulejo - Urban Drift (04:19)
- 04 - The Foxtrot Effect - Echoes of Dusk (04:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1E39CF36C88FE26445AC77BBA25092E3B4CD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847293   (1051862) от 11.01.2026
-
-VA - Chillout Reflections: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol, M-Sol Project - Silent Skies (feat. Marga Sol) (Original Mix) (4:31)
-02. Chillson - Golden Hour (Original Mix) (3:48)
-03. Beamy - The Forest (Original Mix) (4:46)
-04. Tryst - Drawn (Original Mix) (5:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D1D53BADC736606F5A4D11FBB2E4867E8D9A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846308   (1051316) от 06.01.2026
-
-VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepanima - Autumn Leaves (Dalibor Dadoff Remix) (6:50)
-02. Boyzen SA - Falling for You (6:17)
-03. Schwarz & Funk - Blue Rose (Eivizzards Mix) (5:55)
-04. TRANQVIL - Midnight (3:20)(   Читать дальше...   )Жанр: Balearic, Downtempo, Deep HouseПродолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9207138B62AD0F3A5E02CC7522E464C14E02C420
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 995859   (882699) от 12.03.2016
+
+VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob & Chris - Zeitmaschine (90s Mix) 02:23
+02. Dr.Alban ft. Haddaway, FrancaMorgano & Katja Bredahl - Volcano 03:44
+03. Twenty 4 Seven ft. Stay-C & Li-Ann - Slave To The Music (Housemaxx Edit) 03:46
+04. E-Rotic - Video Starlet 03:28(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 03:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373173   (882181) от 05.04.2020
+
+VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parvenu - Side Step
+02. Sebastian - Movement
+03. Beamy - Big Sur (Original Mix)
+04. Dreamweaver - Aurora Borealis(   Читать дальше...   )Жанр: Chill House, ChilloutПродолжительность: 03:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F72AB534850703A8ECC7567A55E28D9D9C43F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372907   (882108) от 05.04.2020
+
+VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. NRD1 - All Good Things (Come To An End) 3:27
+04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B60B05D2639C148069C0A96F6233102F96CA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373168   (882068) от 05.04.2020
+
+VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth Wave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikkelrev - Apollo
+02. Geocentric Fools - Neptunes Limes
+03. Noamm - Dance Macabre
+04. Four Seconds Ago - Over And Out(   Читать дальше...   )Жанр: Synthspace, Synth WaveПродолжительность: 05:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C995A2E069C80D12CAF80ECF57F901792ABAE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373153   (881324) от 05.04.2020
+
+VA - Electro House NME DJ Promo (2020) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881324.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bunny House - Inside You (Dub Mix)
+002. Shabboo Harper - Sadashiva Absolute
+003. Younger Than Me - No Love No Matter
+004. Fullspektor - Acid Crown (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 13:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D901C0D7E9B3A185D22B1436B9A7205199F7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996088   (881283) от 13.03.2016
 
 Nu Disco Cosmic St.Tropez (2015) [MP3|320 кб/с] <Disco, Nu-Disco, Deep House>
@@ -600,151 +745,6 @@ VA - House Nation Volume 7 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70B5E214DB6A1E6D806495D8E673755470B53E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997013   (877661) от 15.03.2016
-
-VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robbert Simmons - Give It to Me (Radio Mix) (feat. Anthony Brody)
-002. Loquai - Nightcrawler
-003. Make One - Jumper
-004. Fast Company - Take Me Away (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 08:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454770B33CE400696F118FBF061281D9C40A3C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997055   (877557) от 15.03.2016
-
-VA - Music For Everyone - Chillstep & Dubstep Vol.4 (2016) [MP3|320 кб/с] <Chillstep, Dubstep, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SizzleBird - Wheel Of Time (Original Mix)
-2. Kid Zion – Awaken Here (Original Mix)
-3. Didrick - A Part Of You (WRLD Remix)
-4. Jex – You (Original Mix)(   Читать дальше...   )Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0606A4BA65EBAB86D9A684BD020D42965BEC560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373901   (876933) от 08.04.2020
-
-VA - The Surfing Happiness (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876933.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ace Miller - Arena (Original Mix)
-002. Miserable Faith - Morning Espresso
-003. Lessons - Alcyone
-004. Monkeyman - Baboon(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 08:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD9DF247804A0FFE428A11759F49C4913BC0269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373899   (876819) от 08.04.2020
-
-VA - Beatport Electro House: Electro Sound Pack #48 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roberto Surace - Joys (Offaiah Club Mix)
-002. Mark Sherry - The End Is The Beginning
-003. Delano - Haciendo El Amor (Original Mix)
-004. Dj Combo - Jumping Bounce(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 10:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9804AA335DE9471BC54C9859FA76F1F963713B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373896   (876718) от 08.04.2020
-
-VA - Beatport Disco House: Electro Sound Pack #51 (2020) [MP3|320 Kbps] <Disco, Funky House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Gee - Say Yeah (Original Mix)
-02. Re Tide Feat Steff - Time Is Movin
-03. Musique Boutique - La Vida Es Un Carnaval
-04. Steve Silk Hurley - The Glow Of Love(   Читать дальше...   )Жанр: Disco, Funky House, DanceПродолжительность: 07:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2D13264ECE187F1E17170EB2F5CD37C3665EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

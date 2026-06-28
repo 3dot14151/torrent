@@ -1,3 +1,90 @@
+###  Публикация: 1125249   (768759) от 14.04.2017
+
+VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
+02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
+03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
+04.  Adip Kiyoi & Susie Ledge - Another Chance (Above & Beyond Club Edit)  3:44(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9F78812259C59ED58CB1CE630CDB0E79CD75F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213422   (768200) от 17.03.2018
+
+VA - Global DJ Broadcast: Top 20 March (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Markus Schulz -The New World (Mark Sherry Extended Remix)
+02.Giuseppe Ottaviani -Till The Sunrise (Extended Mix)
+03.Scott Bond -Red Line Highway (Factor B's Extended Back To The Future Remix)
+04.Jam & Spoon -Odyssey To Anyoona (Airwave Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1902429B0EB6144695371EE181DAF9446FF2EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213439   (768184) от 17.03.2018
+
+VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAM - Guiding Star (feat Clare Stagg - LTN extended remix)
+02. Quench - Dreams (Nicholson's extended Cathedral remix)
+03. Cosmic Gate & Markus Schulz - AR (Patrick White extended remix)
+04. Jam & Spoon - Odyssey To Anyoona (Mr Sam Return Of The Phoenix Club remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A6A0C24D3A629CC13490E62F8301BE55562978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125507   (768110) от 15.04.2017
 
 VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - New Prog Order Vol. 3 (Compiled by Shyisma)(2018) [MP3|320 Kbps] <Trance,Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD881DCC4D2C82669B55545B2C98CA64DE5D5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215808   (756736) от 27.03.2018
-
-VA - Recoverworld Radio 018 (Mixed by Para X)(2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icone – Omega (Original Mix)
-02. Para X – Sparkling Waterfalls (Original Mix)
-03. Hoof – Heart And Zeal (Original Mix)
-04. Kenidel Lopez – Heaven’s Caliber (Manuel Le Saux Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765A3FB11A85DAA1C9ED3A161FD0FDF3F5087932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216029   (754860) от 28.03.2018
-
-Veky - Alone (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VEKY – Alone (Original Mix)
-02. Amind Two Guys – Voices In The Darkness (VEKY Remix)
-03. VEKY – Escape (Original Mix)
-04. VEKY – Feel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EC7BBF9FE9DA576859401B8018EAF3E18310E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018711   (754015) от 21.05.2016
-
-VA - Pure Bliss Vocals (Spring 2016) (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Service & Sarah Russell - Would You (Radio Edit) 4:04
-02. 4 Strings & Fridolijn - What Matters Most (Radio Edit) 2:36
-03. Dennis Sheperd & Sarah Lynn - Dive (Radio Edit) 3:48
-04. Betsie Larkin - We Are The Sound (Chris Metcalfe Radio Edit) 3:55(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE140A3F944D5E623822147A62668561E86D5139
 ```
 
 https://mybot314.ru/tekegram_catalog/

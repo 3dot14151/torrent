@@ -1,3 +1,148 @@
+###  Публикация: 1291703   (652658) от 26.03.2019
+
+VA - Ultimate Dance House (2019) [MP3|320 Kbps] <Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652658.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Altair - Cross The Bridge
+002. Da Hot Hatches - Space & Time
+003. Iannai - Remembering You
+004. Flash Finger And Heyul - Lights (Extended Mix)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 11:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F34038C0CBE29273AEF59A45FC04395665ED05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291744   (652655) от 26.03.2019
+
+VA - Record Super Chart 579 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ilkay Sencan - Do It
+02.  Calvin Harris & Rag'n'Bone Man - Giant
+03.  David Guetta - Better When You're Gone (feat. Brooks & Loote)
+04.  Duke Dumont & Shaun Ross - Red Light Green Light(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2929F27F1A216DE0A71E44BCCBC8DAF388FE3B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291710   (652654) от 26.03.2019
+
+VA - Bass Buffalo (2019) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cоsmiе Sequenеe - Field Of Dreаms
+002. Dj Zinе - Steррin Stоnes
+003. Dlx - Cirеuit Citу
+004. Eusebeiа - Truth Is Strаnger Thаn Fiеtiоn(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 06:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59035EE352783797F52856F5900970A72EFF13BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141043   (652452) от 09.06.2017
+
+VA - 50 Top The Running Tracks - Workout Hits June (2017) [MP3|320 Kbps] <Tropical, Indietronica, Club, UK Garage, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eiffel 65 - Panico (Radio Cut)  4:04
+02.  Neiked feat. DYO - Sexual (Total Ape Remix)  3:26
+03.  Lost Frequencies feat. Janieck Devy - Reality (Rough Traders Radio Edit)  3:22
+04.  Pulsedriver - Lookout Weekend 2015 (Chingo Remix)  4:09(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, UK Garage, Future HouseПродолжительность: 03:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33733A32C0422872D8CB6B0A87E3C38BFD332005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141146   (652324) от 09.06.2017
+
+VA - Private House Soulhouse Mix (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652324.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Piece Grade - Jazzy Company (Supa Trumpet Mix)
+002. Jacksonville - B Is for Box
+003. Abra - Espionage
+004. Bowyer Hawks - The Big If(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D222232C3962A62F367D86BF8D838EE2D151ECEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515775   (652279) от 29.06.2012
 
 VA - Euphoric Emotions Vol.36 (26.06.2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -609,148 +754,6 @@ Kavinsky - Reborn Extra (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Electro P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59645AC2FDA1EC3951BF8340FE28C37DEB8B280A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291898   (650616) от 27.03.2019
-
-VA - Guardians Of The Sea (2019) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650616.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gоldiе - Hоrizоns
-002. M-Zinе - Imрricаtе
-003. Sоul Intеnt - Thе Tidе (Originаl Mix)
-004. Dеер Stеаlth - Imреriаl Shоrеs (Originаl Mix)(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08 :49 :59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D078E61F0B040C261F2A47B03EEC9B996BDC589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031355   (649919) от 05.07.2016
-
-Tim Gorgeous - Deep House Session Vol.5 (2016) [MP3|320 Kbps] <Deep House, Indie Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649919.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ сборникЖанр: Deep House, Indie DanceПродолжительность: 01:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0DB7ADD3003C82D40C84180DAD62FDC3DF0F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031730   (649916) от 05.07.2016
-
-VA - Magic Fire: Trance Progressive (2016) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allen & Envy - Ulysses (Original Mix)
-002. Audiophonic vs. Split & Jaxta - Omega (Original Mix)
-003. Ayla - Ayla (Omar Sherif 2016 Remix)
-004. Novan - Quasar (Alexander Turok Remix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164D5BCFD6E3A6C4C57E09AEA9A15AD101584586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031803   (649819) от 05.07.2016
-
-VA - Siren Song Trance Vocal (2016) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Cracken -  Save You 7:15
-002. Bobina -  Maharaja Original Mix 6:29
-003. Passenger 75 -  Antares (Original Mix) 6:24
-004. Ula -  The Phantom Sixth Man (E.T Project Remix) 7:32(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 10:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591CAD0641E3198C3556BCD6B76A59F0D4095CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031750   (649680) от 05.07.2016
-
-VA - TOP 100 Club Tracks (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell And Blasterjaxx -  Going Crazy (Radio Edit) 3:06
-002. Klubbheads -  Klubbhopping (Radio Edit) 3:20
-003. Moby -  Go (Hardwell Remix Edit) 4:28
-004. Mike Vegas -  Superstar (Danilo Eboli Remix) 4:34(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C119EF6B5483024254D9E9F75F39A503482E3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

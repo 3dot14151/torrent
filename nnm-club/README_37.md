@@ -1,25 +1,22 @@
-###  Публикация: 1874514   (1071957) от 03.06.2026
+###  Публикация: 1877283   (1073763) от 20.06.2026
 
-Doomed - In My Own Abyss (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+Андрей Царёв | Выживальщики (Книга 2). Конец игры (2026) [MP3, CHUGA (Артём Чугуев)]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Downward
-02. Alone We Stand
-03. The Ancient Path
-04. A Wall of Your Thrones(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:04:29
+В мире свирепствует ужасный вирус, смертность необычайно высока. Наконец, находят вакцину от страшной болезни. Но спасение оборачивается апокалипсисом... Продолжение романа "Игры выживальщиков".Жанр: ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 08:26:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C3211382B55EDC598C84650C466EFEFBFEB4BAC
+magnet:?xt=urn:btih:43A2D8220DFB98712D7878B0CE5AEB9C72316F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874572   (1071958) от 03.06.2026
+###  Публикация: 1877280   (1073764) от 20.06.2026
 
-Кракен / Kraken (2026) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+Глубокие воды / Deep Water (2026) WEB-DLRip [H.264]
 
 >>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Морской биолог Йоханна проводит исследования на рыбной ферме в норвежском фьорде. После загадочной гибели двух подростков становится ясно, что в темных глубинах пробудилось мифическое чудовище — гигантский Кракен.Производство: Норвегия / Handmade films in Norwegian woods, Nordisk Film Production ASЖанр: боевик, фантастикаРежиссер: Пол ОйеАктеры: Сара Хорами, Миккель Братт Сильсет, Ингвильд Хольте Бигднес, Эйвинд Брантцег, Енни Эвенсен, Стейнар Клоуман Халлерт, Filip Bargee Ramberg, Ганс Мортен Хансен, Jon Erik Myre, Силье БрейвикПеревод: Многоголосый (MUZOBOZ)Язык озвучки: Русский, НорвежскийСубтитры: Русские (Forced, Full - AI), Английские, Норвежские (Forced, Full, SDH)Продолжительность: 01:30:08
+Самолёт, следующий из Лос-Анджелеса в Шанхай, из-за пожара и взрыва на борту совершает аварийную посадку в кишащих акулами водах. Пассажирам приходится объединить усилия и преодолеть разногласия, чтобы пережить крушение авиалайнера и нападения акул.Производство: Испания, Новая Зеландия, США, Китай / Arclight Films, Aventura (I)Жанр: ужасы, боевик, триллерРежиссер: Ренни ХарлинАктеры: Аарон Экхарт, Бен Кингсли, Энгус Сэмпсон, Люси Барретт, Молли Райт, Келли Гейл, Прия Джайн, Рози Чжао, Ричард Краучли, Chrissy JinПеревод: Дублированный (WinMedia)Язык озвучки: РусскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 01:46:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71E1603B648E18E3F83ADC786CC66944991BE002
+magnet:?xt=urn:btih:3D27AAF1A277921E3738BF1148FDB64AFC3DDE6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,79 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874566   (1071959) от 03.06.2026
+###  Публикация: 1877281   (1073765) от 20.06.2026
 
-Аутсайдер / The Outsider (2002) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старожилы-ранчеры Монтаны совершают регулярные набеги на земли своих соседей — новых поселенцев из религиозной общины амишей, сопровождающиеся насилием и убийствами, и власти не делают ничего, чтобы остановить беззаконие.
-Но когда Ребекка, вдова одного из убитых бандитами, спасает от смерти раненого стрелка Джонни Голта, ситуация меняется. Еще не оправившись после (   Читать дальше...   )Производство: США / Coote Hayes Productions, Hallmark Entertainment, Phoenix PicturesЖанр: Драма, Мелодрама, вестернРежиссер: Рэнда ХейнсАктеры: Тим Дейли, Наоми Уоттс, Кит Кэрредин, Дэвид Кэрредин, Томас Кертис, Бретт Такер, Джон Ноубл, Грант Пиро, Питер МакКоли, Джейсон КларкПеревод: Многоголосый профессиональный (т/к АМС), двуголосый профессиональный (Екатеринбург Арт)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB25603E3D4F69A65FAE67C2446042E2C637B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874570   (1071960) от 03.06.2026
-
-VSO ConvertXtoDVD 7.5.0.157 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071960.jpg" />
-</div>
-
-
-###  Подробнее
-
-VSO ConvertXtoDVD - программа, предназначенная для преобразования видео в формат, совместимый с DVD Video, и последующей записи содержимого на DVD. Программа поддерживает видео файлы AVI, Mpeg, Mpeg4, DivX, Xvid, MOV, WMV, WMV HD, DV, MKV, DVD, а также потоковое видео. Для работы программы не нужны внешние AVI-кодеки, поскольку она использует собственные. ConvertXtoDVD (   Читать дальше...   )Субтитры: DVDsub (активируются в меню или дистанционно пультом)
-или встроенные в видеоЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B6F42C000CF3FAF59A649D5EF1F77C971F395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874568   (1071961) от 03.06.2026
-
-DiskBoss Standart / Pro / Ultimate / Server / Enterprise 16.8.24 [En]
+SoftPerfect RAM Disk 26.6 [Multi/Ru]
 
 >>Утилиты, Офис, Интернет
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DiskBoss — это автоматизированное решение для управления данными на основе политик, позволяющее анализировать диски, каталоги и сетевые ресурсы, классифицировать и категоризировать файлы, искать и удалять дубликаты файлов, выполнять автоматизированные операции управления файлами в соответствии с заданными пользователем правилами и политиками, синхронизировать диски, (   Читать дальше...   )Язык интерфейса: Английский
+SoftPerfect RAM Disk - программа для создания виртуального диска в оперативной памяти. Так как память намного быстрее, чем физические жесткие диски, имеет смысл для достижения более высокой производительности хранить временные данные в быстродействующей оперативной памяти. Современные компьютеры оснащены большим количеством оперативной памяти, однако большую часть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E2A416F8FE7FFFE6E9628C46BD93BF99192553D
+magnet:?xt=urn:btih:486DAB7E7E904680FF40E8384C6BB2F5FA78F308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874569   (1071962) от 03.06.2026
+###  Публикация: 1877279   (1073766) от 20.06.2026
 
-Stevie Hawkins - Soul and Blues - Stevie Hawkins - Soul and Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+Как приручить дракона / How to Train Your Dragon (2010) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jack of All Trades (4:02)
-02. High Time (4:11)
-03. Lonely No More (5:09)
-04. That Ain't Right (2:48)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:02:58
+Подростку Иккингу не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Парень неожиданно заводит дружбу с драконом Беззубиком, который поможет ему и другим викингам увидеть мир с совершенно другой стороны.Производство: США, Франция, Великобритания / DreamWorks Animation, Mad Hatter FilmsЖанр: мультфильм, фэнтези, приключения, семейный, комедияРежиссер: Дин ДеБлуа, Крис СандерсАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Робин Аткин Даунс, Филип МакГрэйдПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3F697CC2D40D8A83C9B05A666593992D4A790F6
+magnet:?xt=urn:btih:447E3A29EEFACE65EF3885B838B4972C0DE1639E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874565   (1071963) от 03.06.2026
+###  Публикация: 1877278   (1073767) от 
 
-Dave Thomas - Bridge Street Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Кодекс молчания / Code of Silence (1985) BDRip [AV1/2160p] [4K, SDR, 10-bit] [handmade Upscale AI] [MVO]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Остальное
+>>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Go To Legends (3:03)
-02. City Streets (3:17)
-03. Gone For Good (4:33)
-04. Big Fast Car (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
+Операция чикагского полицейского Эдди Кьюсака по взятию с поличным нарко-банды Комачо провалилась. Во время передачи «товара» появились представители конкурирующей группировки Тони Луны, которые расстреляли людей Комачо и полицейского информатора и забрали партию и деньги. Подозревая, что вскоре может вспыхнуть война между бандами, честный и принципиальный Кьюсак (   Читать дальше...   )Производство: США / Orion PicturesЖанр: боевик, криминалРежиссер: Эндрю ДэвисАктеры: Чак Норрис, Генри Сильва, Берт Ремсен, Майк Дженовезе, Деннис Фарина, Нэйтан Дэвис, Ральф Фуди, Аллен Хэмилтон, Рон Энрикез, Джо Гузальдо, Молли Хэйгэн и др.Перевод: Многоголосый (НТВ, Первый канал, Петербург 5-й канал, РТР, НТВ+), авторский (Володарский, Гаврилов, Горчаков, Живов, Сербин, Калинин)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDAC823515CAA5B845EB664C26E363D908D7EC7C
+magnet:?xt=urn:btih:3272167C2C5E2BB15D30E1C1C7EBD1307564AC6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,28 +128,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874563   (1071964) от 03.06.2026
+###  Публикация: 1876857   (1073751) от 17.06.2026
 
-Anni Piper - Men Are Like Potato Chips (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Global Vibes - The New Sound Of Arabia (2003) Compilation [FLAC|Lossless|image + .cue] <Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Devil Bride (3:15)
-02. Naughty Nurse (4:32)
-03. Men Are Like Potato Chips (3:23)
-04. Cactus Girl (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:38
+01 -  Us Conductors - Under Palms (Bar De Lune original mix) - 5:16
+ 02 -  Nickodemus feat. Andrea Monteiro - Dessert Dancer - 5:27
+ 03 -  Al-pha-X - First Transmission - 5:01
+ 04 -  dZihan & Kamien - Before - 6:03(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:295F811414D13F154A5C14A71F1BC4EDD1C0A28D
+magnet:?xt=urn:btih:15523C515E9D4E38EAE11ED14FA1F2125C20DF56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,28 +157,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874596   (1071934) от 03.06.2026
+###  Публикация: 1876793   (1073752) от 17.06.2026
 
-Sigh - Ghastly Funeral Theatre (1997) 2XCD, Japanese Edition, Reissue, Remastered, 2026, Peaceville Ltd. [FLAC|Lossless|image + .cue] <Black Metal>
+VA - Global Vibes - The New Rhythms Of Africa (2003) Compilation [FLAC|Lossless|image + .cue] <Pop>
 
->>East Asian Music
->>Asian Rock, Metal (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rage - Bassakilici - 5:23
+ 02 - Jephte Guillaume - Bourrique La - 3:54
+ 03 - New African Orchestra feat. Ron Trent & Anthony Nicholson - Village Dance - 4:26
+ 04 - DJ Spinna - Deep Rooted - 6:54(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F76D38FAC877E62BD5A9F0285C6C030BC0F7830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876197   (1073753) от 17.06.2026
+
+Secret Service - Diamond Collections (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Do you remember - 3:31
+02 - Walking - 4:10
+03 - How I want you - 3:53
+04 - Closer every day - 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD830C301A60CBF4E075A1D22D5B839F07ABC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876331   (1073754) от 17.06.2026
+
+Mylene Farmer - Diamond Collection (1998) 2CD, Compilation, Unofficial [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073754.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Intro: Soushiki ..
-02. Shingontachikawa ....
-03. Doman Seman ....·....(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:32:46
+01 - California - 5:01
+02 - Regrets - 5:17
+03 - Ainsi Soit Je... - 6:23(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98B5517E2CC77986463CF4AF22C2964A9E85AB7B
+magnet:?xt=urn:btih:1F687F5E425D108534DB8AE28459860375D5CC92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,25 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874593   (1071935) от 03.06.2026
+###  Публикация: 1876927   (1073737) от 17.06.2026
 
-Игрушки демона / Демонические игрушки / Demonic Toys (1992) BDRip [H.264/720p] [DVO] [Театральная версия]
+God Body Disconnect - Detune the Tragic Light (2025) Cryo Chamber [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Dark Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Демон был похоронен на месте игрушечного склада 66 лет назад в ночь своего рождения. Хотя он и родился мёртвым, возвращается к жизни в виде отвратительного двенадцатилетнего мальчика и оживляет игрушки, так как хочет стать человеческим ребёнком. Игрушки начинают убивать людей. Тем временем на складе появляется беременная женщина-полицейский Юдит Грей. Она и её дружок (   Читать дальше...   )Производство: США / Full Moon EntertainmentЖанр: ужасы, фэнтези, комедия, детективРежиссер: Питер МанугянАктеры: Трэйси Скоггинс, Бентли Митчэм, Дэниел Черни, Майкл Руссо, Бэрри Линч, Эллен Даннинг, Питер Шрум, Джефф Челентано, Уильям ТорнПеревод: профессиональный двухголосый (Goodtime Media), авторский (Горчаков, Иванов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:22:37
+01. The Voice of Depression (6:31)
+02. Portraits of Possession (9:10)
+03. Faraway and Far From Well (9:18)
+04. The Tragic Night When All Stars Fell (10:23)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Dark Jazz, Jazz NoirПродолжительность: 01:09:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:896752F3D184FF2C1A63750F4C49F383756699C6
+magnet:?xt=urn:btih:8FB1E0A81B5F946075D376F85F665FEC5A111148
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,27 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874520   (1071936) от 03.06.2026
+###  Публикация: 1876926   (1073738) от 17.06.2026
 
-Николай Соболев, Анатолий Георгиев | Белый генерал [3 книги] (2025-2026) [FB2]
+God Body Disconnect - Lost Within Loss (2025) Cryo Chamber [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Soundscapes>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1877 год, Балканы дрожат от залпов очередной войны, Османская империя зажата в тиски между русской армией и английскими броненосцами. Впереди — триумф Сан-Стефано и позор Берлина.
-
-И очень странный союз двух людей — оба русские, оба генералы, оба прославлены, но разделены целым веком. Сумеют ли они изменить историю Балкан и Европы?Жанр: Фантастика, попаданцы, боевикИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+01. The Life I Took For Granted (4:48)
+02. Departed Moments of Home (5:33)
+03. Pain Grows Closer (5:47)
+04. Hiding In Nostalgia (4:35)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Soundscapes, Field RecordingsПродолжительность: 00:53:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:835B19C5268C26AC3210836DB5962CC41A9B063C
+magnet:?xt=urn:btih:B257008E4277DC2E12A04468E555AB0BFB8FED57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,25 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874521   (1071937) от 03.06.2026
+###  Публикация: 1876925   (1073739) от 17.06.2026
 
-Влад Порошин | Гость из будущего [5 книг] (2024-2026) [FB2]
+Beth Hart - You Still Got Me (2026) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Долли" - это операторская тележка, ДИГ - это осветительный прибор, хлопушка - это инструмент для синхронизации изображения и звука, а пенсионер из нашего времени, чудом переместившийся в тело молодого парня в 1964 год - это новый ассистент режиссёра "Ленфильма" Леонида Быкова, который снимает свою первую кинокомедию. Профессий много, но прекрасней (   Читать дальше...   )Жанр: Фантастика, попаданцы, юморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+01. Savior With A Razor (feat. Slash) (4:48)
+02. Suga N My Bowl (feat. Eric Gales) (3:34)
+03. Never Underestimate A Gal (3:08)
+04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:24:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:982D7435389466AAA6272035F0F550B41DFE25A3
+magnet:?xt=urn:btih:5BD55F881BF31EFB8F7255201723DDF930881D24
 ```
 
 https://mybot314.ru/tekegram_catalog/

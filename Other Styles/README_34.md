@@ -1,3 +1,119 @@
+###  Публикация: 1000891   (852107) от 29.03.2016
+
+John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Work Is Done
+02. Now the Day Is Over
+03. Dream Dance
+04. Goldberg Sleeps(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110628   (852095) от 03.03.2017
+
+Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Step (4:39)
+02. Between Oil And Water (4:55)
+03. Freeze (3:52)
+04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110624   (852093) от 03.03.2017
+
+Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Traditional Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink#1 (8:24)
+02. Pink#2 (6:14)
+03. Pink#3 (9:30)
+04. Grey#1 (11:07)(   Читать дальше...   )Жанр: New Age, Traditional ElectronicПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110720   (852089) от 03.03.2017
+
+Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Nature
+02. Varanasi
+03. Cause and Effect
+04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001843   (852053) от 29.03.2016
 
 Немного Нервно - День Габриэля (2016) [MP3|320 кб/с] <Folk>
@@ -626,122 +742,6 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B73BBFE8A32773A4A937F8EB80D6871FB8C7ADE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111938   (845052) от 07.03.2017
-
-Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Heart [00:04:17]
-02. Unspeakable Love [00:06:44]
-03. Sunshine Mind [00:04:36]
-04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003171   (845019) от 02.04.2016
-
-VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Buenos Aires (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - El dia que me quieras
-02. Floreal Ruiz - Por la vuelta
-03 Alberto Marino - Tres amigos
-04. Astor Piazzolla - Orgullo criollo(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003061   (845012) от 02.04.2016
-
-Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Score / Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malaguena - Brian Setzer
-02. Traeme Paz - Patricia Vonne
-03. Eye Patch - Alex Ruiz
-04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111994   (844960) от 07.03.2017
-
-VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calming Water Consort - Sleep Better: Relaxing Beach Ocean Waves
-02. Trouble Sleeping Music Universe - Music for Deep Sleep
-03. Sea Tranquility Academy - Relaxing Background Music
-04. Yoga Meditation Music Set - Hypnotic Sounds: Breaking Waves(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD807B06B231082BA7824FB8DB8D5A408AB2BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

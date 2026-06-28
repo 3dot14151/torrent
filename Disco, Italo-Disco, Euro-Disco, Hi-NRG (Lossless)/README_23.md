@@ -1,3 +1,119 @@
+###  Публикация: 1433441   (160958) от 20.12.2020
+
+Mirko Hirsch - Return To Instrumentals (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady In Black (Instrumental Version) (5:46)
+02. Pandora's Box (Remix Instrumental Version) (5:01)
+03. Heart On Fire (Instrumental Version) (4:35)
+04. Return To Neon (Instrumental Version) (4:32)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2D3AA54515F88E3D795A1693CB6D0A49FFAED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600269   (159008) от 26.12.2022
+
+Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mr. Melody (03:10)
+02 Heaven Is With You (04:14)
+03 Sophisticated Lady (She's A Different Lady) (03:30)
+04 No Plans For The Future (03:15)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346821   (157536) от 20.12.2019
+
+VA- The Hit Factory 2 - The Best Of Stock Aitken Waterman (1988) [FLAC|Lossless|image + .cue] <Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 –Jason Donovan Nothing Can Divide Us (12" Remix) 6:11
+02 –Bananarama Love In The First Degree (7" Version) 3:26
+03 –Hazell Dean Who's Leaving Who? (7" Version) 3:43
+04 –Brother Beyond The Harder I Try (7" Version) 3:28(   Читать дальше...   )Жанр: Hi NRG, Synth-popПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C36BDD4BCCE91F06F9AE1C612F31568C76500F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600383   (157359) от 27.12.2022
+
+VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glz, Venessa Jackson - The Night (03:26)
+02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
+03. Vyktor Nova - Funked (06:05)
+04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085813   (156058) от 22.12.2016
 
 Dschinghis Khan - Greatest Hits (2012) Compilation, 2CD [FLAC|Lossless|image + .cue] <Disco>
@@ -643,117 +759,6 @@ Eddy Huntington - Bang Bang Baby (1989) Reissue, 2023, ZYX Music (2) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70598A9CA9794C50BF9205AE51756231E8424F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823665   (125921) от 12.10.2025
-
-Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say You’ll Never
-02. Say You’ll Never (Bobby To Mix)Жанр: Euro-DiscoПродолжительность: 00:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C25CAE081AEB17B61B927392B6D0EA3F2A2CCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698450   (118469) от 09.02.2024
-
-Digital Emotion - Digital Emotion (1984) 2024, 2CD Remastered Expanded Edition [FLAC|Lossless|image + .cue] <Italo Disco, Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118469.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (Original Album/The Complete 12˝ Mixes):"]
-Original Album
-01. Get Up, Action
-02. Go Go Yellow Screen(   Читать дальше...   )Жанр: Italo Disco, Disco, Hi NRG |Продолжительность: 02:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC91C7456FAB5F0B871F80503E60C8A5DA759498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699050   (118147) от 11.02.2024
-
-Syntheticsax - Mirage (2021) [FLAC|Lossless|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. MirageЖанр: DiscoПродолжительность: 00:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2D2A798D98733372BC523D8CA653B16E9C35E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700787   (116857) от 18.02.2024
-
-S Club - Say Goodbye / Love Ain’t Gonna Wait For You (2003) Reissue, Remastered, 2024, UMC (Universal Music Catalogue) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say Goodbye [00:03:57]
-02. Special Kind Of Something [00:03:40]
-03. Bittersweet [00:03:39]
-04. Love Ain't Gonna Wait For You (Single Remix) [00:03:48](   Читать дальше...   )Жанр: Europop, Ballad, DiscoПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889036A502C790614EB27D58FE25E548EF2DC89
 ```
 
 https://mybot314.ru/tekegram_catalog/

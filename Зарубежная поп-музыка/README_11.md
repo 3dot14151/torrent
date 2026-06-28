@@ -1,3 +1,32 @@
+###  Публикация: 1373512   (876826) от 08.04.2020
+
+DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876826.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.DJ BoBo, Faye Wong - Freedom (4:13)
+2.DJ BoBo - Rock My World (Extended Version) (4:46)
+3.DJ BoBo - Where Is Your Love (Remix from Spain) (4:07)
+4.DJ BoBo - Its My Life (40o Brasil Mix) (4:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FC6B085BF298C35F51E4741EE60A9150199117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105045   (875068) от 18.02.2017
 
 VA - Latin Lovers (2017) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ VA - NRJ Hit Music Only (2015) 2CD[MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221F9514A7A68C13E37D2E34DABDFA5C84E35264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875609   (855842) от 07.03.2015
-
-VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
-01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
-02. Sia - Elactic Heart  (4:17)
-03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7ED97EC01C48CF9863ABE24A2AE8D91F6B56C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

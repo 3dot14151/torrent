@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1878305   (1074672) от 
+
+VA - Italo Disco 2025 (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GiPiPSB Project - Automatic Affair (2:25)
+02. Mr Salama - Baby Girl (2:28)
+03. DEXRA - Italo Disco (4:41)
+04. Zakirovec - Children (2:36)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 02:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96159D9C62B3583E3167C0D27C055D5BB591F1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877623   (1074163) от 22.06.2026
+
+VA - Euro Hits 2017 vol.-1 [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074163.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:04]. 001-Beat Sounds - In Zaire (cover Johnny Wakelin)
+[3:19]. 002-Anton Liss & Andrew Rai & Veselina Popova - Keep On Moving
+[4:21]. 003-Chris Webby - Twist Again (La La La)
+[3:43]. 004-Akcent & Amira - Gold(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 07:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE6D181B3635D825219363EB70ADD824FA0BE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877151   (1073860) от 
 
 VA - REDISCOVER The 2020s: Pop (2026) [MP3|320 Kbps] <Pop>
@@ -19,6 +77,64 @@ VA - REDISCOVER The 2020s: Pop (2026) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91AD4B9E88B23CA2BA5E8B23686130A5E8C2F4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877055   (1073660) от 18.06.2026
+
+Григорий Лепс - Новое и лучшее 1995-2026 (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мира в дом (2026) (05:34)
+ 002. Прощай, я улетаю (2026) (05:22)
+ 003. Адвокат дьявола (2026) (03:21)
+ 004. Драмеди (2026) (03:21)(   Читать дальше...   )Жанр: PopПродолжительность: 09:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F29D37A486A6D2C72C62AFD1D9B097D6EADA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877069   (1073647) от 18.06.2026
+
+VA - REDISCOVER The 2010s: Pop (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta - Titanium (Feat. Sia) (4:05)
+002. The Weeknd - Can't Feel My Face (3:33)
+003. Taylor Swift - I Knew You Were Trouble. (3:38)
+004. Ed Sheeran - Perfect (4:23)(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9CD96372A4B473775EFB6CCC56120E31732E89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,122 +741,6 @@ Aurum Project - Wasted Love (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D43F63A4A41E2860B05060618025CEEB4949476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871187   (1069394) от 15.05.2026
-
-Aurum Project - Out Of The Shadows (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need Is You (5:29)
-02. Broken Wings (5:16)
-03. Dance With Me Tonight (4:49)
-04. Dancing Like The World Ends At Dawn (3:16)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CC2A0F7D5EA808A21F8F8C9149274750EB514D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871184   (1069393) от 15.05.2026
-
-Aurum Project - Let The Party Go On (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever In Your Eyes (3:42)
-02. Only You My Love (3:39)
-03. Midnight Lover (3:44)
-04. Hope (3:21)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834075BCCC671F524D5651A6A8D13C02F68FB16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871181   (1069392) от 15.05.2026
-
-Aurum Project - Hunters Of The Night (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Cry In The Night (4:34)
-02. Acapulco (3:47)
-03. And One Day (4:32)
-04. Angel Eyes (3:48)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A101B82C8C7A4E700B00F26D40A6A5F73FA5037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871178   (1069389) от 15.05.2026
-
-Aurum Project - Just Like An Angel (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Never Let You Go (7:13)
-02. Somebody Like You (7:08)
-03. No More Goodbye (7:04)
-04. Keegi nagu Sina (Special Version) (7:04)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 02:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9547BD5320933EAE34F7C0486532F65C7F8290FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

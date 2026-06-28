@@ -1,3 +1,148 @@
+###  Публикация: 1517918   (161513) от 17.12.2021
+
+VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам хочется романтики, хочется послушать относительно спокойную музыку, но не лишённую ритма, то эта подборка для вас. В ней вы найдете 120 отличных треков, которые помогут вам по-настоящему насладиться музыкой.001. Deejay Terry - Misterioso
+002. Salvatore Bruno - Want To Get Down
+003. In-Sane - B-Ben
+004. Roy Rosenfeld - Cherry On Top(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598792   (161311) от 21.12.2022
+
+Vargo - Compilation (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (Original Chorus Mix)
+02. Relax (Blank & Jones, Vargo Vocal Rmx)
+03. Those Were the Days
+04. Slowdive(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFC067257AEF0AFB5AF313858F8F8B63B575B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433280   (161133) от 20.12.2020
+
+VA - Record Super Chart 667 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - The Business (2:43)
+02. Fousheé - Deep End (Katana Angels Remix) (2:35)
+03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+04. Slava Marlow - Снова я напиваюсь (1:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8B338A6E0187AE8E012C18D06DC75F592A8F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598693   (161131) от 21.12.2022
+
+VA - Vocal Melodic Techno for U (2022) [MP3|320 Kbps] <Melodic Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161131.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anyma Feat. Meg Myers - Running (6:25)
+002. Rafael Cerato - Overdrive - Thodoris Triantafillou Remix (8:19)
+003. Stereo Underground - Behind the Moon - Sasha Carassi Remix (6:48)
+004. Mark Tarmonea - Run & Hide - Aether Remix (7:02)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 15:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E052445458FBD855AD56E6134916F3024D17BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674634   (160840) от 06.11.2023
+
+VA - Magical & Mellow, Poetic, Sensual & Relaxing Instrumentals (2023) [MP3|320 Kbps] <Lounge, Chillout, Smooth-Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Calmness (6:24)
+02. Chillaxing Jazz Kollektion - Gentle Oceans (5:32)
+03. Kool&klean - Paradise (5:21)
+04. Chillaxonic - Aurora (5:13)(   Читать дальше...   )Жанр: Lounge, Chillout, Smooth-Jazz, Easy-ListeningПродолжительность: 02:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F8D9E451436BF1AC989C3DFF5A9F6EF8513CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674216   (160830) от 06.11.2023
 
 VA - Kontor Top of the Clubs Vol. 98 (2023) [MP3|~266 Kbps (V0)] <Electronic, Dance, Club, House>
@@ -600,151 +745,6 @@ VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346607   (157895) от 20.12.2019
-
-VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157895.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christian Hornbostel - Nebula
-002. Edu Andreazza - Timeless Reality
-003. Vincent Hiest - Behind Me (Original Mix)
-004. Samuel Deep - Ghetto Ds(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 10:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAE6566DC554D2053AB5ED825AEB1B3BA911E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346604   (157807) от 20.12.2019
-
-VA - Beatport Electronic Pack 01 (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157807.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gui Boratto - No Turning Back
-002. Raymond D Barre - Shodar (Original Mix)
-003. Duca - No Comment (Original Mix)
-004. Soman - Impact(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED3D3DB6E29C6890765CE851A08961059184C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346629   (157783) от 20.12.2019
-
-VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157783.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luzzana - Tlvi
-002. Sodur - Benatural
-003. Davide Paganotto - Va Pensiero
-004. Soul Train - Jules Renauld And Von Mondo(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 09:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0F01D0CCAF6EDA61858B83CB4F1C8A3471F6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270492   (157540) от 19.12.2018
-
-VA - Winter Chillout Compilation (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157540.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Oliver Scheffner - Dreams Of Sunbeams
-002. Puremusic - Closer
-003. Planningtorock - Much To Touch
-004. Ryan Pearce - Open All Night(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C00659FC9A32B9CB6DDF86E69700E8CBE017E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270515   (157440) от 19.12.2018
-
-VA - Equilibrium: Pure Deep House (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artur Muro - Deep
-002. Soulkeys - Morning After
-003. Deepraved - Give For Me (Extended Version)
-004. Dapayk Solo - Daydreaming(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4FECE069E7716FB0DC37745D0AA552690CF0EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

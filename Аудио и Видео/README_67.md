@@ -1,3 +1,177 @@
+###  Публикация: 1509163   (795716) от 11.11.2021
+
+VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
+02. No Noise - Karma Shabda (Original Mix) (5:07)
+03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
+04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509152   (795715) от 11.11.2021
+
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polarity - Litu (Original Mix) (2:16)
+02. Natural Factor - Next Us Now (Original Mix) (3:33)
+03. Chill Art - Runi (Original Mix) (5:09)
+04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509150   (795679) от 11.11.2021
+
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 2 (2016) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANDY FOSFORO - Research (2:51)
+02. Balearic Lounge Orchestra - Oriental Bazar (Original Mix) (5:25)
+03. Slow Motion Project - Play the Bass (Original Mix) (5:37)
+04. Tim Carvalho - Black & Light (Original Mix) (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5744ED011424833D68A2FC3612DC06383FC6B12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509219   (795676) от 11.11.2021
+
+VA - Balearic Bar & Beach Tunes (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - City Lights (Original Mix) (6:03)
+02. Lounge Groove Avenue - Te Quiero (Original Mix) (4:07)
+03. Patiotic - Hold Me (Original Mix) (4:32)
+04. Corrado Saija - Kalakuta (Original Mix) (7:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6BFFF2290D8A36BA80E2E04B8BC9607E7A62C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508987   (795667) от 11.11.2021
+
+VA - Café del Mar XXVII (Vol. 27) (2021) [AAC|~347 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795667.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Eric Hilton - The Impossible Silence (3:06)
+1.02. Kraak & Smaak, iogi - All I Need (4:32)
+1.03. Bent - Friends (5:39)
+1.04. Till Von Sein - Kalifornien Luv (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAAB5919817C6FC4912D50B2129EA305D4EE702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509098   (795610) от 11.11.2021
+
+Стас Намин и Группа Цветы - Летать (2021) [AAC|~327 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Другой мир (4:30)
+02. Стас Намин и Группа Цветы, Вера Зудина, Олег Предтеченский - Любовь (4:54)
+03. Время на моей стороне (4:10)
+04. Шар голубой (6:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C8C193994CF09E87FC9E8BF386C288339BE03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200645   (795580) от 21.01.2018
 
 Геошторм / Geostorm (2017) BDRip [576p] iPad
@@ -538,168 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203DA519ECECDA15847FEB875C8AE378B3372312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122519   (794369) от 05.04.2017
-
-Огни большой деревни  (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794369.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Родина» в смертельной опасности. Ровно через неделю ее сравняют с землей. Спасти кинотеатр может только успешная премьера. За дело берется пара супергероев без суперспособностей. В их распоряжении — камера, девушка-ниндзя и Дмитрий Дюжев. Правда, он об этом еще не знает.Производство: РоссияЖанр: КомедияРежиссер: Илья УчительАктеры: Дмитрий Дюжев, Кирилл Фролов, Максим Емельянов, Анастасия Мытражик, Василий Кортуков, Юрий Быков, Тагир Рахимов, Карен Мартиросян, Кирилл Полухин, Анна Воркуева, Константин СухарьковПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568B42937C0A666352CD8EBB8A48AA67DD56A177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122581   (794363) от 05.04.2017
-
-Огни большой деревни  (2016) WEB-DL [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794363.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Родина» в смертельной опасности. Ровно через неделю ее сравняют с землей. Спасти кинотеатр может только успешная премьера. За дело берется пара супергероев без суперспособностей. В их распоряжении — камера, девушка-ниндзя и Дмитрий Дюжев. Правда, он об этом еще не знает.Производство: РоссияЖанр: КомедияРежиссер: Илья УчительАктеры: Дмитрий Дюжев, Кирилл Фролов, Максим Емельянов, Анастасия Мытражик, Василий Кортуков, Юрий Быков, Тагир Рахимов, Карен Мартиросян, Кирилл Полухин, Анна Воркуева, Константин СухарьковПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0966EFF9857049227F3B63D8270397D14330F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386434   (794336) от 29.05.2020
-
-Аванпост (2019) BDRip [1080p] ATV3
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794336.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем что-то произошло. Связь с большей частью населенных пунктов Земли оборвалась. Космонавты передали с орбиты, что видят сверху небольшое пятно в Восточной Европе, по своим очертаниям напоминающее круг. То, что военные находят за границей этого круга, шокирует. В магазинах, в автомобилях, на дорогах, в зданиях больниц и вокзалов, повсюду — следы (   Читать дальше...   )Производство: Россия / 1-2-3 Production, TNT-Premier, Канал ТВ-3Жанр: Триллер, фантастика, боевикРежиссер: Егор БарановАктеры: Лукерья Ильяшенко, Пётр Фёдоров, Светлана Иванова, Алексей Чадов, Ксения Кутепова, Константин Лавроненко, Филипп Авдеев, Артем Маркарьян, Сергей Годин, Артем ТкаченкоПеревод: Не требуется (русский) ЛицензияСубтитры: Русские (Forced), Английские (Full)Продолжительность: 02:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEFBD8AEAB871F0100E9A87CCA939D0D225BC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274211   (794104) от 06.01.2019
-
-Ограбление: Код 211 / 211 (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский код 211 — ограбление банка. Такой сигнал получает офицер Чандлер во время своей смены. Он бросается на место событий, чтобы не позволить преступникам сбежать с добычей.Производство: СШАЖанр: Боевик, драмаРежиссер: Йорк ШеклтонАктеры: Николас Кейдж, Софи Скелтон, Майкл Рейни мл., Дуэйн Камерон, Уэстон Кейдж, Кори Хардрикт, Ори Феффер, Марк Баснайт, Аманда Серни, Майкл БеллисариоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC069D98356FC9ACF84FCDD065CA69EA1FFA062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509484   (794079) от 13.11.2021
-
-Kylie Minogue - DISCO: Guest List Edition (2021) [AAC|~334 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:11)
-02. Miss a Thing (3:56)
-03. Real Groove (3:15)
-04. Monday Blues (3:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEFBBBBB1E88BD88EF1D91D949A06FCEB3E9E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509534   (794038) от 13.11.2021
-
-Schiller - Epic (Deluxe) (2021) [AAC|~308 Kbps] <Chill Out, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794038.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Willkommen (0:35)
-1.02. Do You See The Light? (6:11)
-1.03. The Endless (5:46)
-1.04. Midnight in Shiraz (3:51)(   Читать дальше...   )Жанр: Chill Out, Downtempo, AmbientПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F53D10B0F9BF07D3BA2EBC858623E2E63F1DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

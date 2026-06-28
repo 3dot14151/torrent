@@ -1,3 +1,32 @@
+###  Публикация: 1217457   (743486) от 04.04.2018
+
+Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capitol Records, Compilation [MP3|320 Kbps] <Country, Alternative Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. Strawberry Wine 4:50
+02. We Danced Anyway 3:23
+03. Did I Shave My Legs for This? 3:13
+04. Count Me In 3:25(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217341   (743234) от 04.04.2018
 
 Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -716,35 +745,6 @@ VA - Home Gym (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25916F168769A1BA336D4ECC154119DE56EDFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529288   (732645) от 06.02.2022
-
-VA - 100 Greatest 80s Pop Songs (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. George Michael - Careless Whisper (6:32)
-002. Richard Marx - Right Here Waiting (4:24)
-003. Irene Cara - Flashdance...What A Feeling (From Flashdance ) (3:44)
-004. Billy Joel - Tell Her About It (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 07:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997AAD150406F459C578B5D4E484C2759D4E8D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

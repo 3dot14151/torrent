@@ -1,3 +1,131 @@
+###  Публикация: 1161264   (469658) от 27.08.2017
+
+VA - DJ Empire presents: A Tribute To Giorgio Moroder (2000) Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Moroder  vs. Jam & Spoon - The Chase (Jam & Spoon Radio Mix) 3:54
+02. Giorgio Moroder vs. Talla 2XLX - E=MC2 3:34
+03. Giorgio Moroder vs. Spotlite Productions presents Sarah Abdallah - Flashdance (What A Feeling) 3:50
+04. Jill Jones vs. Todd Terry - Call Me 3:50(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0D24B1BBC0281E4156897A7D525968E7DF976C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161398   (467373) от 28.08.2017
+
+Samantha vs. Sabrina - Call Me (2010) EP, Enhanced [APE|Lossless|image + .cue] <Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samantha vs. Sabrina - Call Me
+02. Sabrina Salerno - In The Morning
+03. Samantha Fox - I Give Myself To You (Remix)
+04. Sabrina Salerno - Gringo (Remix)(   Читать дальше...   )Жанр: Disco, Eurobeat, Hi-NRGПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209B691E778936F32BD7C03373ADD0208672D74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546575   (466578) от 18.09.2012
+
+Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [FLAC|Lossless]<Pop, Disco, Eurodance.>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus (Noah's Ark 2001Maxi Version)
+02. Wild Planet (Maxi Version)
+03. Somewhere In The World (Long Version)
+04. Future World (Long Promo Version)
+05. 10.000 Lightyears (Promo Version)
+06. Kalimba De Luna (US Club Mix)
+07. Young, Free And Single (12' Version)
+08. Daddy Cool (Anniversary Recording '86Special Club Mix)
+09. Mother And Child Reunion (Frank Farian CorporationLong Version)
+10. I'm Alive (Frank Farian CorporationLong Version)(   Читать дальше...   )Жанр: Pop, Disco, Eurodance.Продолжительность: 01:02:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548897   (464368) от 19.09.2012
+
+Village People - The Best Of (1998) [FLAC|Lossless]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y.M.C.A. [04:49]
+02. Macho Man [05:15]
+03. Can't Stop The Music [03:39]
+04. San Francisco [05:19]
+05. In Hollywood [04:55]
+06. Ready For The 80's [06:54]
+07. Key West [05:47]
+08. In The Navy [03:46]
+09. Fire Island [05:20]
+10. Go West [06:38](   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939761   (455450) от 30.09.2015
 
 Mike Mareen - The Best Of (2002) [FLAC|image+.cue]<Italo-Disco>
@@ -645,122 +773,6 @@ Cerrone - Hysteria (2002) [FLAC|Lossless|tracks + .cue] <Disco, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:577B7D5D59AA593C8857479F394BFF559EC535DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171616   (393947) от 07.10.2017
-
-Lili & Susie - The Sisters (1990) [FLAC|Lossless|image + .cue] <Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boyfriend
-02. Can't Let You Go
-03. Can You Keep A Secret?
-04. Evelyn [0:04:02.08](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDCE5A0DAE60E29BB5EFD5EACA5CADEFC8FADC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067593   (386987) от 29.10.2016
-
-Cerrone - Red Lips (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy (feat. James Hart) [03:38]
-02. Move Me (feat. Brendan Reilly) [03:36]
-03. Illuminate Me (feat. Sam Gray) [03:16]
-04. Ain’t No Party (Like Monday Night) (feat. Kiezsa) [04:10](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFDD5C866718FD2A5D76A31EC8931B41F148543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067281   (386976) от 29.10.2016
-
-Gazebo - Lunatic (2013) Compilation, 2CD [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like Chopin (Extended Version) 7:42
-02. Lunatic (Extended Version) 6:24
-03. Telephone Mama (Extended Version) 5:45
-04. Trotsky Burger (Extended Version) 5:31(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A55755698C45378E0420513F4553084385A38A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414481   (385498) от 08.10.2020
-
-VA - Italo Disco - The Lost Legends Vol. 31 (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurice Yesterday – Come On (06:19)
-02. Pascalin – How Did You Come Into My Life (05:59)
-03. Claudio – Crazy In The Night (08:30)
-04. Susanne – Give Me Love (05:42)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666800FC2F39CEF27262181195A33B723CB71BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

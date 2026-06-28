@@ -1,3 +1,61 @@
+###  Публикация: 1453077   (1027209) от 09.03.2021
+
+Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Али Ули (feat. S3RL) [02:58]
+02 - Анапа (feat. DK) [03:45]
+03 - Герда [02:49]
+04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453896   (1026597) от 13.03.2021
+
+Балаган Лимитед - Поговорки (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Обнимашки [00:03:30]
+02 - Чё те надо (Version 2019) [00:03:29]
+03 - На восходе [00:03:06]
+04 - Ветер унеси (Solo Version) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4B39DAF3C0799B9D10D9FB97B9D7CECFD4D0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454839   (1026138) от 16.03.2021
 
 Шпильки - The Best & New. Альбом третий (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Горячая десятка 14 (2002) [FLAC|Lossless|tracks + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB3BE02CBF1B43BC3826AD12C832E92CF6E6FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471753   (1014800) от 22.05.2021
-
-VA - Мужские песни (2003) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Маршал - Журавли, журавли...
-02. А. Днепров - Милая
-03. Самоцветы - Колоколенка
-04. Рядовой Дарин - На свадьбе(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474E5E4B7400D7AD4A15488CD181A7C4677E536C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472203   (1014503) от 24.05.2021
-
-Марина Сафонова - Ставка на ZERO (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ZERO
-02 Не по правилам
-03 Стекло на губах
-04 Ищу Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F9CF60E20AAC1CC6AEEB6EE161FD4ACBBDB538
 ```
 
 https://mybot314.ru/tekegram_catalog/

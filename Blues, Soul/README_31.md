@@ -1,3 +1,32 @@
+###  Публикация: 953797   (344765) от 06.11.2015
+
+Amos Milburn - Blues, Barrelhouse & Boogie Woogie: 1946-1955 (1996) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  After Midnite (2:55)
+02.  My Baby's Boogying (2:27)
+03.  Down The Road Apiece (2:57)
+04.  Amos' Blues (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A2A9140D87B322A66D672D15A7C3A1D0AFF8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953867   (344761) от 06.11.2015
 
 Big Cat - Big Cat (2015) [MP3|320 кб/с]<Blues Rock>
@@ -716,35 +745,6 @@ Janie Cribbs & The T.Rust Band - Queen Of Fire (2018) [MP3|320 Kbps] <Electric B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C40D8D23752B4EE01FE7D9DEF81A76CC98E915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581304   (327207) от 05.10.2022
-
-Rory Gallagher - Deuce (1971) 4CD, 50th Anniversary, 2022, UMC [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Used To Be (50th Anniversary Edition)
-02. I'm Not Awake Yet (50th Anniversary Edition)
-03. Don't Know Where I'm Going (50th Anniversary Edition)
-04. Maybe I Will (50th Anniversary Edition)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4C9CA241A8053A5D6D5EC214C2DFDC3E2A01F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

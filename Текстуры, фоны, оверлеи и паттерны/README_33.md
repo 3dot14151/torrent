@@ -1,3 +1,55 @@
+###  Публикация: 1795773   (19123) от 06.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Watercolor Ocean Waves Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные фоны с океаническими волнами.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9B0597BDE6CFC4B54D4E09CE90B241FF1D1863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795838   (18406) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Victorian Lace Elegance Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с викторианским кружевом.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD239CA7D1D8AAE2037561181BD44BA027694ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795978   (18401) от 13.05.2025
 
 Текстуры - Free PSD Templates - Geometric Background [JPG, PNG, AI]
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF6DF97548E150DD42CDBB5DD19617E667B010B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800100   (16079) от 31.05.2025
-
-Фоны - Forhadx5 - Creative Fabrica - Camouflage and Plaid Texture Background Bundle [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с камуфляжной и клетчатой текстурой.Формат: JPGРазрешение файлов: 3000 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2C9A13B10B4ACBC1411FCC70A5933CB1E70027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800456   (15751) от 03.06.2025
-
-Фоны - Pixflow - Tour Visual Backgrounds [PSD, PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15751.jpg" />
-</div>
-
-
-###  Подробнее
-
-54 визуальных фона для туров, которые идеально подходят для диджейских фонов, экранов концертных сцен, стилистических листовок, музыкальных постеров и элементов музыкальных видеоклипов в качестве музыкального визуализатора.Формат: PSD, PNG, JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B0A5C631567764E60C10D1B95C2897F418464E
 ```
 
 https://mybot314.ru/tekegram_catalog/

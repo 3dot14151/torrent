@@ -1,3 +1,171 @@
+###  Публикация: 1502783   (824961) от 16.10.2021
+
+Pieces of a Dream - Fired Up! (2021) [AAC|~361 Kbps] <Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Too Deep (4:32)
+02. Ear Candy (4:18)
+03. Smoothing Out (4:38)
+04. Livin' The Life (4:13)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B597319DF251F765330F3D03960EF8A6BB516B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502676   (824951) от 16.10.2021
+
+VA - We Love Bass mixed by Lady Waks (2021) [AAC|~316 Kbps] <Breakbeat, Breaks, Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Multiply, Ivory - Back In The 90's (5:14)
+02. Deekline, Fish - Sugar & Spice (VIP Mix) (4:33)
+03. Kid Panel - My Bassline (4:39)
+04. Brothers of Funk, Jock D - Grandmasters Of Bassology (3:30)(   Читать дальше...   )Жанр: Breakbeat, Breaks, Drum & BassПродолжительность: 06:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4238619DC97DDF1118847DC79C6B015817EF0BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498518   (824745) от 16.10.2021
+
+Кирилл Тесленок | Архимаги не ищут легких путей! (Тетралогия).  (2020-2021) [M4B | AAC, Александр Чайцын]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя ему – архимаг Парацельс. Он могущественен, хорош собой и любит выпить. На досуге превращает древних вампиров в прекрасных принцесс и предлагает им заняться… совместным бизнесом. Он не признаёт королей, смеётся в лицо богам, но очень боится своего кота – потому что тот рыжее зло во плоти.Жанр: Фэнтези, ЮморФормат: M4BПродолжительность: 54:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC0DD4320FC47420D913ECEFCC578D033464309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502780   (824744) от 16.10.2021
+
+Coldplay - Music Of The Spheres (2021) [AAC|~313 Kbps] <Indie Rock, Indie Pop, Alternative Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ⦵ (0:53)
+02. Higher Power (3:27)
+03. Humankind (4:27)
+04. *✧ (0:53)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Alternative RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188FC387C5D51A56F494AAE86C8039E86BB7D51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502781   (824732) от 16.10.2021
+
+Orchestral Manoeuvres in the Dark - Architecture & Morality Singles (2021) [AAC|~358 Kbps] <New Wave, Synthpop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souvenir (3:37)
+02. Motion And Heart (Amazon Version) (3:08)
+03. Sacred Heart (3:31)
+04. Souvenir (Demo) (4:18)(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2BC1D4A515D240A7CBAF1443C862FBD72AC710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006946   (824519) от 13.04.2016
+
+Мад / Mud (2012) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824519.jpg" />
+</div>
+
+
+###  Подробнее
+
+14-летний Эллис живет с родителями в плавучем доме на берегу Миссисипи, в свободное время вместе с другом Некбоуном исследует реку. Однажды они находят на безлюдном острове лодку, застрявшую в ветвях дерева после крупного наводнения. Подростки хотят сделать лодку своим убежищем, но выясняется, что в ней уже кто-то поселился. Им оказывается некто по имени Мад, человек (   Читать дальше...   )Производство: СШАЖанр: Драма, криминалРежиссер: Джефф НиколсАктеры: Мэттью МакКонахи, Тай Шеридан, Сэм Шепард, Риз Уизерспун, Джейкоб Лофленд, Рэй МакКиннон, Сара Полсон, Майкл Шеннон, Джо Дон Бейкер, Пол СпарксСубтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: tt1935179
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA49FB7E6BDD8F377B2B1F3DF0C113EE9034F685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116061   (824355) от 19.03.2017
 
 Кредо убийцы / Assassin's Creed (2016) BDRip [720p] ATV
@@ -539,180 +707,6 @@ VA - Disclosure: DJ-Kicks (2021) [AAC|~311 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7023CF7D67A4BE1C847662D2B324B74B6FC7A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503247   (821453) от 18.10.2021
-
-VA - Spacedance, Vol. 2 (2021) [AAC|~340 Kbps] <Spacedance, Spacesynth, Retrowave>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight - Atomic World (Laser Version 12") (5:31)
-02. Based on Bass - Space Odyssey (Extended Mix) (4:58)
-03. Humphrey Robertson - Eternity (Sd1 Version) (4:22)
-04. Daylight - Digital Power Control (5:36)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B425C8CE8D43C7F7E55A2218422E9FD0AAA094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503188   (821449) от 18.10.2021
-
-Jazzy System - Answer Me (2020) [AAC|~313 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High (3:33)
-02. Atlanta (4:47)
-03. Hybrid Jazz (3:21)
-04. Simple Things (3:46)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF20BF15ADB45FB5AEA754310F2D669E7B8E9D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503185   (821442) от 18.10.2021
-
-Jazzy System - Another World (2019) [AAC|~266 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday 3 AM (3:30)
-02. Live Or Die (4:03)
-03. Strange Things (4:52)
-04. The Next Morning (4:18)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1313B76C8CF003C91A54B51B7876A0A65392509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503244   (821438) от 18.10.2021
-
-VA - Spacedance, Vol. 1 (2021) [AAC|~356 Kbps] <Spacedance, Spacesynth, Retrowave>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Based on Bass - Magic World (Spacemix) (4:27)
-02. Daylight - Touring Space (5:21)
-03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
-04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2CEA0136384F2529CAA43EAEA66BBBB2000DD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503251   (821436) от 18.10.2021
-
-VA - Spacedance, Vol. 3 (2021) [AAC|~322 Kbps] <Spacedance, Spacesynth, Retrowave>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Based on Bass - Automatic Control (Extended Mix) (5:11)
-02. Daylight - Colour of My Dreams (5:23)
-03. Humphrey Robertson - Coming to Earth (Sd3 Version) (4:45)
-04. Daylight - Dance Revolution (Extended Version) (5:44)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EF32AACE156500619BB0485EF1799704029215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503191   (821428) от 18.10.2021
-
-VA - Be Phazz-a-Delic. 20 Years of Musical Delightment (2021) [AAC|~336 Kbps] <Nu Jazz, Acid Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday People - Swing with Me (Ff-Edit) (3:55)
-02. Monophonic - I Looked at Clouds That Way (3:59)
-03. De-Phazz - No Lie (3:45)
-04. Paum - My Pretty (3:30)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, LoungeПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15B4359CC717A72FCED6980142420AE35939B4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

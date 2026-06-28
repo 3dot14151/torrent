@@ -1,3 +1,148 @@
+###  Публикация: 1261965   (298596) от 13.11.2018
+
+VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tigran Oganezov - Sexciter
+002. Deljoi - Take It Back Jack
+003. Douglas Greed - Down Here
+004.  Klangdeko - Haubutze(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F74E3F0F446C4B5E1B85EBCD966323D93B1E280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078811   (298313) от 02.12.2016
+
+VA - Wonders Essential Trance (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Watts - Square One (Original Mix) 6:44
+02. Steve Brian - Yebaka 2:56
+03. Emanuale Congeddu & ARCZI - Merchant Prince 7:25
+04. Sean Tyas - Matter Of Time (Original Mix) 8:28(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal, Emotional, UpliftingПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E82555249561AEF3040382E5903ED9E05F1BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184928   (297445) от 19.11.2017
+
+VA - Boudoir Lounge Area (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297445.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guna Nada Das - Shiva Dance (Extended Mix)
+002. York, Wadadli Acoustics - Nothing is over
+003. Florito - Funny Valentine
+004. Cotton Lovers - Rer(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 12:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C629DEF03112D63186B18FCE73739A98596AE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184853   (297435) от 19.11.2017
+
+VA - Record Super Chart #512 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Malaa  - Notorious  3:58
+02.  Martin Garrix, Matisse & Sadko  - Forever  4:40
+03.  Damien N-Drix  - Turn It Up  2:30
+04.  Mari Ferrari feat. Miss Mary  - Maria Maria  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B3E81E188E6BB7A8088258C137339E018F24F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961946   (297233) от 03.12.2015
+
+VA - Tech House Revealed Christmas (2015) [MP3|320 кб/с]<Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jey Indahouse - Bassline [06:59]
+02. Bobby Deep - Jamais [07:07]
+03. Tek Base - Sippin' on That Hate (Lead Mix) [08:01]
+04. R. Double - E=mc2 [07:07](   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 05:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77476F06ACF2B59101E0358EBFCBD183BDEB7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961938   (297229) от 03.12.2015
 
 VA - Trance Legends: Christmas (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
@@ -603,151 +748,6 @@ VA - Beatport Top 100 Techno November (2016) [MP3|320 Kbps] <Techno, Minimal Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96633C6E744B5AF7C85E83996C6A0B2AAE9DA97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079420   (294248) от 04.12.2016
-
-VA - Beatport Top 100 EDM Songs & DJ Tracks November (2016) [MP3|320 Kbps] <Tech House, Techno, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294248.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Green Velvet, Prok & Fitch - Sheeple (Original Mix) 7:02
-002.Dennis Cruz - Everybody (Original Mix) 6:52
-003.Moby - Why Does My Heart Feel so Bad (Enrico Sangiuliano remix) 7:15
-004.Cari Golden, Reinier Zonneveld - Things We Might Have Said (Original Mix) 7:55(   Читать дальше...   )Жанр: Tech House, Techno, DanceПродолжительность: 11:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15789CC6C226E06408602AF74FDAB72F4E609A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185412   (293742) от 21.11.2017
-
-VA - Full Moon Trance Party (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dave Marxon - Neuroscience (Madwave Radio Mix)
-002. Simon Ice - Skiner (Original Mix)
-003. The Thrillseekers with Katherine Amy - I Gotta Let You Know
-004. Susana - Unbreakable (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C40A5238B73337A7D0D829B4C6266B9B408F100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262654   (293510) от 16.11.2018
-
-VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Rostej - Call Me Helen (Original Mix)
-002. Alex Brynskich - Rain (Original Mix)
-003. Guitamar - Selva Negra (Original Mix)
-004. Mytron & Ofofo - Medicine Man (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185335   (293492) от 21.11.2017
-
-VA - Лучшие клубные новинки Vol.4 (2017) [MP3|320 Kbps] <House, Trance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293492.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Maddix & JUNIOR  - Trabanca (Extended Mix)  4:12
-002.  Abstract Vision  - Falcon (Extended Mix)  6:39
-003.  Sam Laxton  - Product Of The Devil  5:03
-004.  Robert Nickson  - Heliopause  7:21(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 14:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CC5823115B80CF37C56D9208FFCA85B4451069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185380   (293488) от 21.11.2017
-
-VA - Deep House Collection Vol.145 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7even (GR) - Anabasis (Original Mix) 5:45
-02. Achilles & One - Alive (Original Mix) 6:03
-03. Achtabahn, Matt Andersen - Ain't No Sunshine (Original Mix) 2:41
-04. Adam Husa - Busking (Original Mix) 9:04(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A2AB3B0C616AADCEDFC6A4D0785DD32E696E61
 ```
 
 https://mybot314.ru/tekegram_catalog/

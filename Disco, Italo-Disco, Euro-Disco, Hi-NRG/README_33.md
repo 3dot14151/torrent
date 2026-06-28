@@ -1,3 +1,61 @@
+###  Публикация: 1071347   (361816) от 09.11.2016
+
+Saint Tropez - 4 Albums (1977-1982) LP [MP3|320 Kbps] <Funk Soul, Disco, Erotic-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и многие диско-группы 70-х «Saint Tropez» были продюсерским детищем, в данном случае двух американских продюсеров Лорена Райндера и Майкла Льюиса. Они уже были известными с диско-группами «El Coco» и «Le Pamplemousse». Все выпущенные альбомы были чрезвычайно успешны. Тематически связаны одной концепцией чувственной диско-симфонии, сильны своими оркестровыми аранжировками (   Читать дальше...   )Список альбомов:
+1977 - Je T'Aime
+1978 - Belle De Jour
+1982 - Femmes Fatales(   Читать дальше...   )Жанр: Funk Soul, Disco, Erotic-DiscoПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C70FF4361EB81F55008A17890ABC14C472E0F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951870   (360584) от 30.10.2015
+
+Dschinghis Khan - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moskau (04:32)
+02. Komm doch Heim (04:19)
+03. Samurai (04:42)
+04. Rocking Son Of Dschinghis Khan (04:16)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E396A52E8EE8CCC0CB26D4B4271B9146B8A76927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328987   (358170) от 02.10.2019
 
 VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2xCD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -684,64 +742,6 @@ Joy Peters - Burning Dreams (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62563249BC9F50E6B30D2B8943DAFAFE7CB3E277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257954   (341065) от 28.10.2018
-
-VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momento - Forever (Short Remix)
-02. Naomi - Domani (Tomorrow) (Short Mix)
-03. Solitario - Leave Me Alone (Short Fly Mix)
-04. Momento - Never Too Late (Short Remix)(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78999D63DF733B7D70CD09F3642E71066998F21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180364   (340278) от 04.11.2017
-
-VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chito - Cold as Ice (4:02)
-02. Nikita Fomin - Stranger (3:52)
-03. The Daylite - Do I Love You (80's Disco Mix) (3:16)
-04. Chito - The Long Tomorrow (4:09)(   Читать дальше...   )Жанр: EuroDance, EuroDiscoПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
 ```
 
 https://mybot314.ru/tekegram_catalog/

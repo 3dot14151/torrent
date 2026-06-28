@@ -1,3 +1,32 @@
+###  Публикация: 1017300   (761102) от 17.05.2016
+
+Muddy Waters -  Les Genies du Rock - Got My Mojo Working (1993) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Muddy Waters Twist (1:53)
+ 02.  Read Way Back (2:37)
+ 03.  Rock Me (3:11)
+ 04.  Hey, Hey (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD4F7D3F3A400C28C4C4E68947C1E9E6D37B8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019338   (752266) от 22.05.2016
 
 Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Blues Rock>
@@ -716,35 +745,6 @@ Janiva Magness - Love Wins Again (2016) [MP3|320 кб/с] <Modern Electric Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FBD5A6D250FE30CAB102292675632B563538226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021039   (740688) от 29.05.2016
-
-Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sold For Love (06:23)
-02. River Of Tears (02:47)
-03. Coco Blue (04:55)
-04. 12 Bar Blues (04:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332975BDC02D78187AE5FABA20CF210F480CA947
 ```
 
 https://mybot314.ru/tekegram_catalog/

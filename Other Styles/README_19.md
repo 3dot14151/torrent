@@ -1,3 +1,116 @@
+###  Публикация: 1089263   (950141) от 04.01.2017
+
+VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack + Karaoke (2016) [MP3|320 кб/с]<Score, Soundtrack, Karaoke>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevie Wonder - Faith (Karaoke Version) (02:38)
+02. Seth MacFarlane - Let’s Face The Music And Dance (Karaoke Version) (02:54)
+03. Scarlett Johansson & Beck Bennett - I Don’t Wanna (Karaoke Version) (01:23)
+04. Reese Witherspoon & Nick Kroll - Venus (Karaoke Version) (02:30)(   Читать дальше...   )Жанр: Soundtrack, Score, Karaoke •Продолжительность: 02:24:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065D3C44291178DB6BB98A3565CDEB6435541E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089451   (950047) от 04.01.2017
+
+Б. Гребенщиков - АЭРОСТАТ - цикл передач Радио России (2017) Выпуск 607 (обновляемая) [MP3|192 Kbps]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гребенщиков давно хотел познакомить массового слушателя с альтернативной западной и российской музыкой, не вписывающейся в нынешний FM-формат. Для борьбы с засильем попсы в эфире БГ выбрал самое массовое радио страны – «Радио России»: его слышно не только на 1-й кнопке проводного вещания, но и на длинных, средних волнах и УКВ во всех без исключения регионах страны. (   Читать дальше...   )Продолжительность: 45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC6495CBB764D50A4CEFC891354306546C1691F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981985   (949993) от 02.02.2016
+
+StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home
+02. Universe
+03. One Journey
+04. Smooth Sailing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC9BA8ECA72DDAE54CE202C8FA79419DD75B4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362314   (949692) от 23.02.2020
+
+Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949692.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:32| 01. We Have a Fan Club?
+|04:19| 02. Entering Camp
+|03:03| 03. I Got Top Bunk
+|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362313   (949677) от 23.02.2020
 
 Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -629,122 +742,6 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A68DC2077349E9D2163E02C89A9ACA642C2CC0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362635   (948224) от 24.02.2020
-
-The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoplight Kisses (02:17)
-02. You’re Dreaming (03:25)
-03. Queen of Them All (03:40)
-04. Clown Collector (02:22)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFE8EB3468A0932B93019F56AFD2719E7B03F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362525   (948212) от 24.02.2020
-
-Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948212.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:12| 01. He's Quite The Imposition
-|04:21| 02. South Of Fourteenth
-|05:57| 03. Edgar's Boys
-|04:39| 04. Elysium(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCB592DF9F4DF6218AC1019E8F38D174168AB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362473   (948110) от 24.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948110.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:35| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF58EA4DE069F1ACC0E8EE971330463B3768B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982412   (948096) от 03.02.2016
-
-Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirst For Life
-02. Rapture
-03. Drive
-04. What You Get(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

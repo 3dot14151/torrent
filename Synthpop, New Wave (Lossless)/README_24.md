@@ -1,3 +1,119 @@
+###  Публикация: 1667859   (175307) от 10.10.2023
+
+Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Due Sono Uno A Roma
+02 – Sin Retorno
+03 – Pensar No Es Sentir
+04 – Los Viernes Siempre Llueve(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8AFC76427C95EC33F41F0F65E611873FE363E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668451   (174044) от 12.10.2023
+
+Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Dance-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - Future Boy (Expanded Edition)
+CD-02 - Future Boy (Expanded Edition)
+CD-03 - Future Boy (Expanded Edition)Жанр: Synth-pop, Dance-popПродолжительность: 3 CD, 03:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1453756271935DBFB5C46F47A10FAE956F16D2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668069   (173883) от 12.10.2023
+
+VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futurespace - Reach The Stars (Instrumental Version) (5:32)
+02. Daylight - Cosmic Avenger (Extended Version) (6:02)
+03. Daylight - Machine Intelligence (Italo Mix) (5:49)
+04. Daylight - Dancin' Through The Night (Vocoder Mix) (6:02)(   Читать дальше...   )Жанр: Spacedance, SpacesynthПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECCCED2F8B46CB5B1173B7BCB4A10EB0B558182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668949   (173199) от 14.10.2023
+
+Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, EDM, Female Vocals>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forward [00:00:34]
+02. Crashing [00:02:43]
+03. Under Glass [00:04:25]
+04. Bad Girl [00:03:02](   Читать дальше...   )Жанр: Synthpop, Industrial, EDM, Female VocalsПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA94C9C9A5B2C309B3B82BD91B00B63BD447D929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670389   (172116) от 20.10.2023
 
 Volkor X - The Loop (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth>
@@ -629,121 +745,6 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E08B32308F203FB7DF5367F29F1481AE38C7A6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677990   (149192) от 19.11.2023
-
-Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible [00:03:21]
-02. Terminal 001 [00:03:20]
-03. Breathe [00:04:01]
-04. Axiom [00:04:02](   Читать дальше...   )Жанр: Dance, retrowave, synthpop, synthwaveПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F021FABDA5DCF081FC96C623E25C3915C183B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677878   (149180) от 19.11.2023
-
-Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1
-Disc 2Жанр: Synth-popПродолжительность: 2CD, 02:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC415B23CF32E58A2951D70D063CACBA622A39A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677884   (148716) от 19.11.2023
-
-Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1
-Disc 2
-Disc 3Жанр: Synth-popПродолжительность: 3CD, 03:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C878FC3C6B5CD81361EA5841AE54ED4044953DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087221   (146684) от 27.12.2016
-
-Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet The Stars (4:16)
- 02. Reasons (5:43)
- 03. Revolution Of Love (3:48)
- 04. Sound Of The Moments (4:45)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D626807268362923C94DE1AA84FDE7BA02898C08
 ```
 
 https://mybot314.ru/tekegram_catalog/

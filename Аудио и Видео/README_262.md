@@ -1,3 +1,174 @@
+###  Публикация: 1345667   (165609) от 16.12.2019
+
+Злодеи / Villains (2019) WEB-DL [1080p] ATV (AVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара грабителей Микки и Джули проникает в уединенный загородный дом. Его владельцы оказываются тайными садистами, которые держат в подвале маленькую пленницу, и они пойдут на всё, лишь бы их секрет оставался сокрытым за стенами дома. Грабителям не повезло.Производство: США / BRON Studios, Star Thrower Entertainment, Creative Wealth Media FinanceЖанр: Ужасы, триллер, драма, комедияРежиссер: Дэн Берк, Роберт ОльсенАктеры: Билл Скарсгард, Майка Монро, Джеффри Донован, Кира Седжвик, Блейк Баумгартнер, Ной Роббинс, Дэнни ДжонсонПеревод: Авторский одноголосый (BadBajo)Субтитры: Английские (SDH)Продолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE57EA0812FE1B6AD2D3E56BE78762DA8E7A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516630   (165516) от 12.12.2021
+
+VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prandtl - Dissolved Rage (6:08)
+02. Mono tuned - Sizzling Hot (6:31)
+03. Vostok Divers - A Slight Vestige (5:57)
+04. Random Classes - Sancerre Mode (5:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0FABF4DA29BE1AD6E8123AE22B7547876DC83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516627   (165506) от 12.12.2021
+
+VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Morgan - Do It (Original Mix) (5:56)
+02. Sangre De La Tierra - El Sueno Del Mar (Original Mix) (5:00)
+03. Luis Hermandez - Mi Amor (Original Mix) (3:36)
+04. C.A.V.O.K. - Secret Vale (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F36030B754137C2D8142D01DF9E1BAEC887E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516628   (165490) от 12.12.2021
+
+VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Shadow - Intro (Original Mix) (1:05)
+02. Derrick - Just to Be (Original Mix) (4:33)
+03. JEN, Razoof - Two Halves of a Whole (Manes Dub) (4:32)
+04. Zen K., Revena - Spirit of Ashram (Original Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516631   (165486) от 12.12.2021
+
+VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - Rate the Jam! (5:47)
+02. The third floor - 1000 Books (5:39)
+03. Azeotrop - Chilly Beach (5:44)
+04. Pflichta - Alpine Gentian (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516619   (165475) от 12.12.2021
+
+VA - Nu Cool Covers 2: Pop Classics ReStyled (2018) [AAC|~323 Kbps] <Lounge, Nu Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Jane Morris - Me and Mrs. Jones (Bossa Version) (3:31)
+02. Ely Bruna - I'm Your Baby Tonight (3:49)
+03. Papik, Frankie Lovecchio - Can't Get Enough Of Your Love (4:45)
+04. Montefiori Cocktail - Gipsy Woman (La Da De La Da Da) (7:01)(   Читать дальше...   )Жанр: Lounge, Nu Jazz, DowntempoПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8722280916950A5D18F791B88908D76C06323A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345016   (165457) от 16.12.2019
 
 Во всё тяжкое / The Professor (2018) BDRip [1080p] ATV
@@ -562,174 +733,6 @@ VA - Chillout King Ibiza: Sunset Hours (2019) [AAC|~328 Kbps] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:304E7A93143D329DB00976519237AF0A5D5DF22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516854   (164470) от 13.12.2021
-
-Bobby Lyle - Ivory Flow (2021) [AAC|~340 Kbps] <Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In The Flow (Radio Edit) (4:34)
-02. Living In The Flow (5:01)
-03. Bobby Lyle, Stanley Clarke - Feel The Heat (3:59)
-04. Bobby Lyle, Tatiana Ladymay Mayfield - In A Sentimental Mood (5:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714A33C7912957AE6E1CA8AF73C7612A90ACD9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516852   (164459) от 13.12.2021
-
-VA - Strong Women of Country (2021) [AAC|~333 Kbps] <Country>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmylou Harris - Queen of the Silver Dollar (Remastered Version) (4:59)
-02. Deana Carter - Ordinary (4:15)
-03. The Wreckers - Different Truck, Same Loser (Live) (3:23)
-04. Carlene Carter - I'm So Cool (2:34)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E441C54C320A549647EC42D29DCF2C9AEB46F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516850   (164441) от 13.12.2021
-
-Chicane - Everything We Had To Leave Behind (Back Pedal Brakes Remixes) (2021) [AAC|~305 Kbps] <Trance, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Chicane, Joseph Aquilina - Everything We Had To Leave Behind (Back Pedal Brakes Remix) (4:17)
-1.02. 8 (Circle) (Back Pedal Beatless Mix) (3:22)
-1.03. Capricorn (Back Pedal Brakes Remix) (3:12)
-1.04. Sailing (Back Pedal Brakes Remix) (3:31)(   Читать дальше...   )Жанр: Trance, DowntempoПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1D5157406B0C95346B0A16DD84D4CD4A731E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516857   (164436) от 13.12.2021
-
-VA - Chillout King Ibiza: Welcome 2 My Island (2014) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skysurfer, Lovay - Circling Elements (Down by the Sea Mix) (5:11)
-02. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
-03. Floating Clouds - Sun and Water (Long Cut) (6:06)
-04. Deeparture - Summerbreeze (Bossa Mix) (5:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9681B2AB40FDC45DA5AF4F3FE403CD377696701D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346200   (164369) от 18.12.2019
-
-Человек-амфибия (1961) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды талантливый ученый доктор Сальватор спас жизнь маленькому мальчику, пересадив ему жабры акулы. С этого дня Ихтиандр, так назвал своего приемного сына ученый, мог плавать под водой, как рыба, нырять на любую глубину, но ему было тяжело подолгу находиться на суше... Годы спустя по тихому морскому городу поползли слухи о странном существе, наводящем ужас на (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Фантастика, Драма, МелодрамаРежиссер: Владимир Чеботарев, Геннадий КазанскийАктеры: Владимир Коренев, Анастасия Вертинская, Михаил Козаков, Николай Симонов, Анатолий Смиранин, Владлен Давыдов, Николай Кузьмин, Михаил Медведев, Юрий Медведев, Анна НикритинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6BF0AA21C7661534AC763746403106936CADCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346329   (164266) от 18.12.2019
-
-Эверест / Abominable (2019) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманАктеры: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), Английские (Full)Продолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A464BE7AF66700DD6AC2FB7FE488C69DC42E14A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

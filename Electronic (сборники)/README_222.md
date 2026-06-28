@@ -1,3 +1,148 @@
+###  Публикация: 1750188   (43153) от 18.09.2024
+
+VA - Kontor Top of the Clubs Vol. 100 (2024) [MP3|~245 Kbps (V0)] <Electronic, Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43153.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Mixed By Neptunica
+01. Calvin Harris - Feel So Close 03:22
+02. Onerepublic & Alesso - If I Lose Myself 05:04
+03. Neptunica, Shockz & Rebecca Helena - Marble 02:16(   Читать дальше...   )Жанр: Electronic, Dance, Club, HouseПродолжительность: 04:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1532AD9706FB3C86DDFE8C6A03BB5E4218913F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750276   (42919) от 20.09.2024
+
+VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davit Barqaia - Dreamers
+02. Dieez - Sienna
+03. Elno - Senteber
+04. Dndm - Rainfall(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4751A8F951A4F5F7DAEEF33B9B7441D58CC97118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750277   (42916) от 20.09.2024
+
+VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mannonov - Justtake
+02. Deepfm - Typhoones
+03. A-Sultan - Passion
+04. A-Sultan - Angels Like You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6EF068D72C3D0FC8E5E818E3D7A663E0CDDC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750891   (42716) от 22.09.2024
+
+VA - Compilation part 124 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NMG & DNDM - See You
+02. Umar Keyn - Deceived heart again
+03. Hamidshax - Move
+04. Azimov - The Hills(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E027CF1C525B79C655291F93707357EBC2C29551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751391   (42566) от 24.09.2024
+
+VA - Electronic Wonderland (2024) [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tek.Ka - Desastre - (06:24)
+ 002. Thought Trails - With U - (03:48)
+ 003. Sandwell District - Reykjavik - (07:16)
+ 004. Bas Grossfeldt - I Am Transient Pink To Yellow - (03:35)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D88FB1320A29C003133D985B6D57C40C0214BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751376   (42539) от 24.09.2024
 
 VA - Trance In Motion Vol.380 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
@@ -600,151 +745,6 @@ VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D28681AEE29117A3B4B6EBDBE233C960C24D683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759731   (37651) от 10.11.2024
-
-VA - Record Super Chart 09.11.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel, Topic, Arash, Daecolm - I Adore You (3:34)
-02. Sophie and the Giants - Shut Up And Dance (2:57)
-03. Tayna, Marshmello & UKAY - Si Ai (3:04)
-04. Edward Maya feat. Yohani - Diamonds (2:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED305C1A8F52067366989D401D9979CC7B924166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759905   (37611) от 11.11.2024
-
-VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37611.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelo Ferreri - That Riff 05:06
- 002. Jeanne Mas - Johnny Johnny 04:46
- 003. Donna Summer - Last Dance 07:47
- 004. Gloria Gaynor - I Will Survive 08:02(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 10:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760084   (37508) от 12.11.2024
-
-VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37508.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Chacona, Sasse & The Green Men - The Fog - (09:24)
- 002. Sebb Junior - A Million Ways - (05:48)
- 003. Aaron Khaleian & Ambient Pino - Gobi - (06:23)
- 004. Antony Well - Lua Solidaria - (06:27)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 13:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759BB99DC86797534C3B71AB24BC6E37027C64D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760324   (37362) от 13.11.2024
-
-VA - Trance In Motion Vol.382 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxson - Out Of The Void (Extended Mix)
-02. Kinetica - White Lights (Extended Mix)
-03. Craig Connelly & Lasada - Found You (Extended Mix)
-04. Alex M.O.R.P.H. & Airlifter - YOUMANJI (Extended)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB23BD7C94FC562FE1E0DB5345C0CD4FD7281A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760517   (37314) от 14.11.2024
-
-VA - A State of Trance - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete K & Peter Illias - Higher State (Extended Mix) (05:55)
-02. Han Beukers - Portitxol Sunset (Extended Mix) (06:06)
-03. Team Deep - Morninglight (Maarten de Jong Extended Remix) (05:20)
-04. Ruben de Ronde & BetweenUs - Free (Extended Mix) (05:39)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A7A88DDE47451D1AB485118D3F97C4BA29FEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

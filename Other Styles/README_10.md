@@ -1,3 +1,125 @@
+###  Публикация: 493343   (1002458) от 09.08.2021
+
+Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<istrumental, guitar, acoustic, easy listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 -	Nothing Else Matters
+  2 -	Brothers In Arms
+  3 -	Californication
+  4 -	Don't Cry(   Читать дальше...   )Жанр: istrumental, guitar, acoustic, easy listeningПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B3F33DF487B80E2765F57DEF2796450C37054C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716860   (1002343) от 09.01.2020
+
+The Royal Philharmonic Orchestra - 33 альбома (1969-2019) [OGG|320 kbps]<Instrumental, инструментальная музыка в обработке, Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевский филармонический оркестр (КФО, англ. Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).1.  As time goes by (Hupfeld)		(03:03)
+2.  Unchained melody (North/Zaret)	(03:43)
+3.  The time of my life
+    (Previte/De Nicola/Makowitz)	(05:21)(   Читать дальше...   )Жанр: Surf RockПродолжительность: 35:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837DABE8A786B3414D3E6D4113282CFE5A725A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483488   (1002263) от 10.08.2021
+
+Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [FLAC|Lossless]<folk, jazz, ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nú Brenner Tú I Mær [06:21]
+2. Rósufarið [06:23]
+3. Om Jag Våger [06:57]
+4. Prelude To Endurfødd [01:23]
+5. Endurfødd [04:56]
+6. Mín Móðir [08:28]
+7. Lær Meg Guð At Liva [08:52]
+8. Jeg Vil Mig Herren Lovae [08:02]
+9. Prelude To Trøllabundin [03:03]
+10. Trøllabundin [03:01](   Читать дальше...   )2005Жанр: folk, jazz, ambientПродолжительность: 01:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5155E4E52221FE79CAE44871ECDB3A11FB09F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351984   (1001645) от 12.01.2020
+
+Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets of Cobblestone
+02. Luminosity
+03. Dancing Light
+04. Fancy Free(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 331898   (1001252) от 13.01.2020
 
 Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <New Age>
@@ -711,146 +833,6 @@ Yoyo International Orchestra - Abba Instrumentals. Greatest Hits (2007) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75473548E61D15529D94C82A61D0E2AC18CC5A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602627   (996702) от 16.01.2013
-
-Sam Taylor - Mood Kayou Best (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 101. Tokyo Love You (2:39)
-02. See You In Yurakucho (2:45)
-03. The Second Night Fog Highway (3:07)
-04. Love You More Than Anyone (2:21)
-05. Una Sera Di Tokyo (2:48)
-06. Veggie - Delight Night Dream (3:03)
-07. Bruce Thought Bridge (2:37)
-08. Ginza Twilight (2:10)
-09. I Know Too Much (3:14)
-10. Atami Night (3:09)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17694028FA98D4514CE883C6C9C066671276544D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602633   (996683) от 16.01.2013
-
-Давид Тухманов - Марши для духового оркестра (2006) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старый марш - 03:43
-02. Марш чемпионов - 04:18
-03. Марш - Кавалерия - 03:04
-04. Марш - Эскорт - 01:42
-05. Марш - Павел - 01:26
-06. Марш - Петр - 01:06
-07. Марш - Суворов - 01:00
-08. Марш - 1812 год - 01:10
-09. Церемониальный марш - 04:26
-10. Марш - Парад - 02:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAA8487D4DFF33C85C743CA79DB5F44C3C410F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604184   (996457) от 17.01.2013
-
-Охотники на гангстеров / Gangster Squad (2013) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. His Name Is Mickey Cohen [2:25]
-02. Welcome To Los Angeles [3:13]
-03. He Can't Have You [1:39]
-04. War For the Soul of LA [2:48]
-05. There Goes Our Ride [1:14]
-06. You Can't Shoot Me [3:52]
-07. Always Knew I'd Die In Burbank [2:30]
-08. You're Talking to God [0:51]
-09. The Bug [2:18]
-10. Hot Potato With a Grenade [3:19](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604547   (996063) от 18.01.2013
-
-Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996063.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:01. Andalu
- 02. Quiver
- 03. Field Of Tears
- 04. Eros
- 05. Allura
- 06. From Where They Fall
- 07. Aria
- 08. Laguna
- 09. Bellaire
- 10. Lanotte(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
 ```
 
 https://mybot314.ru/tekegram_catalog/

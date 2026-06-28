@@ -1,3 +1,162 @@
+###  Публикация: 1838454   (260620) от 23.11.2025
+
+VA - No name compilation Deep Chill Vocal House part 13 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Umideep - Bare Love
+02 - Sardø - Cielo Mi Amore
+03 - Kasimoff - Mon Amour
+04 - Mr Salama - Alive(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7C965570D248BAAD7A8AB60065B6FA05F9BED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838446   (260614) от 23.11.2025
+
+Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Give My Love
+ 02 - I Love Only You
+ 03 - Break
+ 04 - Love You(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503972   (259931) от 31.05.2012
+
+VA - Sexy Trance #36 (31.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259931.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Sexy Trance #36 (31.05.2012)
+
+Год: 31.05.2012
+Жанр: Vocal Trance
+Продолжительность: 03:44:52Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix) [06:59](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549CC45C6E5801F13BE6AAF87D523A8ED673236F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501423   (258490) от 26.05.2012
+
+VA - Music my life (2011-2012) [MP3|320 кб/с]<Electro house, dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	    Dada Life - Happy Violence (Timo Juuti & Hector 87 Disco Wobblez Bootleg)
+2.	    Baby Directz Vs Shake Stylerz - Do It
+3.	    Bold Equation - Out of Space (Bold Equation Bootleg Remix)
+4.	    Walter Meego - Through A Keyhole (Le Castle Vania Remix)
+5.	    Tiesto - Work Hard, Play Hard (Acetronik Remix)
+6.	    La Roux - Tigerlily (B. Rich Remix)
+7.	    Tanner Petulla - Apologize remix Final
+8.	    Yogi Ft Ayah Marar - Follow U Original
+9.	    Balboa - Bumpy Night
+10.	    Butch Clancy - The Funeral (Butch Clancy Dubstep Remix)(   Читать дальше...   )Жанр: Electro house, dubstepПродолжительность: 8:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0712CD467FC8AD5121DDB2D54CB755F93640DD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501289   (258476) от 26.05.2012
+
+VA - Vocal Passion Vol.28 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258476.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Vocal Passion Vol.28 (2012)
+
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 03:03:15Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit) [03:45](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB44F8F47CBAAA0764A1AA7C3FEB23166B1F455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501118   (258240) от 25.05.2012
 
 VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с]<Vocal Trance>
@@ -648,157 +807,6 @@ VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021862F5FDDCD49681353B73A90DAC2733D7D050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835676   (251669) от 07.11.2025
-
-VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echønova - Where Are You Going Like That
-02 - Limora - Where Are U
-03 - Echønova - Still Hear You
-04 - Umideep - My Tears(   Читать дальше...   )Жанр: Electronic, Vocal, Easy listeningПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835675   (251668) от 07.11.2025
-
-VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Menda - Listen
-02 - Mr Salama - Radio
-03 - Dova Music - Golden Night
-04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618396   (250004) от 11.03.2023
-
-zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness Falls (Jabberwock Version)
-02. Killing Earth
-03. Once Upon a Time
-04. Princess of My Heart(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 03:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4445BA5F2537ABDFB48E4EA6F35D07D744B9516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618911   (249672) от 16.03.2023
-
-VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Dancecore, Euro Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Rhythm Masters & Klubbheads - Enter The Scene (Klubbheads Vs Rollercoaster Mix)
-02-Silvio Ecomo - Uprising (Speedgarage Mix)
-03-Moloko - Indigo (Club Caviar Mix)
-04-Fascinator - Here We Go (Strike Force Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, Euro TranceПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B778A8C1870DB8D1E5B8AC6DB1CC3359AF8131D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492331   (248413) от 07.05.2012
-
-VA - Return To Space (2009) [MP3|224 кб/с]<Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M&S - Return to Space
-02. Jan Schipper - The Underground
-03. Anosphere - Flight, Attention!
-04. Haggeman - Get Together
-05. Synth Dimension - Light And Laser Impulses
-06. Dempa - A New Beginning
-07. Synth.nl - Scuderia
-08. Anssi H - Linear Dimensions
-09. Marco Rochowski - Magic History
-10. Abbsynth - Low battery(   Читать дальше...   )2009Жанр: SpacesynthПродолжительность: 01:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31309DEF129252BF822DD17E1E3E91E69B1437B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

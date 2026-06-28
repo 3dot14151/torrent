@@ -1,3 +1,206 @@
+###  Публикация: 1558863   (524322) от 25.06.2022
+
+VA - Live @ The Indy 500 Snake Pit, United States (2022-05-29) [MP3|~245 Kbps (V0)] <Electro House, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524322.jpg" />
+</div>
+
+
+###  Подробнее
+
+deadmau5 @ The Indy 500 Snake Pit, United States 2022-05-29:
+01. deadmau5 - Infra Turbo Pigcart Racer
+02. deadmau5 - My Pet Coelacanth
+03. deadmau5 ft. Lights - When The Summer Dies(   Читать дальше...   )Жанр: Electro House, Electro Pop, Big RoomПродолжительность: 05:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F30B5609A7910F778F180AADC5BAB66C85AAB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559687   (523551) от 26.06.2022
+
+8Kays - Live @ Kharkiv Philharmonic, Ukraine (TIME:CODE) (2022-06-20) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8Kays ft. Hotmode - Subway To Berlin (Coeus & Jonas Saalbach Remix)
+02. 8Kays - ID
+03. 8Kays & Lazarusman - Respect Me
+04. 8Kays - Triangle(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3FB49682347BFEAD5368BEB3C250B50089DA27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241436   (520257) от 17.08.2018
+
+VA - Ori Uplift & Rich Triphonic - Uplifting Only 288 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntouch & Spins – Desolation (Intro Mix)
+02. Para X & Claire Willis – Beautiful (Original Vocal Mix)
+03. FAN FAVORITE: XiJaro & Pitch – Unite Again (Extended Mix)
+04. Madwave – On the Run (W!SS Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7F41B2B1EA2B3A5820863DA12A295D2693A4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241433   (520255) от 17.08.2018
+
+VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eon - Knocker
+02. ID
+03. Steve Angello - Paradiso
+04. Daxson - Blackcard (World Premiere)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD2D8A055C6EEDAEAB17D7CB967A2FC118CF87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560636   (519827) от 30.06.2022
+
+Lane 8 - Summer 2022 Mixtape (2022-06-29) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Swedish House Mafia - For You
+03. ID - ID
+04. Atóm - Andúilí(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92E28596FCA3C727966A43D577C35FB24A36676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560982   (517714) от 02.07.2022
+
+Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Hopkins - Love Flows Over Us in Prismatic Waves
+02. Chicane - Offshore (Disco Citizens Evolution Mix)
+03. Marsh - Free
+04. Nora En Pure - Thermal(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645F8A983F787DFA265C286AB8013FCF29E4A247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560899   (517661) от 02.07.2022
+
+Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & Charli XCX - Hot In It
+02. Alesso & Tove Lo vs. Galantis & Becky Hill - Heroes (We Could Be) vs. Run (Ango & Luke Alexander Edit)
+03. Sigala - Melody (Tiësto Remix)
+04. DallasK & Dark Heart - Time (Sevek Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Bass HouseПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA1C96A19E5258A76C71851AE7A77E3FE4C8501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315132   (513629) от 19.07.2019
 
 Aly & Fila - Future Sound Of Egypt 607 (John '00' Fleming Takeover) (2019-07-17) [MP3|320 Kbps] <Trance>
@@ -536,209 +739,6 @@ VA - Ori Uplift - Uplifting Only 291 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7B68518752A4B869D48830CA10FAB7EE283BAB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161337   (467591) от 28.08.2017
-
-VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PRE-RELEASE PICK: New World - Ikigai (Intro Mix)
-02. Follow Focus - Synchronous Idle
-03. FAN FAVORITE 131: SoundLift - Long Way Back
-04. BREAKDOWN OF THE WEEK: Eric Senn - Horus  (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957791E5D487A949D963E8FB277F74E705FEBE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320662   (467268) от 20.08.2019
-
-Daniel Skyver - Live @ Anomaly 3.0, Tunnel Club Birmingham, United Kingdom 2019-08-03 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vink - Live Your Dreams (Gils Sellig remix)
-02. Mariano Mellino - The Old Seawolf (Hernan Cattaneo & Graziano Raffa remix)
-03. Haievyk - Heartbeat
-04. Martin Ten Velden - Transition(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF81A756285193AE68EDD910964F831912F7B429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568361   (464109) от 07.08.2022
-
-KAAZE - Live @ Bali, Indonesia (2022-07-20) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.KAAZE - The Awakening w/Supermode - Tell Me Why (KAAZE Rework)
-02.KAAZE & Nino Lucarelli vs. Sia - Move Your Temperature (KAAZE Mashup)
-03.KAAZE ft. Aloma Steele - My City (2021 Edit)
-04.Steve Aoki & KAAZE ft. John Martin - Whole Again(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E350BD3B31882964E0FEC0CDC6B4418B462642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568345   (464092) от 07.08.2022
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Luminosity At The Beach) (2022-08-04) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - From the Ridge
-02. Grooveloverz featuring Miss Jane - It's a Fine Day (Swiss Mix)
-03. LKX - Genesis
-04. Daxson vs. Solis & Sean Truby - Trinity(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB06957CAF90CEFBB4D88B5D73F969547FE660F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568394   (464090) от 07.08.2022
-
-Vintage Culture - BBC Radio 1 Essential Mix (Hï Ibiza, Spain) (2022-07-30) [MP3|~245 Kbps (V0)] <House, Tech House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Thoneick - Adamu w/ID - ID
-02. Jaydee - Plastic Dreams (Shadow Child Remix)
-03. Marie Davidson - Work It (Soulwax Remix)
-04. Renato Cohen - Suddenly Funk(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAF2BF9090BCF7C872FCFA1043805C56D6E4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568332   (464084) от 07.08.2022
-
-Swedish House Mafia - BBC Radio 1 Essential Mix (Ushuaia Beach Club Ibiza, Spain) (2022-08-06) [MP3|~245 Kbps (V0)] <Electro House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Can U Feel It
-02. Swedish House Mafia - It Gets Better vs. Greyhound (Swedish House Mafia Mashup) w/Swedish House Mafia - Can U Feel It (Acappella)
-03. Swedish House Mafia ft. Tinie Tempah - Miami 2 Ibiza (Swedish House Mafia 2022 Rework) w/Swedish House Mafia - Can U Feel It (Acappella)
-04. Shadow Child - Space Riot(   Читать дальше...   )Жанр: Electro House, Tech HouseПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACE4267E480B8C63C5A12976E2D91F98E1A3AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162375   (459217) от 01.09.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 511 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Super Flu - Mygut (Solomun Remix)
-02.Estiva - Doorlopen
-03.Dousk - Whisper Unit
-04.Alikast - Winter Rain(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82A6F125F7CDC7498CDF8A094B137E843194598
 ```
 
 https://mybot314.ru/tekegram_catalog/

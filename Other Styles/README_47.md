@@ -1,3 +1,119 @@
+###  Публикация: 1122637   (793188) от 06.04.2017
+
+Percy Faith - The Real... Percy Faith And His Orchestra (2016) 3CD [FLAC|Lossless|tracks + .cue] <Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Blue on Blue
+2. Anyone Who Had a Heart
+3. Spanish Harlem(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE510117F92AEF7D27D94588A5DCA2C8B1CA645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274529   (792989) от 07.01.2019
+
+Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792989.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mirage (8:38)
+2. Morin Huur (6:18)
+3. La Foret (10:18)
+4. Manganu (8:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57804793C46FC70E9F3191FED4777BEA8695102B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201009   (792778) от 24.01.2018
+
+Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Message In A Bottle  (2:47)
+ 02/10. As The Sun Rises (4:12)
+ 03/10. Legend Of The Sea (4:33)
+ 04/10. Dancing Waves (4:09)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274187   (792250) от 08.01.2019
+
+Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of the East (5:48)
+ 02. Racing Against the Sunset (4:53)
+ 03. The Approaching Night (6:40)
+ 04. Darkness Falls (4:42)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274846   (792238) от 08.01.2019
 
 Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Dark Ambient, Score>
@@ -628,122 +744,6 @@ Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Gu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9DE01F390AB7489B384010C95E56AFF5CED88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510683   (790119) от 18.11.2021
-
-Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <Electronic, Abstract, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ars Moriendi (5:54)
-Cello - Stefán Örn Arnason
-02. Charon (2:29)
-03. Sudurgata (3:26)(   Читать дальше...   )Жанр: Electronic, Abstract, AmbientПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3BFC58593617C91556C0E6732A1AFDB9CB0F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387645   (789983) от 04.06.2020
-
-Leonard Cohen - The Complete Columbia Albums Collection (2011) 17 CD [FLAC|Lossless|tracks + .cue] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонард Коэн - канадский поэт, писатель, певец и автор песен. Леонард Коэн сначала прославился как поэт и писатель и только после, став известной личностью в литературных кругах, вышел на сцену в качестве исполнителя авторских песен. В конце 60-х певец покорил публику глубоким, бархатным и невыразимо печальным голосом. Коэн стал одним из основоположников фолк-музыки. (   Читать дальше...   )01. Lover, Lover, Lover (7:44)
-02. Bird on the Wire (6:09)
-03. Chelsea Hotel (3:32)
-04. Heart With No Companion (5:07)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C01A895FF1E54B993077CB0F4762412EF2E2FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275753   (789859) от 12.01.2019
-
-Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Whisper - 3:19
-02. Liquid Notice - 3:21
-03. Didgerido-It - 2:38
-04. A Seagull Chant - 2:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511037   (789839) от 19.11.2021
-
-Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksmusik>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joseph-Jodler 0:36
-02 - Der junge schwarz' Schlossergesell 3:15
-03 - Evi-Landler 3:52
-04 - Bim Bam & Mäh-Jodler 3:23(   Читать дальше...   )Жанр: VolksmusikПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
 ```
 
 https://mybot314.ru/tekegram_catalog/

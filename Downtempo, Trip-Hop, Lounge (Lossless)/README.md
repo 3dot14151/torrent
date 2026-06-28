@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1878400   (1074737) от 
+
+VA - Calm Horizon Cafe: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Vibing (5:01)
+02. Beamy - Dream (Jero Nougues Remix) (5:23)
+03. TRANQVIL - Space Ranger (4:41)
+04. Gian Delly - A Sunday with Mamy (3:50)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A184400AA7BA9393D84F7122896D541B696EFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878391   (1074736) от 
+
+VA - Bossa & Breeze: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - One Love Bossa Nova (6:25)
+02. Marga Sol - Bossalova (4:28)
+03. Soultekk - Playa D'en Bossa (4:31)
+04. WeberWeber - Bossa Nueva (5:19)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163D48FF60DDA462BEE5C4F711B9BF36B642B064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877384   (1074507) от 
+
+Portishead - Portishead (1997) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboys [0:04:42.00]
+02. All Mine [0:04:02.27]
+03. Undenied [0:04:24.50]
+04. Half Day Closing [0:03:48.23](   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:50:34.893 (133 838 796 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAA095AFFAD54DA7578450895ED07E09C301616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876510   (1073524) от 
 
 VA - Sundown Jazz Stories: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -659,93 +746,6 @@ Lemongrass - Colors (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6DF302F11E78D3DAD5332D24BE9780E49A925CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857021   (1059422) от 03.03.2026
-
-VA - Smooth Vibes Chillout Edition (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wermuth - Urban Agreement (04:16)
- 02.  Logophilia - Nightline Vibes (04:29)
- 03.  Quadra Montres - Thoughtshift (04:16)
- 04.  Uralkauz - In the Fade (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D8488F2678FE569C1FA20B69DA0BD718BB7E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856552   (1059103) от 28.02.2026
-
-VA - The Orient Collective: Temple Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Dreamers (6:31)
-02. Zedjue - Aiza (6:45)
-03. Noam Garcia - The Room (8:20)
-04. Gavr - Like a Bloodhound (7:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E124E98D124556BA83ED778E573D57EFF59180C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856354   (1058931) от 27.02.2026
-
-VA - The Orient Collective: Organic Rituals (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Astral Illusion (7:18)
-02. Michael Simon - Umami (6:45)
-03. Indiano - Astral (8:04)
-04. Tibetania - Magic Amulet (5:11)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BFAB8E8DC9AC236E81A2A967DD9FE1339BEB98
 ```
 
 https://mybot314.ru/tekegram_catalog/

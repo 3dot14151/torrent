@@ -1,3 +1,32 @@
+###  Публикация: 999685   (862179) от 23.03.2016
+
+Glenn Gould - The Sound of Glenn Gould (Bach, Mozart, Beethoven, Haydn, Brahms, Sibelius, Strauss) (2015) [FLAC 2.0|44.1/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Johann Sebastian Bach (1685-1750)
+Aria with 30 Variations "Goldberg Variations" BWV 988
+01 - Aria
+02 - Variation 1 a 1 Clav.(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CE93B4AB4869D3F6A7F50B6A632BA0BD4030B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109011   (860746) от 26.02.2017
 
 Daigo Hanada - Ichiru (2017) [FLAC|Lossless|tracks] <Classical,Ambient>
@@ -716,35 +745,6 @@ Symphony no. 2 in C minor, op. 29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B77DE3E9F730468B4F4A3CB79F743F40D122DE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000841   (855416) от 27.03.2016
-
-Ivan Moravec, Josef Vlach - Mozart: Piano Concertos K. 449, 488, 503 (1998) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 14 in E flat major, K. 449 
-01. Allegro vivace   08:34
-02. II. Andantino   07:52
-03. III. Allegro ma non troppo   05:42Жанр: Classical, ConcertoПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC8F557EEE1E80138A93FE60957EE0C0DAAFA22
 ```
 
 https://mybot314.ru/tekegram_catalog/

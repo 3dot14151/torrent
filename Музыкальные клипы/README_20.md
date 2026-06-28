@@ -1,3 +1,116 @@
+###  Публикация: 694564   (546670) от 29.08.2013
+
+VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alexander Popov - Moscow Subway (Official Music Video)
+02.Ali - Cocoon (Official Music Video)
+03.Armin van Buuren feat. Cindy Alma - Beautiful Life (Official Music Video)
+04.Armin van Buuren feat. Jacqueline Govaert - Never Say Never (Official Music Video)(   Читать дальше...   )Жанр: Музыка, TranceПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4830C0249FD0F1C5AC67F9159372EB956149836A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238537   (546127) от 30.07.2018
+
+Сборник клипов - Lite Fitness от ALEXnROCK часть 1 (2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник делал на заказ для фитнесс зала. В него вошли ритмичные клипы с танцевальной поп музыкой периода 2010 - 2018. Он подойдет для любых физических упражнений и танцев, да и просто побалдеть под крутую попсу. Обложка и блин для диска есть в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+001 Andreea Balan - Trippin
+002 Armin van Buuren feat. Josh Cumbee - Sunny Days (Club Mix)
+003 Alex Spite - Sky(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 03:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37945BF39FFA59100F1EE383AA34A089C2598F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365395   (542881) от 20.07.2011
+
+The Eagles - Rocky Mountain Way (Live) (2005) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актеры: The EaglesПеревод: ОтсутствуетПродолжительность: 00: 05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703AB81E1A11B1AFB6C75EBD6ECA551E2A46F618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924916   (542816) от 05.08.2015
+
+VA - Летний марафон № 180 / Видеоклипы (Новинки Русской Эстрады) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (04.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Arsenium – Бэлла Бэлла (ПРЕМЬЕРА!)(00:03:39)
+2. Dinama - Это (ПРЕМЬЕРА!) (00:03:19)
+3. Emin - Забыть Тебя (Official Video) (00:04:37)
+4. Olisha - Дилемма (ПРЕМЬЕРА!) (00:03:20)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4337C3C54F20D79293917D7FAACB6F70F2B1693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049796   (542024) от 06.09.2016
 
 Herbie Hancock - Future2Future (2002) DVD5
@@ -605,127 +718,6 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847FC997A84CDABD74E3667D5FA089BC0FF48BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930296   (516146) от 22.08.2015
-
-VA - Летний марафон № 184 / (Марафон Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (22.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. ART KEY (Артем Качарян) - Энергия Солнца (ПРЕМЬЕРА!) (00:03:53)
-2. Artik & Asti - Кто я тебе ! (при уч. Dj Loyza & The Kidd) (ПРЕМЬЕРА!) (00:03:31)
-3. Julia Parshuta - Most Wanted (ПРЕМЬЕРА!) (00:03:17)
-4. Lui Muzon – Селфи Палка (Лайки Там) (ПРЕМЬЕРА!) (00:04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51EA48A886D049BC1037A36AC291DBC5167278B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535801   (515569) от 17.08.2012
-
-DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'n'b, HouseПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A54036EE3BAE89BDEA7EF3AD53A7ABA2863866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536222   (515495) от 17.08.2012
-
-Сборник видеоклипов Millenium Romantic 6 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто влюблён, любил или ещё только будет любить.
- Лучшая музыка со всего света. Клипы, к котором приложили руку талантливейшие режиссёры.
- Коллекция Millenium Romantic - это музыка для души.01 Lara Fabian - Je T'aime
-02 Sarah Engels Pietro Lombardi - I Miss You
-03 Amel Bent - Ma Philosophie
-04 Sandra - Heaven Can Wait
-05 Mike Oldfield feat. Maggie Reilly - Moonlight shadow
-06 Desireless - Voyage Voyage
-07 Chris Norman - Some Hearts Are Diamonds
-08 Status Quo - In The Army Now
-09 Nelly Furtado — All Good Things
-10 Natasha Bedingfield - Unwritten(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1398019630BD57B071E208F9250E6AC1CF59B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930517   (515080) от 23.08.2015
-
-Ирина Круг – Лучшие концертные выступления (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых востребованных исполнительниц жанровой песни, на ее концертах всегда аншлаги, ее голос можно услышать из любой машины, в кафе, магазинах и пр., ее любят и знают, но вот увидеть ее на телеэкране практически невозможно. Тем ценнее становится каждая запись ее выступлений, тем более, что там действительно есть на что посмотреть. Этот сборник содержит лучшие (   Читать дальше...   )01. Напиши мне
-02. Юбочка
-03. Моя королева
-04. Я прочитаю в глазах твоих(   Читать дальше...   )Производство: Россия / "Classic Company"Жанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A24F061781EA88EF9942812ADC46D479704AFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1418682   (346932) от 25.10.2020
+
+Zeus - Attack Time (1981) LP [MP3|320 Kbps] <Electronic, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клавишник из Германии. Выпустил несколько сольных альбомом. Играл в Birth Control (1973-78), Sound Edge, Prontosaurus, The G. Men, Nagarock... В этом же, как и альбом, 1981 году был в составе исполнителей известного проекта Visitors.01. Enfant Terrible  (4:49)
+02. Cowboy On The Beach  (3:43)
+03. Transportable Music  (4:01)
+04. Daily News  (3:14)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9125606F3157F88E7F20872223528030478097C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838647   (346521) от 07.11.2014
+
+Pink Floyd - The Endless River (2014) [MP3|320 кб/с]<Progressive Rock , Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock , AmbientПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C974E1D0D0B8960F7DF22360E6A371BF4145D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578501   (345939) от 23.09.2022
 
 Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
@@ -687,64 +742,6 @@ Freddie Mercury - Never Boring (2019) (Special Edition) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3F979F626FE0FF010C5C9DD20F811804B82E4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074364   (338425) от 19.11.2016
-
-Легендарные Пластилиновые Ноги - В духе времён (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игреки-иксы
-02. Кино
-03. Паразит
-04. Без прикрас(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934382E25824671B46F28D32AA08EC7812973215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181074   (338011) от 05.11.2017
-
-Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Ride (03:52)
-02. Love Street (03:37)
-03. Uncle Sam's Death March (03:37)
-04. Ain't No Wrong Man (03:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F58F81E23F303F15FEEBA941CC23C3C9C497C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

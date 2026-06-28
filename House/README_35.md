@@ -1,3 +1,183 @@
+###  Публикация: 1139913   (658209) от 04.06.2017
+
+VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BRKLYN – Heart Of The City (Myon Signature Remix) (3:21)
+02. Ryos – Discover Love (Original Mix) (3:45)
+03. Cuebrick – Smoke & Fire (Original Mix) (3:17)
+04. Tritonal – Running Into Me (Original Mix) (4:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90E20D96276730839E6C86DC5FE3C893481A20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139978   (658125) от 04.06.2017
+
+VA - Power Dance Workout Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Bass – Ibiza Nights (Radio Version) (4:16)
+02. Houseraiderz – Pump up the Volume (Single Version) (3:51)
+03. Electric Passion – Axel F (Radio Version) (3:14)
+04. Age of Dance – Highscore (Home Entertainment Version) (3:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2459A4CA5A76656EF8B6367473B516FBC5949E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514699   (658066) от 24.06.2012
+
+16 Bit Lolitas - Supermarkt (2012) [MP3|320 кб/с]<Deep House, Progressive Breaks>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Different Light, Same Window
+02. Settle The Score (with Lucy Iris)
+03. Happy Hardcore Still Works
+04. Fat Fly
+05. Snake Inverter
+06. Blanket
+07. Na Na Nahana (with Lucy Iris)
+08. Traffic Jam Survival Kit
+09. Not The Ideal Grandson After All
+10. Unkle feat. Nick Cave - Money And Run (16 Bit Lolitas Remix)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2833FFD523CE2D5B566882CDD6286F463FBAC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539487   (657210) от 26.03.2022
+
+VA - Sports Megamix 2022 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Let It Go (Extended Mix) 4:14
+02. The Disco Boys - Funk Decision (Extended Mix) 4:33
+03. Coca Dillaz - Show Me (Radio Edit) 3:11
+04. Skeeter - Fresh (Original Mix) 5:15(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F0FFA7492D8E48A754C5C8C4E8321FCEEF3C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140264   (657002) от 05.06.2017
+
+VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick.Sal - Dark Road (original mix) (06:31)
+02. Ben Polzin - Desire For Freedom (original mix) (08:11)
+03. Patrick Tijssen, Maickel Telussa - Gods House (Ultraverse Remis) (06:45)
+04. Nightbob, Wesper - Groove 59 (Nightbob dub) (12:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140250   (656996) от 05.06.2017
+
+VA - Ufo Classics (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Sbert - Autodestroyers (Original Mix) 06:50
+02. Dani Sbert - Big Bang 07:44
+03. Dani Sbert - Filter 07:37
+04. Dani Sbert - Obsession 08:15(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED51907371FE178A5A8C02F8A6A8016F76137F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140240   (656930) от 05.06.2017
 
 VA - Ibiza Deep House (2017) [MP3|320 Kbps] <Deep House>
@@ -584,183 +764,6 @@ VA - Ibiza House (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0382BBE1BFAD0962DC98780E11029778E471C9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031907   (649832) от 05.07.2016
-
-VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Sandemann - Do It Yourself
- 02. Ron John - The Last Photo - Frank Fox Mix
- 03. Modell & Mercier - Black Coral - Lovin' Fashion Mix
- 04. Greg Vasarely - Notting Hill(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031778   (649821) от 05.07.2016
-
-VA - Sensation Angels and Demons (2016) [MP3|320 Kbps] <House, Electro-House, Progressive-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649821.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Afrojack & Laidback Luke — Move To The Sound
-2. Nicky Romero — Novell
-3. Oliver Heldens & Chocolate Puma — Space Sheep
-4. Eelke Kleijn & Olivier Weiter & Arjuna Schiks & Miss Melera — BEFORE.NOW.AFTER(   Читать дальше...   )Жанр: House, Electro-House, Progressive-HouseПродолжительность: 02:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B851C31B9BCF55E97EC8A9C29CE4B94A238DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516349   (649708) от 30.06.2012
-
-Session Victim - The Haunted House Of House (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deep HouseПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C0D13C056D33C20C734C58DBF32B2896F23213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031829   (649684) от 05.07.2016
-
-VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhill>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castlebed - Cold Moves (3:49)
-02. Dormidontov - Home (6:37)
-03. Anthony Chocco - You Are (Beach & Martini Mix) (4:03)
-04. Don Major - At Sunset (3:34)(   Читать дальше...   )Производство: KarmagrooveЖанр: Deep House, Breaks, СhillПродолжительность: 02:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517192   (649471) от 30.06.2012
-
-VA - Hed Kandi Pres: Beach House (2012) [MP3|320 кб/с]<Deep House, Funky House, Disco House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loui & Scibi Feat. Nathalia - Giving You The Light (Shane D. Remix) (05:02)
-02. One51 Feat. Heidi Vogel - Elevate (Earnshaw's House Mix) (05:32)
-03. Steve K & Anna Rizzo - Second Time (Shane D Remix) (05:32)
-04. Raul Rincon Feat. Clara Mendes - Dry Martini (Original Mix) (05:32)
-05. Rasmus Faber & Alf Tumble Feat. Beldina - Leave Me Alone (Kocho Remix) (05:03)
-06. Spiritchaser - Yesterday's Gone (Club Mix) (06:43)
-07. Dom Navarra Feat. Kat Kyrris - If You Knew (Reelsoul Vocal Mix) (04:03)
-08. Natasha Watts - Look Inside (Glenn Thornton Slaag Original) (05:34)
-09. Blacksoul Feat. Andrea Love - All We Need (Original Mix) (05:41)
-10. Eesa - The Way (Original Mix) (05:02)Жанр: Deep House, Funky House, Disco House, Soulful HouseПродолжительность: 07:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E97A6F855B456A288DB4C5A0E1FE413CCB3358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141700   (648813) от 11.06.2017
-
-VA - Mykonos Sunset Vol 4 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Twin - Charlies (Max Laut Edit) (03:27)
-02. Bendito - City (Mathew Brabham Remix) (06:16)
-03. Nudisco - I See (05:41)
-04. Microwave Monkeys - Twist In My Sobriety (Radio Edit) (Feat Nita) (03:58)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97693ECF8D717972459946479C8BBB4CC9B6D8C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

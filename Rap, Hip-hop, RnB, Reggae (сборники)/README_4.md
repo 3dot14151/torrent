@@ -1,3 +1,32 @@
+###  Публикация: 1532628   (712478) от 20.02.2022
+
+VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 Kbps] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Natty Bong - Blue Jeans
+002 Sublime Reggae Kings - Human
+003 The Reggister's & Melizza - Back to Black
+004 Stereo Dub & Lila Liu - Set Fire to the Rain(   Читать дальше...   )Жанр: ReggaeПродолжительность: 05:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E8DB97C090D8526276200F84BAAD3BE6184DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220850   (700304) от 21.04.2018
 
 Nana - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Rap>
@@ -710,35 +739,6 @@ VA - Car Audio. Музыка ночного города 2 [Sound Clinic - Boom 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BA43F04EB9C78CEFC472E0C6AC127A4BD871F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910876   (613820) от 24.06.2015
-
-VA - Русский Рэп Избранное (1998-2015) [MP3|96-320 кб/с]<Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Тони Бодрый, Jason, Hammy - Из подземелья.
-02) PRO-SPEKT - Нравы.
-03) Третий Путь - Лица.
-04) Da B.O.M.B. - 2 Мира.(   Читать дальше...   )Жанр: RapПродолжительность: 05:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1867D0B01CF741CE8417B4E2F018FDAB86220A00
 ```
 
 https://mybot314.ru/tekegram_catalog/

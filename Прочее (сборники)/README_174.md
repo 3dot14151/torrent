@@ -1,3 +1,218 @@
+###  Публикация: 1680443   (134159) от 29.11.2023
+
+VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aimi Feat. & Dj. Nejtrino - Одна На Танполе (Remix) (03:11)
+02. Jemmy - Обнули (03:22)
+03. Фрик Пати - Напоследок (02:30)
+04. Юлия Колерт - Батискаф (04:12)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC68E7BBEB38E91DD6C316063D6BECE7F9B6E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680619   (133635) от 30.11.2023
+
+VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Электроников - Песня о снежинке (04:05)
+002. ABBA - Happy New Year [04:24]
+003. Bee Gees - Thank You For Christmas [01:54]
+004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680974   (133422) от 01.12.2023
+
+VA - Music News vol.320 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anya Nami - Wake Up (02:10)
+ 002. 1380 - Repeat (02:13)
+ 003. ALLERGIA - Перемирие (02:14)
+ 004. Ame - Листопад (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B587BC27EAC041947B1A2978C83C0F73AE4AA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681249   (132919) от 02.12.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Cristian feat. Alis Shuka - The Day Before (2:25)
+02. Maneskin - Honey (Are U Coming) (2:47)
+03. Robin Schulz - One With The Wolves (3:00)
+04. Jung Kook feat. Jack Harlow - 3D (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C18CC264B849DD5A83B40E167527E47DEE7300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681227   (132884) от 02.12.2023
+
+VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132884.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BASKAEVA - Спам (3:07)
+002. Винтаж, ТРАВМА - Госпожа (2:36)
+003. Lil Mak - Сводит с ума (1:52)
+004. NATAL'A - Осень цвета антрацит (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594963   (132779) от 28.12.2012
+
+VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'Roll>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Glitter - Another Rock and Roll Christmas [0:03:45.66]
+02. Chicory Tip - Rockin' Fround The Christmas Tree [0:02:07.36]
+03. Showaddywaddy - Perfect Harmonie [0:04:35.20]
+04. Jona Lewie - Stop The Cavalary [0:02:57.01]
+05. Dik Cadbury - The Star That Fell To Earth [0:04:25.03]
+06. Noel Redding & Friends - No More Christmas [0:03:04.63]
+07. Edison Lighthouse - Feel Christmas [0:04:01.04]
+08. Fancy - Jingle Bells And Candy Canes [0:04:06.70]
+09. Santa Claus & His Rockin' Snowmen - Mary's Boy Child - Oh My Lord [0:05:17.73]
+10. Greg Lake - Believe In Father Christmas [0:03:31.49](   Читать дальше...   )Жанр: Pop, Swing, Rock'n'RollПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C368D8F92EA22A44D92660DCF32E74209244F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595783   (132227) от 29.12.2012
+
+VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Pop, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out Of Heaven 03:53
+02. Rihanna - Diamonds 03:45
+03. The Lumineers - Ho Hey 02:43
+04. Taylor Swift - I Knew You Were Trouble. 03:39
+05. Justin Bieber - Beauty And A Beat (Feat. Nicki Minaj) 03:48
+06. Ke$Ha - Die Young 03:33
+07. Maroon 5 - One More Night 03:39
+08. Flo Rida - I Cry 03:43
+09. Phillip Phillips - Home 03:30
+10. Macklemore & Ryan Lewis - Thrift Shop (Feat. Wanz) 03:55(   Читать дальше...   )Жанр: Pop, Funky, Dance, VocalПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593162   (132150) от 29.12.2012
 
 VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
@@ -626,245 +841,6 @@ VA - Танцевальная Сенсация Русский выпуск (2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73275F1E5B67932D34F26A535313312AF12B1250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490517   (129919) от 01.05.2012
-
-VA - Top Club Hits Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M.L. - I Wanna Feel Freedom (Radio Mix)
-02. Makhno Project - Everlasting Love (Radio Edit)
-03. DJ Junior feat. Sophie Cairo - Save My Love (Club Mix)
-04. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-05. Flashtronica - Baby (Radio Edit)
-06. Archi Rich - This Is Fantasy! (Original Mix)
-07. Rene Ablaze & Alexander Xendzov feat. Sharon Fehlberg - Cast Your Spell (Clokx Edit)
-08. Dj Nab aka Pharit-Turn Up the Bass
-09. Jeter Avio feat. Vera Fisher - I Will Stay (Dub Mix)
-10. Tony Ray feat. Gianna - Chica Loca (The Perez Brothers & Dj PM Remix) (Radio Edit)2012Жанр: Dance, ClubПродолжительность: 05:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7351DCE890F2CE865F00739C8B4DB0CF75F755FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490035   (129797) от 01.05.2012
-
-VA - Автозвук От Русских Диджеев (2012) [MP3|224 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club 2012)
-02. Иракли vs. Бьянка - Белый пляж (DJ Kirill Clash & DJ Dmitriy Nema remix)
-03. Opium Project - Я бегу (DJ Pomeha & DJ A-Newman extended mix)
-04. Mc Zali & Don Omar - Девочки мэйд ин раша (Dima Molotov Russian bootleg)
-05. Ёлка - На большом воздушном шаре (Viento & Mutti bootleg)
-06. Марсель - Эта песня для тебя (Dj Rich-Art & Dj Stylezz remix)
-07. Samo`L feat. A-Sen - Малиновые сны (DJ Movskii & DJ Karasev rmx)
-08. Maxigroove - Поцелуи без слов (club mix)
-09. KOLA Project - Время (original mix)
-10. Дмитрий Колдун - Ночной пилот (DJ Fisun remix)2012Жанр: Pop,Dance, ClubПродолжительность: 07:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3EDD941924C5BD4E65CD9C688C8FBBAFF8497C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525290   (129576) от 20.01.2022
-
-VA - Dance Rising (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J. Worra, Leo Stannard - Check Out (2:54)
-002. Croatia Squad - You Should Already Know (3:13)
-003. HoneyLuv, Hugo Cantarra, OMEM - Paradise (5:12)
-004. DLMT, Famba, Kyra Mastro - Your Body (2:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D647F6C20A37245768D1A537745618FE99E6EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489443   (129449) от 29.04.2012
-
-VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Street Dancer
-02. Bassmonkeys Feat. Lyck - Embrace My Heart (Got Me Dancing Club Mix)
-03. Bazeda, Custom Drops - Love To Party (Original Mix)
-04. Bingo Players - Rattle
-05. Blake Jarrell Feat. Michael S - Say What You Will (Dohr & Mangold Remix)
-06. Bt & Adam K - Tomahawk (Original Mix)
-07. Capes - Better Know
-08. Cardinal Feat. Arielle Maren - Sink Into Me (Original Mix)
-09. Cressida & Natalie Paris - Easy To Forget (Club Mix)
-10. Dash Berlin Feat. Jonathan Mendelsohn - Better Half Of Me (Chris Schweizer Remix)2012Жанр: House, ClubПродолжительность: 04:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D374A75047B02456F5046213CFAF86EABA5BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489586   (129445) от 29.04.2012
-
-VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadmau5 feat. Chris James - The Veldt (Original Mix)
-02. Luigi Lusini - Wake Me Up, I'm Dreaming (Original Mix)
-03. Serge Devant feat. Danielle Parente - Far Away (Extended Mix)
-04. Jozhy K & Angel - Number One (Original Mix)
-05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
-06. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Myon & Shane 54 Summer Of Love Mix)
-07. Dash Berlin feat. Sarah Howells - Go It Alone (Club Mix)
-08. Jason Derulo - Pick Up The Pieces (7th Heaven Club Mix)
-09. Paulina Rubio - Boys Will Be Boys (Club Edit)
-10. Jennifer Lopez - Dance Again (Cosmic Dawn Club Mix)2012Жанр: Club, DanceПродолжительность: 04:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991E5D0287EA3BB2FB906DABBB6F23392ED80E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489415   (129334) от 29.04.2012
-
-VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Любовь Фоменко - Линии Сердца
-02 Dj Riga & Mc Zali - Дяди И Тети
-03 Пицца - Париж
-04 Quest Pistols - Разные
-05 Евгения Власова - Красивые и Богатые
-06 Real O - Луна (Я В Белом Платьице)
-07 Маттиас - За тобой
-08 Снежана Фирсова - Благодарю
-09 Земфира - Господа (Krainov Remix)
-10 Сергей Трофимов - Я Привык Улыбаться Людям (DJ Fisun remix)2012Жанр: Pop,DanceПродолжительность: 06:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A488965B875C381775B0D38558DAB166D495D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488324   (129280) от 28.04.2012
-
-VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Original Mix)
-02. Beyonce - Love On Top (DJ Escape & Tony Coluccio Remix)
-03. Amelle feat. DBX - God Won't Save U Now (7th Heaven Club Mix)
-04. Matt Bukovski - Alterations (Original Mix)
-05. Sultan & Ned Shepard feat. Quilla - Walls (Original Mix)
-06. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
-07. Rita Ora feat. Tinie Tempah - R.I.P. (Seamus Haji Club Mix)
-08. ReOrder & Stine Grove - Seize The Day (Original Mix)
-09. Claes Rosen - Whats Up Tonight (2012 Rework)
-10. Avicii feat. Salem Al Fakir - Silhouettes (Vocal Mix)2012Жанр: Club, DanceПродолжительность: 04:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

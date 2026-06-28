@@ -1,3 +1,55 @@
+###  Публикация: 1221829   (689439) от 27.04.2018
+
+Текстуры - Texturemate - Flaked Paint 1 Texture Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры, под осыпающуюся краску.Формат: JPGРазрешение файлов: 3888 x 2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71232C53FF4EB9667912609E5A11FC3758B4225A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221928   (689437) от 27.04.2018
+
+Фоны - Creativetacos - 10 Free Watercolor Washed Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беплатные размытые акварелью фоны.Формат: JPGРазрешение файлов: 3000 X 2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614C31B4DD1233876F48901F31F344DC811D604C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221843   (689436) от 27.04.2018
 
 Текстуры - Creativetacos - 10 Free Creative Artistic Grunge Textures [JPG]
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0DE13AE3A8F380193A5C2B91B44786CF8B1DFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221929   (686896) от 28.04.2018
-
-Фоны - Creativetacos - 12 Free Light Motion Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны (легкая размытость, нерезкость, "блюр").Формат: JPGРазрешение файлов: 7680×4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CA13B45C78E4487BF548363779B7607EF2EAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221934   (686750) от 28.04.2018
-
-Фоны - Creativetacos - 15 Free Blurred 8K Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные размытые текстуры.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 7680 x 4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F02372089B80DC90F1AEFCF604BD5AAC386312E
 ```
 
 https://mybot314.ru/tekegram_catalog/

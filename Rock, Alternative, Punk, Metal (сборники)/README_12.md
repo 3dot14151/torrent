@@ -1,3 +1,177 @@
+###  Публикация: 1377546   (851632) от 22.04.2020
+
+Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Don't Know (Sure Can Hurt You)
+02. Bad Boys (Of Rock 'N' Roll) (Remastered Version)
+03. Run for Your Life
+04. Shoot 'Em Down(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 03:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E68019FFB49AC6BAC8906F0F8F9D07DD0321D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377516   (851507) от 22.04.2020
+
+John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (2010 Mix)
+02. Jealous Guy (Remastered 2010)
+03. (Just Like) Starting Over
+04. Watching The Wheels(   Читать дальше...   )Жанр: RockПродолжительность: 06:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377653   (851499) от 22.04.2020
+
+Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Wars...The Punishment Due (Remastered 2004)
+02. Hangar 18 (Remastered 2004)
+03. A Tout Le Monde (Remastered 2004)
+04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002073   (849932) от 30.03.2016
+
+Ленинград - Новинки (2016) [MP3|192 - 320 кб/с ] <Rock, Ska>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Экспонат
+02. Самая любимая
+03. ЗОЖ
+04. Плачу(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783872455387AB898ADBC613B75854136ECC3EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377770   (849576) от 23.04.2020
+
+Marilyn Manson - 100% Marilyn Manson (2020) 2CD [MP3|320 Kbps] <Rock, Industrial>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dreams (Are Made Of This) (Album Version)
+02. The Beautiful People (Album Version)
+03. KILL4ME
+04. Tainted Love(   Читать дальше...   )Жанр: Rock, IndustrialПродолжительность: 07:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4A27913CFED92A573617CF34206661BA6AFAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378078   (848031) от 24.04.2020
+
+Paul McCartney - 100% Paul McCartney (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I’m Amazed (Remastered 2011)
+02. Uncle Albert / Admiral Halsey (Medley / Remastered 2012)
+03. My Love
+04. Band On The Run (Remastered 2010)(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19B95D04681FFC65A3D41A1FC47ACE03E0CCE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378083   (847954) от 24.04.2020
 
 Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -568,180 +742,6 @@ The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379860   (836238) от 01.05.2020
-
-VA - Rock Your Day (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Rolling Stones - Start Me Up (3:33)
-2.Queen - Don't Stop Me Now (3:29)
-3.Red Hot Chili Peppers - Can't Stop (4:29)
-4.Oasis - Supersonic (4:44)(   Читать дальше...   )Жанр: Rock, Alternative, OtherПродолжительность: 03:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1615A09FF2DA1ECA754B9371809EDFFDC44B98BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379916   (835975) от 01.05.2020
-
-VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Talking Heads - This Must Be the Place (Naive Melody) (2005 Remaster) (4:56)
-2.David Bowie - Sound and Vision (2017 Remaster) (3:04)
-3.Fleetwood Mac - Dreams (2004 Remaster) (4:17)
-4.The Rolling Stones - Gimme Shelter (4:30)(   Читать дальше...   )Жанр: Rock , Indie Rock, Rock PopПродолжительность: 04:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279B97DD3C002A484B46DE957D1F14ECA20EA77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379970   (835897) от 01.05.2020
-
-VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sting - All This Time (Album Version) 4:55
-002. R.E.M. - Losing My Religion 4:28
-003. Queen - Bohemian Rhapsody (2011 Mix) 5:54
-004. Elton John - Your Song (Remastered) 4:03(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 07:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9719C6898E4BCAC1C8A061230A915A3B0FC6B646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380333   (835129) от 02.05.2020
-
-VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grotto Terrazza - Gestalt Bondage
-002. Los Retros - Oh Grace
-003. Night Flowers - I've Loved You
-004. Crushed Beaks - Jupiter(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7443F99D67333C209D32F327B73F4A53A3F54E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380100   (834626) от 02.05.2020
-
-VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834626.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - Bohemian Rhapsody (2011 Mix) 5:54
-002. Europe - The Final Countdown 5:10
-003. Michael Jackson - Billie Jean 4:54
-004. a-ha - Take On Me 3:48(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 20:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004970   (834158) от 08.04.2016
-
-VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mungo Jerry - In the Summertime
-002. Monte Montgomery - Little Wing
-003. Mighty Mo Rodgers - Black Paris Blues
-004. Mike & The Mechanics - Mea Culpa(   Читать дальше...   )Жанр: Blues RockПродолжительность: 12:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

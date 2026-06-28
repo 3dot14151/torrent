@@ -1,143 +1,3 @@
-###  Публикация: 568927   (393130) от 02.11.2012
-
-VA - Взорви Танцпол. Русский Сборник (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LiLi - Моя Подруга-Стерва!
-002. DJ Skazka - Неоновый свет
-003. Авраам Руссо - Как быть
-004. Божья коровка - Гранитный камушек
-005. Ангелина Сланевская - Тебя мне так мало
-006. RiDer - Побуду Один
-007. VITA - Вставай!
-008. Братья Борисенко - Что такое любовь
-009. David - Надо Ли Нам
-010. DJ Цветкоff & Оля Милакса - Белая ночь (Andry Makarov remix)(   Читать дальше...   )Жанр: PopПродолжительность: ~ 5.8 часов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5A8C568E813DBE292427727CC38FF606694A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568910   (393127) от 02.11.2012
-
-VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А расстоянии дыхания - 140 ударов в минуту
-02. Kоролева снежная - Комиссар
-03. Переливы - Рома Жуков
-04. Position 2 (Orchestral Radio Edit) - Кай Метов
-05. По подоконнику дождь - Оксана Почепа
-06. Подождем - Игорек
-07. Какао - Унеснные ветром
-08. Страшная - Алексин
-09. Колян - Евро
-10. Бабочка-луна (Denis Rublev & Natasha Baccardi) - Саша Айвазов(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA334B277E86115BD9396614651703D3D4A5402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568913   (392965) от 02.11.2012
-
-VA - Золотой Граммофон Осенний Выпуск (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Света - Лондон-Москва
-002. Анна Семенович - Любовь Под Облаками
-003. Reflex - Потому Что Не Было Тебя (Версия 2012)
-004. Тимати и Григорий Лепс - Лондон
-005. Елена Есенина - Синдерелла
-006. Стас Михайлов - Джокер
-007. Павел Воля - Я Танцую!
-008. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-009. Дима Билан и Ева - Малыш
-010. Ёлка - Хочу(   Читать дальше...   )Жанр: PopПродолжительность: 11:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197CA538733177CC20906711D39E8A5817AA748C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568697   (392675) от 02.11.2012
-
-VA - Новое Радио - 100 хитов Нового Радио. выпуск 2 (2012) [MP3|256 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392675.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aura Dione - Geronimo (3:13)
-2. Adam Lambert - Never Close Our Eyes (4:03)
-3. Avicii - Levels (3:55)
-4. Michel Telo - Ai Se Eu Te Pego (2:43)
-5. Dev feat. Enrique Iglesias - Naked (3:51)
-6. Pitbull feat. Marc Anthony - Rain Over Me (3:34)
-7. Zedd feat. Matthew Koma - Spectrum (3:57)
-8. Tim Berg - Bromance (The Love You Seek) (3:06)
-9. Example - Changed The Way You Kiss Me (3:09)
-10. 5'sta Family - Вместе мы (3:32)(   Читать дальше...   )Жанр: popПродолжительность: 05:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9008286E24F00D9DDD4B0769F8A80509DDC44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569385   (392267) от 03.11.2012
 
 VA - Новинки Эфира Радиостанций (2012) [MP3|128 кб/с]<Pop>
@@ -895,6 +755,146 @@ VA - Танцевальный Extrim 50/50 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6031B5B049CDC9BC777171E15FBF92AA939579A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571358   (388611) от 07.11.2012
+
+VA - Recordная осень 2 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
+02. Moonbeam feat. Aelyn - You Win Me (Radio Edit)
+03. RAЯ - Всё Не Просто (DJ Cosmo Rekord Remix)
+04. Dragon & Jontron feat. Lea Luna - Tonight (Original Mix)
+05. DJ Сателлит & Marlena - Дай Мне Слово (Tonada Radio Mix)
+06. David Guetta feat. Taped Rai - Just One Last Time (Hard Rock Sofa Big Room Mix)
+07. Sasha Prozet & DJ Andy First - Ради Тебя (Radio Edit)
+08. Ruslan Nigmatullin vs. Michel Telo - If I Catch You (Radio Mix)
+09. Анна Семенович - Любовь под облаками
+10. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B0979533A5495D8388011E0CC1701BEF1EB6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571826   (388502) от 07.11.2012
+
+VA - Дискотека Best Hits (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Yankovski feat. Пропаганда - Горностай
+02. Miami Club Feat. Nicci - Supernova (Radio Edit)
+03. Johan K feat. Sasha Wind - One More Day (DJ Mikis Remix Edit)
+04. DJ Niki feat. IKA - Так Люблю (Radio Edit)
+05. Alexandra Shine - Play That Game (Original Mix)
+06. Matreshka Girls Feat. Mc Zali - Наша Ночь
+07. Alexey Romeo & Smoky Mo - На Своей Волне (Radio Mix)
+08. John Puzzle feat. Elise & George Sunday - Spanish Lovin' (Radio Edit)
+09. DJ Lutique - Come Along
+10. Дима Билан - Лови Мои Цветные Сны(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1BD03C2B0333720DDE4C202EA7FE0C6CE9D4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571836   (388181) от 07.11.2012
+
+VA - Радио Record: Высшая лига 7 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Magnit & DJ Kefir & T9 & Tina Smith - Пусть все будет так, как ты захочешь
+02. Gusttavo Lima - Balada (Regi Remix)
+03. DJ Ozeroff & DJ Sky - Будешь Нашим Королем (Madis feat. Artem Onyx & Vadim Smile Remix)
+04. Slam DJs feat. Zeni - Walk Away (Radio Mix)
+05. DJ Boyko & Katy Queen - Я люблю тебя (Sound Shocking Remix)
+06. Sultan & Ned Shepard feat. Taryn Manning - Send Me Your Love (Dave Aude Radio Edit)
+07. Диля Даль - Мой сильный мужчина (SantBeu Remix)
+08. Dada feat. Sandy Rivera - Lollipop (DJ Parker & DJ MAXima Radio Edit))
+09. 5sta Family - Вместе мы (DJ Lena Front & DJ Jeneva Remix)
+10. Ysa Ferrer - Flash in the Night (Pinnochio English Hard Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25946DF638C13F157794261703EB1B68A90574AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570712   (387630) от 07.11.2012
+
+VA - Дорожное Авторадио. Лучшие песни (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
+02. DJ HaLF & Женя Юдина - Два Сердца (Radio Mix)
+03. Юлия Паршута - Камень С Души
+04. Лаурита - Новое поколение
+05. Винтаж и ChinKong - Свежая Вода
+06. Pulse - Танцуй Со Мной
+07. Катя Баженова - Все о чем мечтаю
+08. Юлия Савичева - Сумерки
+09. Lайт - Игра (Я Люблю Тебя)
+10. Руки Вверх - Я Тебя Люблю(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5442C7522ECE3415268C77B0F54E6FC4E1E4F35
 ```
 
 https://mybot314.ru/tekegram_catalog/

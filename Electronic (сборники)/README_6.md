@@ -1,3 +1,61 @@
+###  Публикация: 1451790   (1028233) от 03.03.2021
+
+VA - Beatport Bassline: Electro Sound Pack #251 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию убойный драм замес в 251-й подборке электро саунда от Beatport, который наверняка разбудит Вас от зимней спячки. Пора обновить свою медиатеку и встречать грядущую весну во всеоружии001. Da Candy - Teknoboom
+002. Echo Brown - Tug O War
+003. Surge - No 66
+004. Delta Heavy - Exodus(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43398B119047117CB6EFDF4C1F597AE334DEFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451786   (1028231) от 03.03.2021
+
+VA - City Form: Progressive Trance (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красиво и эклектично! В лучших традициях прогрессив транса! Атмосфера, как некая героика, вера в себя, в свои силы, и преодоление жизненных трудностей. Здесь есть и мелодия и динамика и смысл, который хотели донести до слушателя авторы музыкальных композиций.001. Waiting Dog - Tired Of Chasing (Extended Mix)
+002. Simon Lee - Kmnd (Extended Mix)
+003. V I F & Teya Flow - Mixerrer
+004. Leon Bolier - Northern Moon(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 12:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE3A592C01BAE6CD9A4A5E0A0CD5FBE049008A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451675   (1028227) от 03.03.2021
 
 VA - Trance 2021 [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Remixes 2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFAC978CD42803A54BAAD9CEC937A8F6AA60CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456131   (1025319) от 21.03.2021
-
-VA - Big Room Dance (2021) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassjackers, Wolfpack, Richie Loop - Old Money (2:26)
-02. Maddix, SaberZ - Follow Me (3:06)
-03. Showtek, sonofsteve - Show Some Love (Showtek Festival Edit) (3:42)
-04. David Guetta, MORTEN - Kill Me Slow (3:28)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 02:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53951014B7D6AFD0CAA68817D8A09FC26CA2D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456344   (1025137) от 22.03.2021
-
-VA - Beatport Disco Jackin' House: Sound Pack #258 (2021) [MP3|320 Kbps] <Funky, Disco Groove,  Jackin' House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна вступает в свои права, но одного весеннего солнца для хорошего настроения точно недостаточно. Необходимо добавить ко всему еще и соответствующую музыку, именно её и несет с собой эта отличная 258-я подборка танцевальной музыки от Beatport, которая включила в себя целую сотню ремикс-треков диско стиля!001. Monique Rossi - How Wonderful You Are
-002. Mali - One Two Three Four
-003. Pva - Talks
-004. Domscott - The Cracks About(   Читать дальше...   )Жанр: Funky, Disco Groove,  Jackin' HouseПродолжительность: 09:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6151AB15E4A200531429DF7DE62E369BBF6641
 ```
 
 https://mybot314.ru/tekegram_catalog/

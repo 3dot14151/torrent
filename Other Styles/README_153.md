@@ -1,3 +1,119 @@
+###  Публикация: 1279928   (234170) от 20.05.2022
+
+Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (5:51)
+ 02. To The Unknown Man (5:15)
+ 03. Movement 9, Mythodea (3:49)
+ 04. Moonlight Reflections (3:11)(   Читать дальше...   )Жанр: Electronic, New Age, ClassicalПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EA1555EE110D1A8C0965206D087FA322C16AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278756   (234118) от 20.05.2022
+
+Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (05:51)
+02. To the Unknown Man (05:14)
+03. Irina Valentinova – Mythodea - Movement 9 (03:48)
+04. Moonlight Reflections (03:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C4FC8B31D27B9F6B7E28049B90CB3C5B49BCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633781   (233762) от 18.05.2023
+
+VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RIOPY - Meditation (4:55)
+02. Matteo Myderwyk - Pastorale (2:04)
+03. Carlos Cipa - Sonata Fragment (3:28)
+04. Bertrand Chamayou - 5 Lieder, Op. 49 No. 4, Wiegenlied (Transcr. Reger) (1:41)(   Читать дальше...   )Жанр: Meditation, PianoПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634325   (233688) от 19.05.2023
+
+J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [FLAC|Lossless|tracks + .cue] <New Age, Healing, Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. El De'ot YHWH
+03. Y-H-W-H Echad
+04. Y-H-W-H Elohekha Esh'oklah(   Читать дальше...   )Жанр: New Age, Healing, ChantПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 58956   (233649) от 22.05.2022
 
 Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Soundtrack, Ambient>
@@ -640,122 +756,6 @@ VA - Piano Relaxation Covers (2022) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F1EB82E8F7A29FF6ECD6AD7A288D4C2456D9CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340714   (226714) от 30.11.2019
-
-Grand Theft Auto IV - Vladivostok FM (2008) [FLAC|Lossless|tracks+ .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberty City: The Invasion
-02. РЭП
-03. Мама
-04. Никого не жалко(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A2D6C320C1144923FFBC0D261A1E1BC3FD822D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267558   (226423) от 11.12.2018
-
-Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartaches By The Number (3:06)
-02. I'll Be There (If You Ever Want Me) (2:11)
-03. Faded Love (5:24)
-04. It Always Will Be (3:34)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8968F1947959AF561CA334FAF49CBB7B5EE984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268534   (226352) от 11.12.2018
-
-Laura Sullivan - Serenity: Music for Meditation and Inner Peace [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River of Healing
-02. Wild and Free
-03. Soaring with Angels
-04. The Universe in You(   Читать дальше...   )Жанр: Instrumental, New ageПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FA2117DD445A7F276CD9BD00EA99DEEF8AA5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268705   (226345) от 11.12.2018
-
-Laura Sullivan - A Magical Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bells of Christmas
-02. Up on the Housetop / Ode to Joy
-03. Ave Maria
-04. The First Noel(   Читать дальше...   )Жанр: Instrumental, New ageПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BC191376C861965C094727BC34B6AD8F037828
 ```
 
 https://mybot314.ru/tekegram_catalog/

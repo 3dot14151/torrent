@@ -1,3 +1,174 @@
+###  Публикация: 1507119   (798706) от 03.11.2021
+
+Sexy Chillout Music Cafe - Чуттєвий мікс - Чилаут компіляція найсексуальнішої музики для закоханих (Sensual Mix of Chillout Music) (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сексуальні ритми (3:50)
+02. Одна ніч (3:40)
+03. Кривавий захід сонця (3:45)
+04. Танець живота (3:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E067A320C1F5808103D158EE94D684CAB8351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273961   (798685) от 04.01.2019
+
+Проводник  (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня, девушка Катя, обладает мистическим даром: она видит призраков. Когда пропадает её сестра-близнец, девушка в одиночку бросается на поиски. В полиции настаивают, что сестры вообще  не существует, что она — плод Катиного больного воображения. Однако в процессе поисков сестры Катя понимает, что в городе орудует серийный маньяк, и сестра — одна (   Читать дальше...   )Производство: РоссияЖанр: Ужасы, триллерРежиссер: Илья МаксимовАктеры: Александра Бортич, Евгений Цыганов, Александр Робак, Вячеслав Разбегаев, Владимир Яглыч, Константин Мурзенко, Юрий Скулябин, Марта Тимофеева, Екатерина Рокотова, Василий БочкаревПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6DB3DBD5B50BFDA681CBFAAEAC548A7BF1808B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507138   (798517) от 03.11.2021
+
+Blue System - My Star (2021) [AAC|~344 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry Little Sarah (Maxi Version) (5:16)
+02. Big Boys Don't Cry (3:13)
+03. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:28)
+04. Under My Skin (Radio Version) (3:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAFD212C4D0C57A755DADF63AD054C4D0A24960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507359   (798487) от 04.11.2021
+
+VA - One Jazzy Night, vol. 4: Best of Smooth Jazz Music (2021) [AAC|~321 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Boquita, Javier Nuñez - Come Away with Me (3:10)
+02. Sergio Belem, Digby Jones - Sunrise over Corcovado (4:25)
+03. Pier-O - Whisky and Cigars (5:48)
+04. Nicola Barbon, Massimo Faraò Trio, Bobo Facchinetti - September (2:01)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C2C2527BCF2730998E2B4EC32AAEE7130A6C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507416   (798479) от 04.11.2021
+
+VA - Andrew Lloyd Webber’s “Cinderella” (Original Album Cast Recording) (2021) [AAC|~299 Kbps] <Musical>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Lloyd Webber, Helen George - Buns 'N' Roses (7:54)
+02. Andrew Lloyd Webber - It Has To Be Her (2:30)
+03. Andrew Lloyd Webber, Carrie Hope Fletcher - Bad Cinderella (3:06)
+04. Andrew Lloyd Webber, Carrie Hope Fletcher, Ivano Turco - So Long (4:23)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F500C937A65E6F37EB70223F1375F2D3F5ABEAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507530   (798424) от 04.11.2021
+
+Diana Ross - Supertonic Mixes (2020) [AAC|~353 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Out / Upside Down (Eric Kupper remix) (3:07)
+02. Love Hangover (Eric Kupper remix) (3:49)
+03. The Boss (Eric Kupper remix) (3:41)
+04. Surrender (Eric Kupper remix) (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542796AB8FDE8B7F4515BD4005C100C59336100A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507532   (798423) от 04.11.2021
 
 Diana Ross - Thank You (2021) [AAC|~310 Kbps] <Pop, Soul>
@@ -571,177 +742,6 @@ VA - 50 Italian Standards, vol. 2 (2020) [AAC|~318 Kbps] <Nu Jazz, Lounge, Easy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E5FCDD6A8B036DFDD3760A5043FD53F7B0A953C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507946   (798142) от 06.11.2021
-
-VA - 50 Italian Standards, vol. 3 (2021) [AAC|~316 Kbps] <Nu Jazz, Lounge, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Francesca Gramegna - Nel Blu Dipinto Di Blu (Volare) (4:21)
-02. Papik, Walter Ricci - Viento 'e Terra (4:18)
-03. Papik, Alan Scaffardi - Canzoni Stonate (4:00)
-04. Papik, Danny Losito - Figli Delle Stelle (3:53)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC27E3263D1A4B387112A27B88CD2D9A142CCD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507941   (798138) от 06.11.2021
-
-VA - 50 Italian Standards, vol. 1 (2018) [AAC|~326 Kbps] <Nu Jazz, Lounge, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - E la chiamano estate (3:12)
-02. Melania - Tu Vuo Fa L'americano (4:04)
-03. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)
-04. Sweet Caterina - Parole Parole (4:22)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D413D12EC02267F57C594FE9D320CAA7178CDF67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507993   (798122) от 06.11.2021
-
-Паника в Нидл-парке / Паника в Шприц-парке / The Panic in Needle Park (1971) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби — наркодилер, Хэлен — молодая художница. Они знакомятся и влюбляются друг в друга. Вскоре Хэлен тоже становится наркозависимой. Отношения молодых людей далеки от романтичных — грязные притоны, стычки со служителями закона и постоянная нехватка денег. Они мечтают завязать, уехать и начать жизнь с чистого листа. Но сделать это оказывается не так легко…Производство: США / Didion-Dunne Inc., Gadd Productions Corp.Жанр: драмаРежиссер: Джерри ШацбергАктеры: Аль Пачино, Китти Уинн, Алан Винт, Ричард Брайт, Кил Мартин, Майкл МакКлэнатан, Уоррен Финнерти, Марсия Джин Кертц, Рауль Хулиа, Энджи ОртегаПеревод: ДвухголосыйСубтитры: английские (full, SDH)Продолжительность: 01:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433C3AB2782898881C62E521E5BCF3694EF94481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507841   (798115) от 06.11.2021
-
-Electric Light Orchestra - ELO 50th Anniversary Vol. 1 (2021) [AAC|~342 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Radio (5:04)
-02. Do Ya (2012 Version) (3:56)
-03. 10538 Overture (40th Anniversary) (2012 Version) (4:42)
-04. Strange Magic (2012 Version) (3:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC939AEC37D560EA1780584DF79B1FC6D172A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508142   (798019) от 07.11.2021
-
-VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Elements - Let's Start (Sun Rising Mix) (3:40)
-02. Marc Hartman - Into the Stone (Original Mix) (4:16)
-03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (Living Room's Dubalicious Edit) (4:11)
-04. Peter Pearson - Chilled to the Heart (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508123   (798018) от 07.11.2021
-
-VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vovich, Sexy Girl - Don t Break my Heart (Victor Vine Remix) (3:19)
-02. The Groover - Show Me (Playa D'en Bossa Edit Mix) (4:02)
-03. King Bizza Keys - Ticket to Europe (5:54)
-04. Monodeluxe - Playa del Sol (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

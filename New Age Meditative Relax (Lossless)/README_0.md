@@ -1,3 +1,61 @@
+###  Публикация: 1446749   (1032507) от 10.02.2021
+
+Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юлия Монастыренко - профессиональная пианистка и талантливый композитор из России. Автор и продюсер инструментальной музыки.01. Meetings and Partings (4:22)
+02. Gothic Venus (5:12)
+03. Christmas Lullaby (3:46)
+04. Dive in September (4:01)(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447543   (1031654) от 14.02.2021
+
+VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Brunetti - Clear Nights (01:56)
+02. Adriano Pupillo - Arpeggio in B Major (02:12)
+03. Alessandro Martire - L'ultimo desiderio (03:05)
+04. Adriano Pupillo - Sostenuto in C Major (01:55)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447777   (1031010) от 16.02.2021
 
 Sina Vodjani - Священный Будда (1998) Правительство Звука, 2002 [FLAC|Lossless|tracks + .cue] <World, New Age>
@@ -136,6 +194,35 @@ Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38A72821D8AAEF1C6BB77A24463C774025539D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469391   (1016427) от 12.05.2021
+
+Jim Brickman - 88: Solo Piano Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discover (3:43)
+02. Together (3:24)
+03. Keys (3:54)
+04. Keeping You Warm (3:42)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:49::53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB1643DE5FE7A330DB0B5CD332B24A2CB748AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,93 +745,6 @@ Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349731   (1003775) от 04.01.2020
-
-Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sementes de Esperanca (4:48)
-02. Vaga Lume (4:48)
-03. Brisa de Lavanda (4:04)
-04. Domingo no Parque (4:27)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491770F7605D5ECA58790D427F220DE421A8777E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350628   (1002467) от 09.01.2020
-
-Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jago jharna jago (3:34)
-02. Param pitare (5:41)
-03. Aum dhatre namaha (5:11)
-04. Mау i have a god-beauty (4:51)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351984   (1001645) от 12.01.2020
-
-Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streets of Cobblestone
-02. Luminosity
-03. Dancing Light
-04. Fancy Free(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

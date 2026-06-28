@@ -1,3 +1,32 @@
+###  Публикация: 1748293   (44104) от 09.09.2024
+
+VA - 50 Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finghin Collins - Suite bergamasque, L. 75 III. Clair de lune (5:13)
+02. Henrik Måwe - Goldberg Variations, BWV 988 Aria (4:51)
+03. Finghin Collins - Bagatelle in A Minor, WoO 59 Für Elise (3:16)
+04. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7E09CA21F168119EAFED5703C1E97A19C362F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748517   (44008) от 10.09.2024
 
 VA - Relax with Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -714,35 +743,6 @@ VA - Reflections on Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C578950123CB4580C5C5C8265E22FB47007D7659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776243   (28270) от 08.02.2025
-
-Bach 333: The New Complete Edition (222CD) (2018) [FLAC|Lossless|tracks + .cue] <classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sacred Cantatas (CDs 1-48)
-Sacred & Secular Vocal (CDs 49-105)
-Organ Works (CDs 106-125)
-Keyboard Works (CDs 126-146)Жанр: Classical, baroqueПродолжительность: 282:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9525E0595670DA2DC5CC4057E7C7E08EDEC493
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 1508650   (796916) от 09.11.2021
+
+VA - Airport Lounge, vol. 1 (2010) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pearldiver - Far Away (4:49)
+02. Jens Buchert - The Arrival (4:58)
+03. Newton - Raindrops & Teardrops (4:53)
+04. Pearldiver - Daydream (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250C2C96276A9B94CC4A4EC847EA6DE47A372450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508567   (796866) от 09.11.2021
+
+t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [AAC|~331 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Simple Motion (Album Version) (2:48)
+02. Not Gonna Get Us (4:22)
+03. All The Things She Said (3:34)
+04. Show Me Love (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A3780A80D7F0F349E458369F88C27A5EB3105F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508557   (796865) от 09.11.2021
+
+AIR - 10 000 Hz Legend (2021) [AAC|~343 Kbps] <Leftfield, Downtempo, Experimental>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796865.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Electronic Performers (5:36)
+1.02. How Does It Make You Feel? (4:38)
+1.03. Radio #1 (4:27)
+1.04. The Vagabond (5:37)(   Читать дальше...   )Жанр: Leftfield, Downtempo, ExperimentalПродолжительность: 01:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F54BA9121074FE08BC4115F4DF54677B2D6D3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508570   (796812) от 09.11.2021
+
+t.A.T.u. - 200 по встречной (2002) [AAC|~338 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клоуны (3:32)
+02. 30 минут (3:20)
+03. Досчитай до ста (4:38)
+04. Зачем я (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F821F23089260E02C300B2F829A9A84DF26ED1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508718   (796795) от 09.11.2021
+
+Великий гипнотизёр / Cui mian da shi / The Great Hypnotist (2014) BDRip [720p] ATV [AVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796795.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об известном психологе с блестящей карьерой. Однажды он сталкивается с проблемным пациентом, встречи с которым даются ему непросто…Производство: Китай / Wanda Media Co.Жанр: триллер, драма, детективРежиссер: Лэсте ЧэньАктеры: София Ху, Люй Чжун, Карен Мок, Дэвид Ван, Сюй Чжэн, Ян КайдиПеревод: Авторский одноголосыйСубтитры: английские, китайскиеПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA0C7B832450094366AA4AA24B9C2A8539E72E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199974   (796722) от 19.01.2018
+
+Пила 8 / Jigsaw (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796722.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, КанадаЖанр: Ужасы, триллер, криминал, детективРежиссер: Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BAE7C83614A70B1FF95D187043AD348DECEDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385903   (796653) от 26.05.2020
 
 Идеальная няня / Chanson douce (2019) BDRip [1080p] ATV
@@ -550,180 +718,6 @@ VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 1 (2016) [AAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0808E921A06725769F29A2FB1331A57696AEF219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509163   (795716) от 11.11.2021
-
-VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
-02. No Noise - Karma Shabda (Original Mix) (5:07)
-03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
-04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509152   (795715) от 11.11.2021
-
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polarity - Litu (Original Mix) (2:16)
-02. Natural Factor - Next Us Now (Original Mix) (3:33)
-03. Chill Art - Runi (Original Mix) (5:09)
-04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509150   (795679) от 11.11.2021
-
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 2 (2016) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANDY FOSFORO - Research (2:51)
-02. Balearic Lounge Orchestra - Oriental Bazar (Original Mix) (5:25)
-03. Slow Motion Project - Play the Bass (Original Mix) (5:37)
-04. Tim Carvalho - Black & Light (Original Mix) (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5744ED011424833D68A2FC3612DC06383FC6B12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509219   (795676) от 11.11.2021
-
-VA - Balearic Bar & Beach Tunes (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - City Lights (Original Mix) (6:03)
-02. Lounge Groove Avenue - Te Quiero (Original Mix) (4:07)
-03. Patiotic - Hold Me (Original Mix) (4:32)
-04. Corrado Saija - Kalakuta (Original Mix) (7:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6BFFF2290D8A36BA80E2E04B8BC9607E7A62C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508987   (795667) от 11.11.2021
-
-VA - Café del Mar XXVII (Vol. 27) (2021) [AAC|~347 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Eric Hilton - The Impossible Silence (3:06)
-1.02. Kraak & Smaak, iogi - All I Need (4:32)
-1.03. Bent - Friends (5:39)
-1.04. Till Von Sein - Kalifornien Luv (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAAB5919817C6FC4912D50B2129EA305D4EE702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509098   (795610) от 11.11.2021
-
-Стас Намин и Группа Цветы - Летать (2021) [AAC|~327 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Другой мир (4:30)
-02. Стас Намин и Группа Цветы, Вера Зудина, Олег Предтеченский - Любовь (4:54)
-03. Время на моей стороне (4:10)
-04. Шар голубой (6:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C8C193994CF09E87FC9E8BF386C288339BE03E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1200061   (796997) от 19.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota - Edonismo
+02. Lostly - Came Here to Forget
+03. Basil O'Glue - The Sun Will Rise Again (Solid Stone Remix)
+04. Cosmic Gate & Markus Schulz - AR (Patrick White Remix) (World Premiere)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C339DE9736B483EF4BA03CD732F5B39CA79BAE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200056   (796990) от 19.01.2018
+
+VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE: Eric Senn - Kharon (Intro Mix)
+02. FAN FAVORITE 256: RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
+03. FAN FAVORITE 256: Syntouch & Angel Falls - Alone (Plutian Remix)
+04. PRE-RELEASE PICK: Jericho Frequency feat. Emma Chatt - Do You See Me?(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C40801B8D1E092E7DFD0F10F59A153E4E42A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387133   (792435) от 31.05.2020
+
+David Guetta - United At Home: Fundraising Live From New York City, United States 2020-05-30 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JAY-Z ft. Alicia Keys - Empire State Of Mind (ID Remix)
+02. David Guetta & MORTEN ft. Aloe Blacc - Never Be Alone
+03. David Guetta & MORTEN ft. RAYE - Make It To Heaven
+04. David Guetta - ID w/Martin Luther King - I Have A Dream w/Axwell ^ Ingrosso ft. Trevor Guthrie - Dreamer (Acappella)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804485DBB4DC7F7335564D0FCE88C7D1F1E12DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202113   (791027) от 27.01.2018
+
+VA - Markus Schulz + Gabriel & Dresden - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Dave Neven - Meraki (World Premiere)
+02. The Thrillseekers with Stine Grove - How Will I Know (Club Mix)
+03. Johan Gielen - Souvenir(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DFD533D83BD94C734822C7E2593BB3442E03AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201981   (791024) от 27.01.2018
+
+VA - Aly & Fila - Future Sound of Egypt 532 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FSOE Radio — Future Sound of Egypt 532 Radio Intro
+02. Way Out West — Lullaby Horizon (Ben Bohmer Remix)
+03. Dee Montero — In The Wild (Original Mix)
+04. Padai — Spaceman (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28F4D7337F9DFE3EB7F9BD2CED2B5A4E110921F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202106   (790548) от 28.01.2018
+
+VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - When You're Gone (Intro Mix)
+02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
+03. FAN FAVORITE: InnerSync - Magnificence
+04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202498   (789926) от 29.01.2018
+
+VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nery - Redawn (Andy Blueman Remix)
+02. Attens Feat. Martina Kay - If You Find A Way (Playme Dub Mix)
+03. Jericho Frequency Feat. Emma Chatt - Do You See Me (Original Mix)
+04. (FAVORITE OF THE WEEK) DreamLife & Laucco - Amaranth (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7DFFF39736249A28AB16552D8BE3E2DCA1C454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065046   (789294) от 30.01.2018
 
 Bobina - Russia Goes Deeper 001 - 014 (2016 - 2018) [MP3|320 Kbps] <House,Deep House>
@@ -542,209 +745,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A64D19E61B6585194697DE71A7934BD37BBE724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522453   (758656) от 07.01.2022
-
-Markus Schulz - Global DJ Broadcast New Year's Rehab (2022-01-06) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Aquatic
-02. French 79 - Diamond Veins (VER:WEST Remix)
-03. Corren Cavini featuring The Ultraverse - Close Enough
-04. Rexwake - Curve(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFCE5F6CAFE68F0BA52342B043E573E17305145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522438   (758652) от 07.01.2022
-
-David Guetta - Live @ New Year's Eve Livestream, Louvre Abu Dhabi, United Arab Emirates (2021-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - Soundstorm
-02. Fabrication - Hot Foot
-03. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-04. Shouse - Love Tonight (David Guetta Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70181225694513879225E93984FA66784836F89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280832   (758637) от 04.02.2019
-
-VA - Armin Van Buuren - A State of Trance Episode 900 (Part 2) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY – Save Me Tonight
-02. Above & Beyond ft. Marty Longstaff – Flying by Candlelight (Above & Beyond Club Mix)
-03. Estiva – Little Planet (Matt Fax Remix)
-04. Jason Ross ft. Dimibo – The Gorge(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE6B9220303E8BC8D81B3CB24ED68EBA1823742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280828   (758634) от 04.02.2019
-
-VA - Armin Van Buuren - A State of Trance 900 (Part 1) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren – Lifting You Higher (ASOT 900 Anthem)
-02. Estiva X Ruben de Ronde – Rainbow
-03. James Holden & Julie Thompson – Nothing (93 Returning Mix)
-04. Tritonal ft. Angel Taylor – Getaway (Gareth Emery & Ashley Wallbridge Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71494309BF10B4E9DB0CB193E4EEAFC6FDD0C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215599   (758112) от 26.03.2018
-
-VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID
-02. Markus Schulz presents Dakota - In Search of Something Better (Anske Remix) (World Premiere)
-03. Dylhen - Drift
-04. Above & Beyond featuring Justine Suissa - Cold Feet(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215593   (758108) от 26.03.2018
-
-VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Only Mine (Intro Mix)
-02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
-03. Alex Wright - Mnemba
-04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522754   (757025) от 08.01.2022
-
-Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech House, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepnet - Unravel
-02. Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)
-03. SHM. vs. BBE. - Lifetime (DJs From Mars Mashup)
-04. BLVD & Laidback Luke - Cielo w/DaBaby, Roddy Ricch - Rockstar (Acappella)(   Читать дальше...   )Жанр: Electro Pop, Tech House, Bass HouseПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FB41D55BACC1C75DA15754C67176CDDB564703
 ```
 
 https://mybot314.ru/tekegram_catalog/

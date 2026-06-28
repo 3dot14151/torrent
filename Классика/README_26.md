@@ -1,3 +1,32 @@
+###  Публикация: 913711   (601146) от 30.06.2015
+
+Beethoven - Symphonies Nos.3, 7 & 8 (Paul van Kempen & Berliner Philharmoniker) (1993) 2CDs [FLAC|Lossless]<Classical, Romantic Period, Overture, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beethoven Sym No.7 in A major
+01. Poco sostenuto - Vivace (12:32)
+02. Allegretto (08:28)
+03. Presto - Assai meno presto (09:08)(   Читать дальше...   )Жанр: Classical, Romantic Period, Overture, SymphonyПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7C8F779EFC155E45EAC786EEC5A42B91C4FFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299447   (599605) от 01.05.2019
 
 Rabassa - Requiem (Harmonia del Parnàs) (2007) [FLAC|Lossless|image + .cue] <Classical sacred>
@@ -719,35 +748,6 @@ Archi E Continuo (La Maggiore RV 546)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E993EA3B2763FADBB969FA09270209DB85A836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918999   (584663) от 17.07.2015
-
-Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Piano, Instrumental>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Mattina
-02. Fly
-03. Nuvole Bianche
-04. I Giorni(   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E33E14FF7EB13A807762F973F34E5B0CA9249D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

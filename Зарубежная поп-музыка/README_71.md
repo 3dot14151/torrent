@@ -1,3 +1,32 @@
+###  Публикация: 1642739   (235144) от 29.06.2023
+
+VA - Happy Vibes 2023 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OneRepublic – I Ain't Worried (2:28)
+02. Jonas Brothers – Waffle House (2:25)
+03. Marshmello – Happier (3:34)
+04. Coi Leray – Players (2:19)(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F6E4D2992D89A4BF81B77EDDCF4113F7767B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632630   (235131) от 11.05.2023
 
 VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
@@ -737,35 +766,6 @@ Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268065   (226386) от 11.12.2018
-
-VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Union Of The Snake
-02. Spandau Ballet - Communication
-03. Echo And The Bunnymen - Lips Like Sugar
-04. A-Ha - Cry Wolf(   Читать дальше...   )Жанр: PopПродолжительность: 02:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96482A043C0376B8E959DCE6F4297B30C99A3A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

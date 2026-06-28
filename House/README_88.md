@@ -1,3 +1,177 @@
+###  Публикация: 1793683   (20280) от 25.04.2025
+
+VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BASSTID - Move Closer (Extended Mix) [5:38]
+02. MATA - New Face (Extended Mix) [6:04]
+03. Jacoob - Mirror Of The Soul (Extended Mix) [6:08]
+04. OMATIX (UK) & Rags feat. Cush - Running (Extended Mix) [4:55](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3173845344D75D28E66929E8749EABDA7F040A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795095   (19557) от 02.05.2025
+
+VA - Groove Paradise (The Deep-House Collection), Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi.5 - Done With You (Extended Mix) (04:11)
+02. Kosmoss - You (Original Mix) (03:03)
+03. David Hopperman - Mourouni (Extended Mix) (05:02)
+04. Suncoke - Upon The Rise (Radio Edit) (02:05)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B010FE614905AA272080B27459140C686AB2236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797004   (18409) от 13.05.2025
+
+VA - Nothing But... Late Night Deep House, Vol. 01 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing on Lego - Sun Is Shining (Edit) [03:46]
+02. VEKY - Only You (Dub Mix) [03:48]
+03. Marine de Paris - Selfish Desire (Dub Mix) [03:42]
+04. Mr Black&Blue - Chicago (John Laurant Remix) [05:55](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83F4CA8C184086C828F71C6939C749F657A3188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797260   (18199) от 15.05.2025
+
+VA - Black Hole House Music 05-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Rivera & Ron Carroll - Love Message (Extended Mix) [4:56]
+02. Manufactured Superstars & Scarlett Quinn - Take Me Over (Freak On You Mix) [4:16]
+03. Dennis Sheperd & JES - By My Side (Aldor Extended Remix) [5:38]
+04. KhoMha - Artie (Extended Mix) [5:41](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D94D3B38EE6480B17168FF108DE7FCF3F8C372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798206   (17523) от 21.05.2025
+
+VA - Running To The Ocean (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Ztoned - Tipi Tipi Shakalaka (Radio Edit) (03:00)
+02. Laurent M - I'll Be Back Ibiza (03:30)
+03. Sunlover - Dreamer (02:50)
+04. Skaei - Okay (02:56)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E91D15131F3A750D9ED50A0DF0D126E4A1A280B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798191   (17519) от 21.05.2025
+
+VA - Beach Mode ON! (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chico40 - Don't Call Me (03:05)
+02. Danil Dee - Easy (Radio Edit) (02:28)
+03. Chico40 - I Don't Care (03:34)
+04. Mert Yonar - Without Your Love (03:18)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798726   (17313) от 23.05.2025
 
 VA - 100 Club Hits - Edition 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -571,180 +745,6 @@ Disc 1 (01:01:08)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF603E15ACD45B725ABBBE10BCBF0D7C3D14D9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806111   (11906) от 10.07.2025
-
-VA - Alveda Top 20 Summer Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aksy - Broken Heart (Extended Mix) 03:35
-02. Falcos Deejay & Lost House Rhythms - Electric Odyssey 02:34
-03. Jose Correa - Inside The Spaceship 03:13
-04. Pete Flame & Flymyk - Something About The Music 04:36(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BAD8E33296487058CD0F2507120AA620336644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807320   (11086) от 18.07.2025
-
-VA - Nothing But... Late Night Deep House, Vol. 03 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Forever Free (Radio Mix) [03:44]
-02. Frank Garcia - Humanity Found (Extended mix) [07:44]
-03. Sin Plomo, SuperRaton & BalearicFreaks - Kutura feat. Samira (SúperRatón Remix) [02:49]
-04. Father Deep - The Movement of House [06:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1382482A113ECDC0EB670EB5B5F7D5EA3967DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808212   (10600) от 23.07.2025
-
-VA - Summer Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abee Sash - Somebody Special (Radio Edit) 02:48
-02. KMÖBA - For You 04:17
-03. DeepTurco - The Lake 03:32
-04. Crystal Deeper - Good Flow 02:28(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EA941E6E6E4B666632DE82F3013CA38AF1CF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809057   (10049) от 28.07.2025
-
-VA - Bikini Machines, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paulsen & Stryczek - El Medano (Original Mix) 05:24
-02. Living Room - Booka Boogie (Instrumental Mix) 02:59
-03. Steen Thottrup & Denver Knoesen - Another Day (S.T & A.P's Feet In The Sand Remix) 05:44
-04. Hi.5 & Bolinger - Out Of My Mind (Bolinger Spotify Edit) 03:03(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460265E9BC047BFFBAE4FBFF7CE5694AE6BF6C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820923   (8599) от 30.09.2025
-
-VA - TERRA BEATS: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massimo Coluccia & M-Sol DEEP - Silence Of The Sun (Original Mix) [6:21]
-02. Steve Kay & M-Sol DEEP - Sacred Soul (Deep Mantra Short Edit) [3:26]
-03. Riccardo Leardini & M-Sol DEEP - Profondo (Original Mix) [5:59]
-04. Breaking The Bubble & M-Sol DEEP - Neniu Bedauro (Original Mix) [6:14](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EDAED28D22E2E61C0E43EADE75A99EB272864A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821013   (8520) от 30.09.2025
-
-VA - 100% Ibiza (The Deep-House Closings 2025) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - Take Me Away 03:26
-02. Jaques Le Noir - Be Control (Radio Edit) 03:08
-03. Steen Thottrup & Kaia Mainz - Dreamers (Dazzla Deep Remix) 06:14
-04. Pnfa - Keating 07:02(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733DA18951C41FA7999BEE82D30EED007EAFB53E
 ```
 
 https://mybot314.ru/tekegram_catalog/

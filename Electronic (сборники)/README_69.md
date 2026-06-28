@@ -1,3 +1,148 @@
+###  Публикация: 1521464   (765170) от 02.01.2022
+
+VA - Beatport Psychedelic Trance: Sound Pack #388 (2021) [MP3|320 Kbps] <Psychedelic Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Является ли Psy Trance музыка танцевальной? Ответ один, без сомнения это танцевальная музыка. Некоторые почему-то относятся к танцевальным стилям достаточно легкомысленно и настойчиво ассоциируют их только с развлекательными и увеселительными мероприятиями. Не отрицая этого, все же стоит заметить, что танец является одной из самых древнейших техник, которую использовали (   Читать дальше...   )001. Galactic Cowboy - Supersonic Fly
+002. Neutro - Hypnosis
+003. N3xu5 & Gu - 5th Dimension
+004. E-Mov - Mystic(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 12:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A45A6AF5E9D9A48DA1D424877744AFF755EA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214326   (764968) от 21.03.2018
+
+VA - Deep Delicate House (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764968.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alpha Carpet - Megabytes (Red Zone Mix)
+002. Zhu - Nightcrawler (Rawanara Remix)
+003. Jin Tonique - Not Easy (Mark Kay's Deep Mix)
+004. Alexander Price - Waiting (Paramour Dub Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6D1A412BFFC680A73D0F745618730042A8644A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214227   (764935) от 21.03.2018
+
+VA - Better Day Trance Mix (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frainbreeze feat. Vika - Better Day
+02. Roman Messer - Lullaby (Original Mix)
+03. Cold Rush & Kaimo K feat. Sarah Russell - Angel Fly
+04. Carl Daylim - Stay With Me (Intro Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 08:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6723376B5697AE347FC14BD3CE1DC35C05A2C9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126818   (764609) от 19.04.2017
+
+VA - Sunrise Energy Melodies (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Energy, Harmonic, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sam Laxton - Decadence (Extended Mix)  6:22
+02.  Paul van Dyk - Touched By Heaven (Extended)  7:30
+03.  DJ T.H. & Natalia Meister - Where We Belong (Original Mix)  7:15
+04.  Fady & Mina - Akemi (Extended Mix)  8:22(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Energy, Harmonic, EuphoricПродолжительность: 02:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357F8998C868D08084FAA95CB92F589F40267745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279639   (764548) от 31.01.2019
+
+VA - Empire Records - Fake 4 (2019) [MP3|320 Kbps] <Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eryon Stocker - High Speed (Radio Edit)
+02. Tranceye - Kinesis (Radio Cut)
+03. Dk Project - Blue Skies (Radio Cut)
+04. Estivia - Solena (Radio Edit)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 02:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20829BCAA06E7149C3E27FB19097CF53F2ED1B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214488   (764146) от 22.03.2018
 
 VA - Moon Walk (2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
@@ -600,151 +745,6 @@ VA - Beatport Chillout: Electro Sound Pack #122 (2020) [MP3|320 Kbps] <Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E670DF04FC2C50215820CD9363F300A8AC39BBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394625   (762117) от 06.07.2020
-
-VA - Beatport Techno Electronic: Sound Pack #121 (2020) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Claas Herrmann - Raskolnikow
-002. DJ Hugo Enrique - Underworld
-003. Tyler Schauman - Rosary (Original Mix)
-004. David Temessi - Into The Groove(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A345B47F4D169DF232FA7F6C695946AAEF131F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780358   (762016) от 25.04.2014
-
-VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Route 94 - My Love (feat. Jess Glynne)
-002. Click Click, Upstroke - Barricade (Original Mix)
-003. David Keno - Crusade (Original Mix)
-004. Freakme - Exual Groove (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D218803CA5B509F6F3B7F4EC304A1125075FCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214999   (761810) от 24.03.2018
-
-VA - The Official UK Top 40 Singles Chart 23.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan (03:19)
-02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
-03. Portugal. The Man - Feel It Still (02:44)
-04. Marshmello & Anne-Marie - Friends (03:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF391835BF615B530E09170692032C5444ED8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017368   (761231) от 17.05.2016
-
-VA - Late Night Lounge: Sexy Spring and Buddha Cafe Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Felix - Watch Me - Intimate Shower Relaxation Mix
-02. Eva McFly - Rhythm - Sunset and Downbeat Mix
-03. Cross Hearts - Bora Bora - Beach Cafe Chill Mix
-04. Marimba Gold - Asian Keys Dreaming - Buddha Medition London Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627D437CBA3B040A12276044F364FADF9A9511C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017519   (761218) от 17.05.2016
-
-VA - Guitar Del Sol: Balearic Summer Chill Beach Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polyopia - In My Mind - Beach Bar Instrumental
-02. Lounge Pilots - Any Lounge Color - Guitar Bar Classics Lounge Mix
-03. Massive Gold - Lost Lake
-04. Loungeotic - Lifetime - Beach Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE33D523972975F49B314F24111C02B4EDB6F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

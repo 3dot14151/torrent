@@ -1,3 +1,55 @@
+###  Публикация: 1792563   (67702) от 19.04.2025
+
+Фоны - Artnoy - Creative Fabrica - Metallic Glitter Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с металлическим блеском на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DA150A689045A3AD9D07C2276637192A647584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792641   (67698) от 19.04.2025
+
+Текстуры - Ivana Tomasevic Nikolic - Behance - Linen Papers Package - 114729667 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 14 высококачественных цифровых листов бумаги с текстурой холста в пастельных тонах.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0411DCF707816291DBCDB7DD7E19C39C1EA66945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792658   (67693) от 19.04.2025
 
 Фоны - retroqueen - Creative Fabrica - Green Glitter Digital Paper Bundle [JPG]
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79C690037BE5E1E8F18D2E492C43FE4829E37584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794184   (67337) от 28.04.2025
-
-Паттерны - Free PSD Templates - Wedding Patterns Set Template [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных свадебных узоров в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2662 x 2662
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9320210F601B48E47C1B0717807E7826289F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794194   (67335) от 28.04.2025
-
-Фоны - Design Stocks - Behance - Opulent Gradient Texture - 222489797 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные градиентные текстурные фоны.Формат: JPGРазрешение файлов: 6400 x 4400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A0A64E367DD29922C461869F7F1535DA308A66
 ```
 
 https://mybot314.ru/tekegram_catalog/

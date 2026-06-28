@@ -1,3 +1,111 @@
+###  Публикация: 1367285   (916976) от 15.03.2020
+
+Проекты - VideoHive - This is my story - 8501238 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916976.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Memories» - стильный элегантный проект для создания винтажного слайд шоу собранного в стиле "по волнам воспоминаний".
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651E69362376B734FD3E1A92715D3039E156AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367291   (916944) от 15.03.2020
+
+Проекты - VideoHive - FCPX Family Tree - Photo Gallery 4K - 24782110 [MOTN]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916944.jpg" />
+</div>
+
+
+###  Подробнее
+
+«FCPX Family Tree - Photo Gallery 4K» - стильный элегантный проект для создания нежного слайд шоу на фоне живой природы.
+Многие оценят по достоинству.Формат: MOTN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641B72AF2B9677FE678AE1C732878A39432AA5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367439   (916836) от 15.03.2020
+
+Проекты - VideoHive - Vintage Projector Slideshow Big Pack - 20069857 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916836.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Vintage Projector Slideshow Big Pack» - стильный элегантный пакет для создания винтажного слайд шоу собранного в стиле "по волнам воспоминаний".
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592D9A4F26C87D6227AF26AE5BF5980EC9109479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989418   (916616) от 22.02.2016
+
+Проекты - Motion Array - Retro Split Frame Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1FA292F68C30966CC528C50D78250B94326080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 757869   (915293) от 17.02.2014
 
 Videohive - Timeless Memories - 3829010 [AEP]
@@ -576,111 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D8024288A8C244C3CF93D9FA72DE5A5D8EC6910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368130   (911796) от 18.03.2020
-
-Проекты - ProShow Producer - Spring Gallery [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911796.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Весна, весна, весна прийде..." Элегантное фотошоу для Вашего творчества. Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC895450E19DCC9D410FA09E1DEFB2763DFC6EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097773   (911774) от 28.01.2017
-
-Проекты - VideoHive - Rose Parallax Slideshow - 19313954 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rose Parallax Slideshow - красивое слайд-шоу с применением анимации падающих лепестков роз.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA209CD0477895FB8DE005DE394A876AFD1CDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097762   (911535) от 28.01.2017
-
-Проекты - VideoHive - Airport Gallery Package [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airport Gallery Package - Супер Реалистичная анимация аэропорта и воздушных судов. 3D модели с высоким уровнем детализации, созданные и оптимизированные для Element 3D v2. Реальная сцена взлетно-посадочной полосы из CDG Парижа. Проект может быть использован для профессионального кино, рекламы, видеоклипов, фотогалереи или других событий. Создайте свою собственную (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371E6F818201FB7762AE20FEF7E5FBD82D273483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990401   (911427) от 25.02.2016
-
-Проекты - VideoBlocks - Floating Bubbles Presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2A03E5305DCF76AF96C97C3E6035C80D225A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

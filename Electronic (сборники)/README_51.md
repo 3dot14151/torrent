@@ -1,3 +1,148 @@
+###  Публикация: 1010253   (804304) от 24.04.2016
+
+VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special D. & Scott Brown - Elysium (Ti-Mo Remix) 04:46
+02. Viper Tone - Fast Car (Raindropz! Remix) 04:44
+03. Basslovers United & DJ G4bby - Addicted (Extended Mix) 05:19
+04. Club Electric - Sweet Lovin' (Malu Project Remix) 04:46(   Читать дальше...   )Жанр: Club, Dance, HardstyleПродолжительность: 07:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384314   (804269) от 19.05.2020
+
+VA - Beatport Progressive House: Electro Sound Pack #86 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sobrino - Dark Brain
+02. Alfoa - A New Life (Original Mix)
+03. Jonnas B - Ancestral
+04. Chris Burke - Keygen(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 07:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339A07EBE8C78F3ACFE435A967C4A507608517E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010266   (804083) от 24.04.2016
+
+VA - Running Trax 5k & 10k - Ministry of Sound (2016) [MP3|256 кб/с] <House, Techno, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Running Trax 5k & 10k (Warm Up Mix) 09:10
+02. Various Artists - Running Trax 5k & 10k (Cool Down Mix) 10:48
+03. Various Artists - Running Trax 5k & 10k (5k Mix) 35:02
+04. Various Artists - Running Trax 5k & 10k (10k Mix) 65:04(   Читать дальше...   )Жанр: House, Techno, DanceПродолжительность: 04:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6991AA23F563FBC726132ABF81F3D4730092F834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120241   (803656) от 30.03.2017
+
+VA - Finding Around Blessing (Energy Tech Trance) 003 (2017) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul van Dyk - Touched by Heaven (Extended)  7:30
+02.  NoMosk - Duel (Original Mix)  6:23
+03.  Roger Shah & Inger Hansen - Castles In The Sky (Extended Uplifting Mix)  6:23
+04.  Ben Stone & Mrozer - Astoria (Extended Mix)  6:45(   Читать дальше...   )Жанр: Trance, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACA012F192E3E2753DC58503139BAB4F876F100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120179   (803655) от 30.03.2017
+
+VA - Abstract Vision: April Trance Party (2017) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803655.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abstract Vision & Iwan Lee - Proton (Original Mix)
+002. Marshmello - Alone
+003. Kayat feat. Clare Stagg - The Calling (Denis Kenzo Intro Mix)
+004. Pegboard Nerd & NGHTMRE (feat. Krewella) - Superstar(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C698539EA1D5C85AF1BB5E8A661FA90C4AF494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119842   (803654) от 30.03.2017
 
 VA - Beatport Trance Pack (29.03.) (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful, Progressive>
@@ -600,151 +745,6 @@ VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506086   (801651) от 29.10.2021
-
-VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frankie Lluc - Recreation Ego
-002. Small Tok - Play Me
-003. Pretty Pink - Let You Go
-004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199317   (801553) от 15.01.2018
-
-VA - Deep House Collection Vol.153 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase & Stash & Spider - Inspiration (Original Mix) 6:09
-02. AcidBro & Alex Panchenco - Echosoft (Original Mix) 7:55
-03. AgainstMe & Jody Cottier - Paliria (Paale Remix) 6:53
-04. Alaia & Gallo Ft. Kevin Haden - Go (Full Intention Remix Edit) 2:54(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346090641A90E58047EF938F9ED4ED388B17D82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504264   (801315) от 29.10.2021
-
-VA - SVS Collection vol.2 by MR.DJ (2018) [MP3|320 Kbps] <Deep House, Disco House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A-Mase & Sharliz - Catch  (Club Radio Mix)
-002. A. Rassevich - Hate Me Tonight (Original Mix)
-003. Abaze  -  Stardust (Original Mix)
-004. Ace Of Bace  -  The Sign (Necola Remix) (Radio Edit)(   Читать дальше...   )Жанр: Deep House, Disco House, Electro HouseПродолжительность: 13:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311EBD759212879186E62B0123AC67941D02585E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384685   (801301) от 21.05.2020
-
-VA - Ремиксы от MGDC FM Vol 5 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #2Маши - Лето у виска (Dj Pototskiy X Dj Mephisto Radio Edit) (3:54)
-2. 5sta Family - 5 минут (DJ Safiter Remix) (4:23)
-3. Alexeev - Пьяное Солнце (Alex Shik & Dj Bandy Remix) (4:03)
-4. Anthony El Mejor VS Denis Rublev - Ласковая Моя (DJ Prezzplay Cover Remix) (5:00)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3427DB988DD84044F4218B1DA08854C23F69F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120809   (801267) от 01.04.2017
-
-VA - Beatport Trance  Pack (01.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael Rods - Lost In Your World (Original Mix)  7:35
-02.  Luke Terry - Achelous (Original Mix)  6:37
-03.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46
-04.  Symsonic - Desert Rain (Original Mix)  7:11(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2D34B27FA0C97F8F6C3739F52AC8778FD35AA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

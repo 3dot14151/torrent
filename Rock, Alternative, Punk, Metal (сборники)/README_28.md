@@ -1,3 +1,177 @@
+###  Публикация: 1045830   (556719) от 25.08.2016
+
+Avantasia - All the Best (2015) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Away (4:36)
+ 02. Farewell (6:33)
+ 03. The Final Sacrifice (5:04)
+ 04. Neverland (5:01)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B8DC691A2862FB8934CA1522269D3119ACBAF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045903   (556673) от 25.08.2016
+
+W.A.S.P. - Until You Like It (2016) [MP3|320 Kbps] <Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mephisto Waltz.mp3
+ 02 - I Wanna Be Somebody.mp3
+ 03 - Fuck Like a Beast.mp3
+ 04 - School Daze.mp3(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79123ABA50F21A6DFA80EA385127434731CB4B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556729   (556427) от 12.06.2022
+
+Brothers Osborne - Compilation (2022) [MP3|320 Kbps] <Rock, Country>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Shaped Locket
+02. I Smoke Weed (Feat. Ashland Craft & Brothers Osborne)
+03. Shoot From The Hip
+04. Skeletons(   Читать дальше...   )Жанр: Rock, CountryПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA400B19DF7D7A8B4A9B1D10199C9951B03F20DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306563   (555561) от 05.06.2019
+
+VA - Friendly Reminder: Punk Rock Collection (2019) [MP3|320 Kbps] <Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Down Memory Lane - Xenophobic
+002. Sharp Sleeves - Old Soul
+003. Burn Burn Burn! - Fugue State
+004. Big Black - Pavement Saw(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 08:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CF4BEDBBD82C61F4CE7B26F01233D0B41C814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236388   (554456) от 17.07.2018
+
+VA - Behold In Now: Alternative Compilation (2018) [MP3|320 Kbps] <Rock Alternative, Independent Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554456.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Imagine Dragons - Whatever It Takes
+002. Sleaford Mods - Army Nights
+003. Hollerado - Born Yesterday
+004. Red Hot Chili Peppers - The Getaway(   Читать дальше...   )Жанр: Rock Alternative, Independent RockПродолжительность: 08:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DA7878061BB962B1057FBDE8DA84C31C64E746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308119   (554345) от 12.06.2019
+
+VA - The Best Road Trip Collection (2019) [MP3|320 Kbps] <Blues-Rock, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554345.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Corritore feat. Sugaray Rayford & Junior Watson - Trying To Make A Living
+002. Shane Dwight - Shakin'
+003. The Black Keys - Eagle Birds
+004. The Dead Weather - I Can't Hear You(   Читать дальше...   )Жанр: Blues-Rock, RockПродолжительность: 06:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A14D55F290754851ABC19927436D8ACF99A39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308998   (552930) от 17.06.2019
 
 VA - The Untouchables: Punk Rock Meeting (2019) [MP3|320 Kbps] <Punk, Rock Punk>
@@ -571,180 +745,6 @@ VA - Recursion Abyss: Metal Meeting (2019) [MP3|320 Kbps] <Metall, Power, Black>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:507A58E0BE66008C64743B4B84C6DFC8ED5F2AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156786   (526382) от 09.08.2017
-
-VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nickelback - Far Away
-002. Whitesnake - Is This Love
-003. Pierce the Veil - Dive In
-004. Saosin - The Silver String(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580987F028F325C775B9CF602B564B7F1E07602E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927831   (523892) от 14.08.2015
-
-Robert Plant - The voice of Led Zeppelin (Essential Collection) (2014) [MP3|265-320 кб/с]<Сlassic Rock, Hard Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tall Cool One [04:40]
-02. Kashmir [12:33]
-03. Gallows Pole [04:14]
-04. Let The Four Winds Blow [04:51](   Читать дальше...   )Жанр: Сlassic Rock, Hard Rock, BluesПродолжительность: 01:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D45F34D1F4AC43FCE20CC1869124A8A494E5DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559466   (523345) от 26.06.2022
-
-Константин Никольский - Коллекция (2022) MP3 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень тёплый и добрый рок. Красивые стихи с мудрым содержанием и крутой инструментал. У Никольского есть свой неподражаемый шарм с атмосферой лёгкой, приятной грусти. Сборник лучших композиций музыканта. Все треки взяты с фирменных CD изданий. Часть песен с оригинальным звучанием и есть ремастеры. Из всего материала выбрал наиболее грамотный звук. Приятного прослушивания. (   Читать дальше...   )01. Один взгляд назад
-02. Музыкант
-03. Мне только снится жизнь моя
-04. Спи, душа моя(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCCCC6942F041BB7CBC53052161EC904E2E5539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928199   (523089) от 15.08.2015
-
-VA - Легенды Нашего Рока (2015) [MP3|278-320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария - Тореро
-02. Чёрный кофе - Я так устал
-03. Мастер - Кресты
-04. Агата Кристи - как на войне(   Читать дальше...   )Жанр: RockПродолжительность: 05:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266C620B2594534C4C3141D729095966B69E4F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928370   (522537) от 16.08.2015
-
-Tumbleweed Wanderers - Collection (2012 - 2015) [MP3|320 кб/с]<Classic Rock, Indie Rock, Indie Folk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Longer Waiting
-02. Take It Back
-03. Roll With The Times
-04. Tired Of Wandering(   Читать дальше...   )Жанр: Classic Rock, Indie Rock, Indie FolkПродолжительность: 01:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CF8D96561EEB2519C5CAF35BB956FB28AA718E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928444   (522414) от 16.08.2015
-
-Rock Ballads - New Collection (3CD) (2000 - 2010) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - Thank You For Loving Me (05:10)
-02. Roxette - Milk And Toast And Honey (04:04)
-03. Bryan Adams - Inside Out (04:47)
-04. Lenny Kravitz - Again (03:49)(   Читать дальше...   )Жанр: Rock, Art Rock, Soft Rock, Blues RockПродолжительность: 03:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1137B1A969A77D2E9F8932B21A570F6C2951420
 ```
 
 https://mybot314.ru/tekegram_catalog/

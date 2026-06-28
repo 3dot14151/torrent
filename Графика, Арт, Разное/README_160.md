@@ -1,3 +1,55 @@
+###  Публикация: 1810595   (9259) от 05.08.2025
+
+Промты - SevenUnited LLC - 432 Midjourney Prompts for Aliens - 8015415 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 432 настраиваемых промтов Midjourney для инопланетян.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A3E339C4EFCBB6EC23F13AF57BBFA414279DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810762   (9130) от 06.08.2025
+
+Промты - SevenUnited LLC - 377 Midjourney Prompts for the 90’s - 6490687 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 377 настраиваемых промтов Midjourney для 90-х.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC823C5943B9DDC8B4CEA0628B9CEE7FEA7954F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810954   (9001) от 07.08.2025
 
 Промты - SevenUnited LLC - 396 Midjourney Japanese Art Prompts - 8704516 [TXT, JPG]
@@ -625,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C53427E68EC76224EC889D23E4E40B601F6C0A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784748   (3633) от 09.09.2025
-
-Обои - Eternal Mix Wallpapers Part 38 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECE0A448AB77F6F3F45520A9B01A5CA892CE45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817324   (3498) от 10.09.2025
-
-Картинки - Wallpapers Mix №1954 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококачественные обои в новом сборнике на ваш рабочий стол.
-Количество 435.Формат: JPGРазрешение файлов: 1680x1050 - 7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8840177E321E2D36D3CC1290EA989B5EE2609EBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

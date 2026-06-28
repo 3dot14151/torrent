@@ -1,3 +1,88 @@
+###  Публикация: 1373149   (882074) от 05.04.2020
+
+Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tracks + .cue] <New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Of Joy
+02. Magellan's Beat
+03. Sailing Away
+04. Your Lingering Touch(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362948   (879840) от 06.04.2020
+
+Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden Beauty (34:07)
+02. Kiss Good Night (35:20)Жанр: Ambient, Relax, HealingПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B47954BBE1A0FED73FAB5C4D9DD68B3B964E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176490   (879722) от 06.04.2020
+
+Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless]<NewAge & Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октава / Octave (05:21)
+Карнавал / Carnival (03:57)
+Легенда / Legend (06:39)
+Арена / Arena (04:11)(   Читать дальше...   )Производство: РоссияЖанр: NewAge & MeditativeПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D563EAE72E75702DDCDE25F575FA2285FAD5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 20005   (878168) от 07.04.2020
 
 Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
@@ -659,93 +744,6 @@ Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrosso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000891   (852107) от 29.03.2016
-
-John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Work Is Done
-02. Now the Day Is Over
-03. Dream Dance
-04. Goldberg Sleeps(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110628   (852095) от 03.03.2017
-
-Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Step (4:39)
-02. Between Oil And Water (4:55)
-03. Freeze (3:52)
-04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110624   (852093) от 03.03.2017
-
-Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Traditional Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink#1 (8:24)
-02. Pink#2 (6:14)
-03. Pink#3 (9:30)
-04. Grey#1 (11:07)(   Читать дальше...   )Жанр: New Age, Traditional ElectronicПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

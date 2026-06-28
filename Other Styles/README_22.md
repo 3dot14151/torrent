@@ -1,3 +1,119 @@
+###  Публикация: 1364472   (936391) от 03.03.2020
+
+Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Use Somebody (Piano Instrumental) (4:04)
+ 02. Firework (Piano Instrumental) (4:20)
+ 03. Fix You (4:11)
+ 04. Thinking Out Loud (Piano Instrumental) (3:26)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB2DA294991813E5999D5DE705A26CE5B74BEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364289   (936309) от 03.03.2020
+
+Felix Slovacek - World Melodies (2014) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Mio Babbino Caro
+02. Una Furtiva Lagrima
+03. Barcarolla
+04. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DE0960F1906C5E4336943345A2F619C708DC11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364323   (936259) от 03.03.2020
+
+Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C. Debussy - Svit luny
+02. P. I. Cajkovskij - Andante
+03. C. Saint-Saens - Samson a Dalia
+04. S. Rachmaninov - Vokalisa(   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364471   (936257) от 03.03.2020
+
+Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May It Be
+02. Ballroom Of Romance
+03. Granuaile's Dance
+04. Dulaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984495   (935463) от 11.02.2016
 
 NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
@@ -635,122 +751,6 @@ a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364916   (930399) от 07.03.2020
-
-VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nox, Krys Mach - Ancestral Circle
-02. Nox, Krys Mach - Navajo Pride
-03. Nox - Too Many Things to See
-04. Nox - Ancestral Circle(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094421   (929378) от 18.01.2017
-
-Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  A Lark in the Last Light of Day [00:04:46]
-02 -  As Seasons Change [00:04:19]
-03 -  Procession of Moon and Stars [00:05:42]
-04 -  The Stillness Before Dawn [00:05:42](   Читать дальше...   )Жанр: Celtic New AgeПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDBD563BD8B24A2E44BDABF941FDE2C6F2A4124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986657   (929076) от 15.02.2016
-
-Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
-02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
-03. Waah Yantee  11:04
-04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094237   (929052) от 18.01.2017
-
-Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic [5:43]
-02. Occulta Mysteria [5:23]
-03. Hypnosis [6:04]
-04. Lakota Myths [5:23](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
 ```
 
 https://mybot314.ru/tekegram_catalog/

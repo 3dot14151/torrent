@@ -1,3 +1,90 @@
+###  Публикация: 1207136   (780418) от 19.02.2018
+
+VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Adam Sobiech feat. Angel Falls  -  Disillusion (Original Mix)  5:58
+02.  DJ Schillings  -  I Remember The 90s (Original Mix)  3:26
+03.  Rheligie  -  Ardent Fever (Adip Kiyoi Remix)  5:38
+04.  Iris Dee Jay & Robert Holland feat. Erin  -  Faster (Original Mix)  6:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E83221E1790655608169B24428E2BE7DAFD312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207822   (780313) от 20.02.2018
+
+VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Square Moon  -  Event Horizon (Original Mix)  6:22
+02.  Sergei Vasilenko  -  Mysterious Voices (Original Mix)  7:51
+03.  Martins White  -  The Golden Age (Original Mix)  7:19
+04.  Nicola Maddaloni  -  The Journey (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F96138C9BF66874FD376942DD7445B34C71861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207718   (780303) от 20.02.2018
+
+Manuel Rocca - The Soul Healer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heat Of Love (feat. Charmy) (Original Mix)  7:30
+02.  Favourite Photograph (feat. Emily Richards) (Original Mix)  7:45
+03.  Caribe (Original Mix)  7:28
+04.  Brisa Del Sur (Original Mix)  7:27(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3612F44700FA0370A039DC99230E265152A0CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207729   (780101) от 21.02.2018
 
 VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
@@ -658,93 +745,6 @@ VA - Vocal Trance Hits 2016-02 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6410BA8A89B685621025BAFB2A9BD4DE87224842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125249   (768759) от 14.04.2017
-
-VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
-02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
-03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
-04.  Adip Kiyoi & Susie Ledge - Another Chance (Above & Beyond Club Edit)  3:44(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9F78812259C59ED58CB1CE630CDB0E79CD75F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213422   (768200) от 17.03.2018
-
-VA - Global DJ Broadcast: Top 20 March (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Markus Schulz -The New World (Mark Sherry Extended Remix)
-02.Giuseppe Ottaviani -Till The Sunrise (Extended Mix)
-03.Scott Bond -Red Line Highway (Factor B's Extended Back To The Future Remix)
-04.Jam & Spoon -Odyssey To Anyoona (Airwave Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1902429B0EB6144695371EE181DAF9446FF2EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213439   (768184) от 17.03.2018
-
-VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM - Guiding Star (feat Clare Stagg - LTN extended remix)
-02. Quench - Dreams (Nicholson's extended Cathedral remix)
-03. Cosmic Gate & Markus Schulz - AR (Patrick White extended remix)
-04. Jam & Spoon - Odyssey To Anyoona (Mr Sam Return Of The Phoenix Club remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A6A0C24D3A629CC13490E62F8301BE55562978
 ```
 
 https://mybot314.ru/tekegram_catalog/

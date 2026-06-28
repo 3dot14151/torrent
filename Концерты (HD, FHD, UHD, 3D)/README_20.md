@@ -1,3 +1,122 @@
+###  Публикация: 1297304   (604054) от 22.04.2019
+
+Квартирник НТВ у Маргулиса. Женя Любич (20.04.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604054.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске в гости к Евгению Маргулису пришла «русская француженка» Женя Любич. В России о ней узнали как об участнице французской музыкальной группы Nouvelle Vague: она с ними часто и много выступала как в Париже, так и за пределами Франции. В уютной обстановке певица исполнила свои композиции и поделилась интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D979DF521EA354E77E978539913EE3D5DF4C9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526176   (599057) от 23.07.2012
+
+Norah Jones - The BBC One Sessions (2007) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599057.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBC One представляет выступление Норы Джонс, состоявшеся 13 января 2007-го года в LSO St Luke's, London.01. Sunrise 
+02. Don't know why 
+03. Be my somebody  
+04. Thinking about you 
+05. Sinkin' soon 
+06. Cold cold heart 
+07. Wake me up  
+08. Come away with me 
+09. Not too late 
+10. The long way home (   Читать дальше...   )Жанр: Jazz, blues, soulПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806049   (598756) от 19.07.2014
+
+Elton John - The Million Dollar Piano (2014) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bitch Is Back
+02. Bennie And The Jets
+03. Rocket Man
+04. Levon(   Читать дальше...   )Жанр: Pop rock, piano rockПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631A794561F895E6A144D1CAB2A7DBAD8B6ACB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806196   (598665) от 19.07.2014
+
+Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chinese Democracy
+02. Welcome To The Jungle
+03. It's So Easy
+04. Mr. Brownstone(   Читать дальше...   )Производство: США |  Rock Fuel MediaЖанр: Rock, Hard Rock, Heavy MetalРежиссер: Керри АсмуссенПродолжительность: 02:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FBAD87FA9077C12E1F1495A3D9EFD20D5C7B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232656   (598063) от 25.06.2018
 
 Алые Паруса-2018. Выпускной бал в Санкт-Петербурге (2018) WEB-DL [H.264/1080p-LQ]
@@ -621,127 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75FE343907AACE2D40FC02AFEFD0F6E4F161FCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920752   (578630) от 23.07.2015
-
-Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный концерт группы Led Zeppelin на площадке O2 Arena в Лондоне, который посетили 18 тысяч зрителей из 20 миллионов желающих. Порядок песен (стартуют ребята символично с «Good Times Bad Times» – первой песни первого альбома 1969 года), освещение, работа операторов – здесь все подернуто духом реконструкции, но с искренним ощущением чуда. Никакие фильтры и ракурсы (   Читать дальше...   )01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Dick CarruthersПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0572313D529754EED468FCC899A64FC2A3967F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811614   (578406) от 10.08.2014
-
-Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Презентация альбома «Sub Mira» в клубе «Da:Da», Санкт-Петербург, 31.08.201301. Souls Connection
-02. Maiden Bright
-03. Phenomenon
-04. Double Twins(   Читать дальше...   )Жанр: Ethno-con-fusion, Trip-Hop, DowntempoПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC585EAF40B0B86B68F40FBCDF1F0C7E8BEA5F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526929   (578367) от 25.07.2012
-
-Rammstein - Live aus St. Petersburg (2012) BDRip 720p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Sonne
-03. Wollt Ihr Das Bett In Flammen Sehen?
-04. Keine Lust
-05. Sehnsucht
-06. Asche zu Asche
-07. Feuer Frei!
-08. Mutter
-09. Mein Teil
-10. Du Riecht So Gut(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 01:57:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360941   (576577) от 10.07.2011
-
-Stomp: Live (2009) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stomp has grown from its beginnings on the streets of Europe into an international sensation, with touring productions all over the world, and long running shows in London, Las Vegas and Broadway. This special performance brings together performers from the West End, New York and Vegas for the very first time, to Stomp's home town and the theatre where many of the routines were originated: Brighton Dome.
-
- ...Мы живем в мире разнообразных предметов, поэтому стучать можно по чему угодно. При этом звук от железа, пластика и дерева будет разный, и различное звучание даст музыку. Всякий городской шум, а особенно сочетание шумов, рождает неповторимый ритм, чью поэзию мы просто не замечаем, но она тем не менее существует. Если правильно взглянуть на вещи - простая уборка мусора превращается в поэму экстаза. Из этой идеи исходят авторы шоу "Stomp", сумевшие создать из надоевших горожанам издержек урбанистической среды остроумнейшее представление. Его основной прием - превращение в ударные инструменты любого (   Читать дальше...)Жанр: show, dance, drumsРежиссер: Люк Крессуэлл, Стив МакНиколасАктеры: Conroy, Melanie Joseph, Keith Middleton, Andy Patrick, John SawickiПеревод: не нуждаетсяПродолжительность: 1:49:29
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

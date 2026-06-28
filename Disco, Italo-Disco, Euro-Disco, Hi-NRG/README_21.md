@@ -1,3 +1,73 @@
+###  Публикация: 806970   (592042) от 23.07.2014
+
+VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Daddy Cool 3:28
+02. Precious Wilson - Hold On I'm Coming 3:33
+03. The Touch feat.Terence Trent D'Arby - I Want To Know (International Lady) 5:14
+04. La Bouche - Be My Lover 4:00
+05. No Mercy - Where Do You Go 4:31
+06. Far Corporation - Stairway To Heaven (Single Version) 3:59
+07. Meat Loaf - One More Kiss (Night Of The Soft Parade) 5:36
+08. Boney M. - No Woman No Cry 4:57
+09. Eruption - One Way Ticket 3:57
+10. La Bouche - Forget Me Nots 3:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECBE74429BB28712A38FB26615D65DBDB45FD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806973   (592016) от 23.07.2014
+
+VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [MP3|320 кб/с]<EuroDisco-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul (3:22)
+02. Modern Talking - You Can Win If You Want (3:46)
+03. Bonnie Tyler - Bitterblue (3:48)
+04. Blue System feat. Dionne Warwick - It's All Over (3:54)
+05. Blue System - Sorry Little Sarah (3:29)
+06. Touche - This Goodbye Is Not Forever (3:36)
+07. Millane Fernandez - Boom Boom (3:29)
+08. Isabel - Will My Heart Survive (3:01)
+09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
+10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: EuroDisco-PopПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30C231B4B14FC1B78DA7CC55EE2C17232206783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550759   (591637) от 12.05.2022
 
 Walter Murphy - Phantom Of The Opera (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -714,70 +784,6 @@ Space Project - Disco from Another Galaxy (1978) LP, Limited Edition [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EADB8BCBA8A6A70B6633EA26A80CB65EDEDC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302257   (582249) от 14.05.2019
-
-ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <Electronic, Downtempo, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Built The Pyramids (5:19)
-02. The Wall Of Sound (6:46)
-03. Neonlight Children (4:39)
-04. Aren't You God (6:24)Жанр: Electronic, Downtempo, Funk, DiscoПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810975   (581493) от 07.08.2014
-
-Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good (I Feel Fine) 4:51
-02. The Witch-Queen Of New-Orleans 3:31
-03. Little Rock 4:06
-04. Frough Your Eyes 4:07
-05. Shot In The Night 4:21
-06. Perfect Combination 3:12
-07. Never Give Up 4:00
-08. Storms Of Love 3:56
-09. Stand Up 3:47
-10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
 ```
 
 https://mybot314.ru/tekegram_catalog/

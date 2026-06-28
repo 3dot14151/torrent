@@ -1,3 +1,148 @@
+###  Публикация: 1871800   (1069930) от 18.05.2026
+
+Riffstone - Mythical Creatures (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Griffin (7:55)
+02. The Dragon (6:51)
+03. The Phoenix (6:53)
+04. The Hydra (8:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC40FA9D699DF3CD5CDF659527553EDCCB6AFCAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871991   (1069788) от 20.05.2026
+
+Jethro Tull - Under Wraps (2026) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069788.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 2026 Drums
+CD2 - Original Drums
+CD3 - 2026 Drums
+CD4 - Original Drums(   Читать дальше...   )Жанр: RockПродолжительность: 05:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90AE02B5569D8E42E76DE267D1CB84277BCA3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870761   (1069300) от 15.05.2026
+
+Barenaked Ladies - Disc One: All Their Greatest Hits (1991-2001) (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Apartment [0:03:22.03]
+02. Falling for the First Time [0:03:39.10]
+03. Brian Wilson (live) [0:04:44.67]
+04. One Week [0:02:48.68](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 01:13:31.773 (194 559 204 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E5AA4EC071078900F56D5CC5A6A1102436DDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869561   (1069174) от 11.05.2026
+
+Jane Wiedlin - Tangled (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069174.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Rain On Me	5:28
+2		At The End Of The Day	4:04
+3		Guardian Angel	4:38
+4		Flowers On The Battlefield	4:24(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72B3D862B695B3A5069AA8A22304482FB00365C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870254   (1069173) от 11.05.2026
+
+Return - Fourplay (1991) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069173.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Tell Me (That You Want Me To Stay) 4:12
+2		Having Fun 3:29
+3		All He Ever Wanted 2:57
+4		Still Waiting 3:04(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5F8FEE3607628912DDE10420CF8F599402AC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870276   (1069172) от 11.05.2026
 
 Rush of Fools - We Once Were (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
@@ -600,151 +745,6 @@ Ross Wilson - Dark Side of the Man (1989) [FLAC|Lossless|image + .cue] <Pop Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949836FAD407CA4626C139729A07D1FD914D2F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864818   (1064956) от 12.04.2026
-
-John Farnham - Anthology 1 (Greatest Hits 1986-1997) (1997) Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	– You're The Voice	5:02
-02	– Pressure Down	3:44
-03	– A Touch Of Paradise	4:44
-04	– Reasons	4:26(   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDE6434DB9ADC267589833E6E3DBB17D60B6A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864341   (1064691) от 
-
-Sheryl Crow - Tuesday Night Music Club (1993) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run, Baby, Run [0:04:53.10]
-02. Leaving Las Vegas [0:05:10.00]
-03. Strong Enough [0:03:10.12]
-04. Can’t Cry Anymore [0:03:41.33](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F5429CB2B092CF9837C586E83E71A8CCF9D35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864364   (1064659) от 
-
-VA - Classic Dad Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  R.E.M. - Losing My Religion (4:28)
-02.  Billy Idol - White Wedding (Pt. 1 / Remastered 2002) (4:12)
-03.  Bon Jovi - Wanted Dead Or Alive (5:11)
-04.  Alien Ant Farm - Smooth Criminal (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 02:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F886DB77194535B8ABD479BD83F2ADAAB0FF0AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864368   (1064657) от 
-
-VA - Dads Garage Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Offspring - The Kids Aren't Alright (3:00)
-02.  Creed - One Last Breath (3:59)
-03.  Papa Roach - Last Resort (3:20)
-04.  blink-182 - All The Small Things (2:51)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482A40BBC1AA4073B1FF3FB9ADB36239E6F946F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864260   (1064631) от 
-
-David Gray - Nightjar (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall in Love (04:45)
- 02. Money (03:47)
- 03. The Easy Way Out (03:28)
- 04. Nightjar (05:31)(   Читать дальше...   )Жанр: Rock, Folk Rock, Singer-SongwriterПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B042263968490BB7436565AEBF6D62DCC068DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

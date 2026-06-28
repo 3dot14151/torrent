@@ -1,3 +1,32 @@
+###  Публикация: 1251691   (415498) от 02.10.2018
+
+Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk, Art Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kam?
+02. Elegantiskai Sninga
+03. The Break-Up Blues
+04. Little Bird's Song(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Folk, Art Pop, Chamber PopПродолжительность: 00:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101099F9F98FC8B8A70FD5B261C7DF6F5D6783AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251642   (415492) от 02.10.2018
 
 VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
@@ -725,35 +754,6 @@ D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, род
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169899   (401430) от 29.09.2017
-
-Shania Twain - Now (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingin' With My Eyes Closed
-02. Home Now
-03. Light Of My Life
-04. Poor Me(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CCB96982A7D1E19B76CC4F50C007C9901B1D3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

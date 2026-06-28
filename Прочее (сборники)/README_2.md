@@ -1,3 +1,90 @@
+###  Публикация: 1863308   (1063478) от 04.04.2026
+
+Hanwave - Favorites Collection (2026) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love in Bus
+02 - Feel Me
+03 - I'm Sorry
+04 - Stay Tonight(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-Disco, OtherПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E7D71FA30FBE43358BA2606FC2FA4AAB0782B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863514   (1063422) от 04.04.2026
+
+VA - No Name Compilation Simply listen music Part 81 Other (2026) [MP3|320 Kbps] <Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dynave - Love in Youth
+02 - Hanwave - Me Quede Solo
+03 - Dynave - Painful Love
+04 - Marco - Midnight Fever(   Читать дальше...   )Жанр: Dance, OtherПродолжительность: 02:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAF46FF4177DD82408DE25BA11EBB395E85D35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863642   (1063299) от 05.04.2026
+
+VA - No Name Compilation Simply listen music Part 82 Other (2026) [MP3|320 Kbps] <Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smtve - Only You
+02 - Korgstyle Life - My Love for You
+03 - Sergey Chekalin - Spring Again
+04 - Aurora Night - Did to Me(   Читать дальше...   )Жанр: Dance, OtherПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A3E64351F14776005D4D3A6BDDBA08AE16B08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863964   (1063079) от 07.04.2026
 
 Ai - No Name Compilation Simply listen music Part 84 Just Cover (2026) [MP3|320 Kbps] <Cover, Pop, Dance, Other>
@@ -658,93 +745,6 @@ VA - Music News For Forum vol.164 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9ADFB1F0C460B3A07499B25BB8DF801B2237C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857193   (1059581) от 04.03.2026
-
-VA - No name compilation part 66 remixes (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Electronic, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Modern Talking - You're My Heart You're My Soul (Umideep Remix)
-02 - Savage - Only You  2026 (Voyage Remix)
-03 - Blue System - My Bed is Too Big (Reyvi Remix)
-04 - Modern Talking - Cherokee Highway (Voyage Remix)  2026(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Electronic, RemixПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB01E97F33C2ADE5483C38ECAD9FD0D67BFC8F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857353   (1059495) от 05.03.2026
-
-VA - Music - Pop vol.One (2026) [MP3|320 Kbps] <Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alena - Прощальный ответ (04:48)
- 02. Great Lion - Wellcome (Extended Mix) (05:29)
- 03. Ilya Fisherman - По чужим головам (04:03)
- 04. Lumen - Можно! (04:01)(   Читать дальше...   )Жанр: Pop, OtherПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68061A9FFCF4DB8BE988879BFC0EF4C77C7E68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857022   (1059319) от 04.03.2026
-
-VA - No name compilation part 65 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - DJ Calma - Echo
-02 - Imazee - Silent Night
-03 - Bellara - Forgive Me
-04 - DJ Calma - Cosmic Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B835932568EBBA21AB5BBE5AE3C8F1D8BA77C11
 ```
 
 https://mybot314.ru/tekegram_catalog/

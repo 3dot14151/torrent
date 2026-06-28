@@ -1,3 +1,29 @@
+###  Публикация: 965635   (675693) от 29.06.2016
+
+SolSuite Solitaire 2016 (2016) [Ru/En] (16.6) Repack KpoJIuK
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675693.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolSuite 2016 – крупнейшая, постоянно дополняемая коллекция пасьянсов (644 видов), самые популярные из которых - Spider, Klondike, FreeCell, Pyramid, Golf, Busy Aces, Canfield, Forty Thieves, Four Seasons, Carpet, Flower Garden, Rouge et Noir, Monte Carlo и многие другие. Имеет настраиваемый интерфейс и позволяет вести подробную статистику проведенных игр. Полностью (   Читать дальше...   )Тип издания: RepackРазработчик: TreeCardGamesЖанр: Карточные игрыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1911A98C733B709C79ECC4B0BDEB9C4C5F3FB065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018084   (675649) от 29.06.2016
 
 MechoEcho (2016) [En] (1.1) License GOG
@@ -645,32 +671,6 @@ Turner (2016) [En/Es] (1.5) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B56B8872E7EE452037E477E95AE672CDCDAAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923030   (562518) от 01.08.2015
-
-Pirate Jigsaw (2015) [En] (1.0) Repack ZEKE
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы окунетесь в романтику морских путешествий, попробуете найти сокровища пиратов и познакомитесь с экзотической красотой тропиков! Более 500 изображений высокого качества, продуманный игровой режим, удобные настройки, интересные задания и несколько часов геймплея. Отправляйтесь навстречу опасным приключениям на испанских галеонах, завладейте картой сокровищ, прогуляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: CreobitЖанр: Logic / PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2573EE767EBED030493263B433254ECD8B2EB6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 480896   (87599) от 10.04.2012
+
+Марк Дубровин | Иллюстрированный сборник идиом на 5 языках [1997] [DJVU]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фразеологические обороты (идиомы), являясь неотъемлемой частью любого языка, в значительной степени увеличивают его выразительность. Вместе с тем они представляют значительные трудности для изучающих иностранные языки. Данный сборник идиом предназначен для изучающих русский, английский, французский, испанский и немецкий языки. Однако, если вы не знаете ни одного языка, кроме своего родного, и этот язык — один из вышеперечисленных, вы сможете понять любую идиому на любом языке в этой книге: дословные переводы идиом на родной язык помогут вам. Идиомы выделены жирным шрифтом и расположены по диагонали, а их переводы — по горизонтали. При этом надо учитывать, что точное совпадение значения идиом в разных языках встречается не часто. Рисунки использованы в книге для того, чтобы передать вместе с переводом буквальное значение идиом.1997Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD758685BB108901049293FE06CEEBD70F93A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477884   (86455) от 04.04.2012
 
 С.П. Дугин | Английский язык за 42 урока [2010] [PDF]
@@ -660,33 +686,6 @@ This book provides theoretical and pedagogical perspectives on teaching speaking
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DEA239124294D738EFB83FEFE42AF614F6ADF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728680   (53982) от 08.06.2024
-
-Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (2023) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everything you need to master first-year English language essentials—clear explanations, tons of practice exercises, and NEW audio to improve your speaking and listening skills
-The most effective way to learn any new language is to practice, practice, and practice some more—and no other workbooks put as much emphasis on this as the Practice Makes Perfect series. (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

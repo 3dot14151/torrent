@@ -1,3 +1,32 @@
+###  Публикация: 907337   (639729) от 11.06.2015
+
+MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk About You (CD Version)
+ 02. All She Wants
+ 03. Last Party
+ 04. Good Guys(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4706170B4D4B3C2B4C142D0CA8F1645DD39FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907167   (639645) от 11.06.2015
 
 VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-Rock>
@@ -734,35 +763,6 @@ Philippe Renaux -  продюсер, автор и аранжировщик ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B1AA6F259AAD934391846D40E2849339650553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143930   (631630) от 20.06.2017
-
-Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
-1. Supersempfft - 1979 - Roboterwerke
-2. Supersempfft - 1981 - Metaluna
-3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

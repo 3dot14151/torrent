@@ -1,3 +1,32 @@
+###  Публикация: 1193425   (262136) от 21.12.2017
+
+Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make You Believe In Love (03:33)
+02. Please Don't Go (03:23)
+03. Next To Me (03:00)
+04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193646   (261957) от 22.12.2017
 
 Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
@@ -755,35 +784,6 @@ VA - 70s Relaxing Pop (2025) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7709954BA90E5CEA3E5560CF4C81188F6E03E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834453   (250588) от 05.11.2025
-
-Иван Дорн - dorndom (2025) [MP3|320 Kbps] <Pop, Soulful, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snob (05:19)
-02. Tic Tac (03:25)
-03. La Re (04:11)
-04. Dead Blogger (06:15)(   Читать дальше...   )Жанр: Pop, Soulful, FunkПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B110B2D13B9970C60C05B25C80BCF7D7E19C29
 ```
 
 https://mybot314.ru/tekegram_catalog/

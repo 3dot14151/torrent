@@ -1,3 +1,206 @@
+###  Публикация: 943454   (444614) от 05.10.2015
+
+Avicii - Stories (2015) [FLAC|image+.cue]<Dance, House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting For Love
+ 02. Talk To Myself
+ 03. Touch Me
+ 04. Ten More Days(   Читать дальше...   )Жанр: Dance, House, ElectronicПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C34EA52350C833CA4DEBD0B129ADEFCA50BA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164171   (443927) от 08.09.2017
+
+VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Koletzki - Some Old Loop Shit (Original Mix) 04:38
+02. Christian Prommer, Adriano Prestel - Tin Man (Rj Remix) 04:50
+03. Andrey Exx & Hot Hotels - Dark Beat (Original Mix) 05:44
+04. Stu Patrics - Someday (Miguel Campbell Remix) 04:49(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 03:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98075B05E96DE99437E9664CD9D0C96D57CB1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062224   (442311) от 13.10.2016
+
+Brando Lupi - Sleeping World (2015) [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Tech, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frame Of Light (09:13)
+02. Liquid Garden (08:21)
+03. Overload (07:18)
+04. Mutant Phase (07:07)(   Читать дальше...   )Жанр: Techno, Psy-Tech, AcidПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB31047FA4FB912BF6A7669599B2301DADA68EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248428   (442253) от 20.09.2018
+
+The XX - Remixes (2018) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Downtempo, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. VCR (Four Tet Remix) (8:38)
+ 02/10. Chained (John Talabot and Pional Blinded Remix) (8:33)
+ 03/10. Reconsider (Jamie xx Edit) (5:32)
+ 04/10. Sunset (Jamie xx Edit) (6:18)(   Читать дальше...   )Жанр: Deep House, Tech House, Downtempo, MinimalПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA261D099B7B6C5B201D544D8B0E8ECEED81F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248926   (440186) от 21.09.2018
+
+Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss My Lips (3:33)
+ 02. Dripping Wet (3:25)
+ 03. Do Your Thing Girl (3:18)
+ 04. Body (3:32)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062651   (440104) от 14.10.2016
+
+VA - Armada - Amsterdam Dance Event (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mokita - Monopoly [03:26]
+02 Disco Killerz - Stellar (Morgan Page Remix) [03:30]
+03 Kav Verhouzer - Get What You Came For [03:15]
+04 Julian Jordan - A Thousand Miles [03:15](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8464E3128C737DF6FF94F6C998A83D58CB475658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323084   (440040) от 02.09.2019
+
+Shadowax - Nikolai Reptile (2019) трип [FLAC|Lossless|WEB-DL|tracks] <Bassline, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikolai Reptile (03:36)
+ 02. Ochen (04:50)
+ 03. What About Me (04:53)
+ 04. Mortal Talking (04:25)Жанр: Bassline, Techno, MinimalПродолжительность: 00:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98CD96A25130754FB72CF51A6544B9061783899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248898   (440036) от 21.09.2018
 
 C418 - 72 Minutes of Fame (2011) [FLAC|Lossless|tracks + .cue] <House, Breakbeat, Drum n Bass>
@@ -539,207 +742,6 @@ VA - Nine Years Of Techno: Selected by Diarmaid O Meara (2019) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26FBD903B138F50A93AD2CF1063F99BFF7115C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324088   (429794) от 07.09.2019
-
-VA - Nine Years Of Techno: Selected by Anderson Noise (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii - Malfunction Manipulation (The Lady Machine Remix) (5:53)
-02. Anderson Noise - User Error (Ken Ishii Remix) (6:19)
-03. Energun - Curve Against Direct (6:34)
-04. Chinanski - Industry Standard (8:46)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECEDE66D325BD1CF6F9086B75A054E624BAB913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324080   (429792) от 07.09.2019
-
-VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii & Submerge - Twitched (Submerge Remix) (7:27)
-02. Lucas Freire - Organ Pad (7:03)
-03. Sam Insecton - Dragonfly (6:44)
-04. Ken Ishii - Malfunction Manipulation (Funk D'Void Remix) (7:19)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC8E7F55829EE1491503B02E539D0066E49E083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571795   (429666) от 23.08.2022
-
-VA - Summer Compilation 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kebin van Reeken -  Sound Leak  (7:27)
-02.  FiveP -  Running With You  (6:50)
-03.  Home Shell, Olven -  Shaman  (6:26)
-04.  L E N K E -  Revelation  (7:23)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC16488B1E8395324C95DA063BF7BFF11761D028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064309   (428366) от 19.10.2016
-
-VA - Mixmag Germany Presents Dantze (Curated by Nicone) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moosefly – Ohmagine (6:47)
-02. Autotune – Revolution (Ryan Mathiesen Interpretation) (7:07)
-03. Sid Le Rock – Boulder Holder (6:40)
-04. Stefan Mint & Leman & Dieckmann – Mayan (Jonas Saalbach Remix) (7:53)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC68063C141E4BC4C29C91EE6AFF3714BBE98EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250298   (427183) от 27.09.2018
-
-VA - Mark Slee plays 7v (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikita Great – Russwans (06:59)
-02. Pablo Bolivar & Ben Preisinger – Rainy Dawn Lights (08:12)
-03. Pablo Bolivar – Vibrations (06:42)
-04. Information Ghetto – Romantic Balance (07:57)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 02:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273EF2692265FBB40B61786C48E89EF61FB33BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166095   (426918) от 16.09.2017
-
-Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/02. Lovemachine (Original Mix) (7:54)
- 02/02. Lovemachine (Re.you & Pleasurekraft Remix) (7:43)Жанр: Deep House, Tech HouseПродолжительность: 00:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246E7D4E488E3A6596BEC45D117BB308120C54E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166199   (426655) от 16.09.2017
-
-VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Midnight - Vampires (Vintage & Morelli remix) (07:00)
-02. Marsh & Marcelle Antunes - Summit (extended mix) (05:24)
-03. Eleven Five - Keep My Heart (Bonus Track) (05:54)
-04. LaMeduza & Stendahl - Different You (Approaching Black vocal remix) (04:59)(   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE237352081759B258DB09A3498BCD9946DCB08
 ```
 
 https://mybot314.ru/tekegram_catalog/

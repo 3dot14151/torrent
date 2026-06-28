@@ -1,3 +1,223 @@
+###  Публикация: 543649   (496436) от 05.09.2012
+
+VA - Русский Avto Club Сентябрь (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пашуля - Ты и я (Fidel Wicked Radio DFM)
+02. Nikita - 20-12 (DJ Sergey Fisun Remix)
+03. Юлия Савичева - Москва-Владивосток (Rodion Gordin 2012 Swedish Refix Radio)
+04. Алисия & Влад Корса - Здесь и сейчас (Harisma Remix)
+05. Quest pistols - Ты так красива (DJ Vengerov Remix)
+06. Geegun & Жанна Фриске - Ты Рядом (DJ Stylezz Remix)
+07. Вика Гранд - Я Не Боюсь (Movskii & Karasev Remix)
+08. Тамерлан и Алена Омаргалиева - Hey Yo (DJ Amor Remix)
+09. Герои - Мое маленькое глупое сердце (Orehov Lite Remix)
+10. Настя Любимова - Что такое любовь (DJ Solovey Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37055D8463BC0280ABEE1C6E238E6BDF0420160C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817975   (496359) от 10.09.2014
+
+VA - Billboard Hot 100 (06-09-2014) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496359.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнее время  американский журнал Billboard стал публиковать свои  HOT 100 на неделю раньше, поэтому не удивляйтесь, что сегодня у них на календаре 6 сентября. Billboard Hot 100 фактически является официальным хит-парадом США — самого крупного национального музыкального рынка в мире.
+С 2003 года в параде учитывается не только популярность синглов, но и ротация (   Читать дальше...   )01. Taylor Swift - Shake It Off  (3:39)
+02. Nicki Minaj - AnacondaЖанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BAD3A50D9FA26D5BC1E18B5631136245831532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543415   (496323) от 05.09.2012
+
+VA - Лучшая 100ка Record: Взорви танцпол 5 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amsterdam Avenue And Deepside Deejays - Gipsy Romano (Dj Edo Ossepyan Ft Dj Yogurt Remix)
+02. Michael Canitrot Feat. Polina - Right On Me (Tv Noise Remix)
+03. Gathania - Nobody's Breaking Me (Radio Edit)
+04. Luigi Lusini & Starchaser Feat. Molly Bancroft - All I Want (Radio Mix)
+05. Aroma - Zorba's Dance (Sirtaki) (Rico Bernasconi Remix)
+06. David Ferrera - Give Me Love Tonight (Club Mix)
+07. Tacabro - Mujeres (Radio Edit)
+08. Fly Project - Musica (Radio Edit)
+09. Kelly Clarkson - What Doesn't Kill You (Stronger)
+10. Da Brozz - Move On Baby (Radio Edit Instrumental)(   Читать дальше...   )Жанр: ClubПродолжительность: 06:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECFC1A7F8626D57107477029A1B35F3D7E4076C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936234   (496295) от 11.09.2015
+
+VA - Hi-NRG Dance Classics (2 CD) (2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flirts - Passion (Special Remixed Disco Version) [09:01]
+02. Fancy - In Shock [05:40]
+03. Joe Yellow - Easy Lovers (Mix Edit) [05:42]
+04. Eartha Kitt & Bronski Beat - Cha Cha Heels (Extended Mix) [06:41](   Читать дальше...   )Жанр: Hi-NRG, Italo DiscoПродолжительность: 02:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8F5D7058D10437054C6A19CCE591CC576ADC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243005   (496092) от 25.08.2018
+
+VA - The Official UK Top 40 Singles Chart 24.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Ezra - Shotgun (03:22)
+02. Drake - In My Feelings (03:39)
+03. Benny Blanco/Khalid/Halsey - Eastside (02:55)
+04. Calvin Harris, Sam Smith - PromisesЖанр: Pop, Dance, OtherПродолжительность: 02:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E9085A5508506343DEA1BBAFBF4FCE6624E4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543526   (495966) от 05.09.2012
+
+VA - Сборник медленных хитов Vol.12 (2012) [MP3|96-320 кб/с]<Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriano Celentano - Uomo
+02. Carrie Underwood - Who Are You
+03. Alyssa Reid - Alone Again
+04. Lene Marlin - It's True
+05. Blue - U Make Me Wanna
+06. Keane - Strangeland
+07. Eros Ramazzotti - Nomadi D'Amore
+08. Patricia Kaas - Hotel Normandy
+09. Morten Harket - Quiet
+10. Westlife - Why Do I Love You(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 07:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D98AB0CAAAE7362B00441557ECF7D3E844409A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242946   (495907) от 25.08.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 24.08.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Dua Lipa - One Kiss 3:35
+02. David Guetta feat. Sia - Flames 3:15
+03. Alvaro Soler - La Cintura 3:25
+04. Anton Powers - Heart For Sale 3:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C2BDE8157302BDF864EC0B07D4DB0F59051B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157856   (495692) от 14.08.2017
 
 VA - Girls Romances Vol.2 (2017) 4СD [MP3|320 Kbps] <Pop, RnB>
@@ -593,215 +813,6 @@ VA - Зайцев.Нет: Лучшие Новинки Августа (2017) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36664B18AF38FAD808AC41B1F78A5BC88FBE7C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565573   (490335) от 25.07.2022
-
-VA - В машине с музыкой Vol.290 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Door  - Смотри В Глаза (03:16) 2022
-02. Madison Beer  - I Have Never Felt More Alive (03:21) 2022
-03. Группа Журавли  - Баю Бай (03:21) 2022
-04. Лисицын  - Карамельный Мир (02:29) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA21B241FD394E46F7F1AFC5C2B3320151A72246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565831   (490329) от 25.07.2022
-
-VA - Music News vol.205 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490329.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bakhtin - Королева (02:17)
- 002. Amirchik - Эта Любовь (02:23)
- 003. Ampris feat. Nik Taylor & Lulux - Backstreet Boy (02:13)
- 004. Anais - 44 (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E55F87734E71479EAF127018431DEE22D946F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563861   (490324) от 25.07.2022
-
-VA - В машине с музыкой Vol.286 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соланж  - Простить (03:25) 2022
-02. Ed. Breezy - Рафинад (02:17) 2022
-03. Ari Sam Vii - Звони В Такси (03:42) 2022
-04. Mahmut Orhan Feat. & Selin - Donmem Ben Sana (03:26) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F0D56562DEEC91CB70032C29D491920421159F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243557   (489973) от 28.08.2018
-
-VA - Зайцев.нет Музыкальные новинки 4 Август 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cher - SOS 3:22
-02. FTampa, Tom Kray & Oriente - Vibe Boa 3:39
-03. Nicky Romero & Stadiumx feat. Matluck - Rise 3:21
-04. DJ Kapral feat. Osya - Ты не верь слезам 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B1C0B4BBF5A591B0EC34324ADD76A57062FED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243570   (489972) от 28.08.2018
-
-VA - Kiss FM: Top 40 Август 2018 [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Platon feat. Joolay - Melt 3:48
-02. Vanessa Da Mata - Ai Ai Ai (Felguk & Cat Dealers Remix) 3:20
-03. Mahmut Orhan & Colonel Bagshot - 6 Days (Malyar & Beat Boy Radio Mix) 3:25
-04. Post Malone feat. 21 Savage - Rockstar (Ilkay Sencan Remix) 4:10(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 02:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736A8755D1507E759528AA3B2E72F5059D538AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243396   (489832) от 28.08.2018
-
-VA - The Best World Ballads Vol.35 (2018) [MP3|320 Kbps] <Pop, Rock, Blues, Rap, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489832.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paloma Faith - Love Me As I Am
-002. Shawn Mendes - Roses
-003. Miss Li - Is This The End
-004. The Neighbourhood - Nervous(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, RnBПродолжительность: 15:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A86513622E88933E0F5A681445B6034124DA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544680   (489621) от 08.09.2012
-
-VA - Absolute Club Autumn (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miami Deejays vs. Stee Wee Bee - Undress On The Dancefloor (Radio Version)
- 02. Chabud – Just A Few Dollars (MicRoCheep & Mollo Remix)
- 03. Michel Telo feat. Pitbull - Ai Se Eu Te Pego (Cahill Radio Edit)
- 04. David Folkebrant - Unite (Original Mix)
- 05. Sebjak - Follow Me (Vocal Radio Edit)
- 06. Dino Lenny vs Hardrive - I Wanna Be Like Talking Heads (Pirupa Main Mix)
- 07. SoulDeep Inc. & Jerry C King Ft. Harry Dennis - Grey Afternoon (Sterling Void Midnight Clubber's Straight Edit)
- 08. DNS Project feat. Madelin Zero - If I Just Listened (Original Mix)
- 09. Adrima - Loving You (Adrima Single)
- 10. Markus Schulz & Ferry Corsten - Loops & Tings (Extended Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25E3935BE083F740A85198F8310300BCB143A66
 ```
 
 https://mybot314.ru/tekegram_catalog/

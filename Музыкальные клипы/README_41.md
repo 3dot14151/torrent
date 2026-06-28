@@ -1,3 +1,110 @@
+###  Публикация: 1769004   (32721) от 28.12.2024
+
+Юрий Сучков - В лесу родилась ёлочка (2024) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: drova 3 studioЖанр: Pop-RockПродолжительность: 00:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD2D05490848DE831555ACBF0FA3D7487AC8968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716139   (29259) от 30.01.2025
+
+Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник всех официальных клипов группы за шестую главу их творчества.Производство: Германия, Швеция, Бельгия, Канарские островаЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Felix Aaron, Ben Baumgarten, Patric Ullaeus, Ben Baumgarten, Dany Wild, Philip Herbort, Paul GerwienУчастники: H.P. Baxxter, Michael Simon, Sebastian SchildeПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF622833D6B6A6ECCAF41EA1AE8A025E3EC135BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713761   (29258) от 30.01.2025
+
+Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник всех официальных клипов группы за пятую главу их творчества.Производство: Германия, Австрия, ЯпонияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Paul Gerwien, Sebastian Therre, Julius Haas, Dany Wild, Dimitri Janssen, Madse KrivokutyaУчастники: H.P. Baxxter, Michael Simon, Phil SpeiserПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0620321A7B16EA5AE6957E0A5CA738F7811C1E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769768   (29119) от 31.01.2025
+
+РОМ – "Лишние рты" (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монолог зарубежной работницы
+
+Отца все нет, а скоро ночь…
+Гудит метель в трубе холодной.(   Читать дальше...   )Жанр: РокПродолжительность: 00:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6930E68398B3AA17529D297AF2F849CF371B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778237   (28242) от 08.02.2025
 
 Полина Гагарина – Танец перед зеркалом (2025) WEBRip [H.264/1080p]

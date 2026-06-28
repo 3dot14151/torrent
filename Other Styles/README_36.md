@@ -1,3 +1,125 @@
+###  Публикация: 310267   (837216) от 18.03.2011
+
+The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanna's theme [02:08]
+02. Escape 700 [05:16]
+03. Chalice 1 [00:47]
+04. The devil is in the details [03:22]
+05. Map sounds - Chalice 2 [00:15]
+06. The forest [01:07]
+07. Quayside synthesis [01:21]
+08. The sandman [01:45]
+09. Marissa flashback [02:44]
+10. Bahnhof rumble [02:37](   Читать дальше...)Жанр: Techno, Big-BeatПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A73D1528F265B578663D7C89EF74FE6F06C5C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004607   (836890) от 07.04.2016
+
+Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude and Pursuit
+02. Descent to Fortress
+03. Forbidden Dream
+04. Kick Fight(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004663   (836786) от 07.04.2016
+
+Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantos I
+02. Cantos II
+03. Cantos Profanae
+04. Cantos IV(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004600   (836540) от 07.04.2016
+
+Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836540.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Der Profi: Chi mai    05:06
+02. The Untouchables: Ness Family Theme    03:22
+03. Der Maulwurf: Marche En La    03:02(   Читать дальше...   )Жанр: Classical, Stage & Screen, InstrumentalПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379339   (836391) от 01.05.2020
 
 Сергей Ильинов - Fantasy (1996) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
@@ -628,122 +750,6 @@ Mgzavrebi / Мгзавреби - PROстранства (2015) [WavPack|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0334860B18F1D5EBA70C568FDFFF0F8712C0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114433   (831675) от 15.03.2017
-
-Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Pacific (00:36)
-02. The Beach (01:28)
-03. Project Monarch (02:02)
-04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B967794B2AEAD2C7D0BA2557126E0B8B5687BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380275   (831572) от 04.05.2020
-
-Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Namaste 04:10
-2. Evocación 06:21
-3. Caminante del cielo 05:20
-4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380592   (831567) от 04.05.2020
-
-Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 Main Theme
-02. Thrill of Nature
-03. Dark Force in Motion
-04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380230   (831564) от 04.05.2020
-
-Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Camelot 05:06
-2. Reflejos de luna 05:14
-3. El ritmo de la luna 05:48
-4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,168 @@
+###  Публикация: 1510391   (791462) от 16.11.2021
+
+VA - Mediterraneo 4 by Billy Esteban (2021) [AAC|~331 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe De Anatolia, Bob Zopp - Barceloneta Beach (4:23)
+02. ThroDef, Michalis Koumbios, Thomas Konstantinou - Kos (4:34)
+03. Cafe De Anatolia, Billy Esteban, Alex Mihalakis - Halkidiki (6:38)
+04. Cafe De Anatolia, Bob Zopp - Gothic Quarter Street Music (5:50)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398311366EBA45320AC57B02028C84F4CCF96CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510393   (791460) от 16.11.2021
+
+VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
+02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
+03. Brass, Alessio Ventura, Dario Benedetti - Ordinary World (Cover) (6:12)
+04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513BE017AB8601E6F115A62B1AEBD8336465F49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510295   (791459) от 16.11.2021
+
+Оружейный барон / Lord of War (2005) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители братьев Орловых, старшего Юрия и младшего Виталия, покинули Украину и обосновались в Америке, на Брайтон-Бич, где открыли маленький ресторанчик. Дети же не рвались идти по родительским стопам. Юрий, раздумывая, чем заниматься, пришел к выводу: самое выгодное — торговать оружием. Потому что в мире, переполненном агрессией, оружие никогда не бывает лишним. (   Читать дальше...   )Производство: Франция, Германия, США / Entertainment Manufacturing Company, VIP 3 Medienfonds, Ascendant Pictures, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, драма, криминалРежиссер: Эндрю НикколАктеры: Николас Кейдж, Бриджет Мойнэан, Джаред Лето, Шейк Тухманян, Жан-Пьерр Ншанян, Джаред Бурк, Эрик Уйс, Дэвид Шамбрис, Стюарт Морган, Джаспер ЛенцПеревод: Дублированный, двухголосый профессиональный, авторский одноголосыйСубтитры: русские, английскиеПродолжительность: 02:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9172CFF0043C3D9292CDA14FD7682D3BBA0C39B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510454   (791454) от 16.11.2021
+
+Fancy - Locomotion (2021) [AAC|~336 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Voice In The Dark (4:00)
+02. Die For You (3:14)
+03. Fools Cry (3:16)
+04. Pretty Woman (2:53)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC25FDBCF28E80B5BC660C80E301682926F5F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201799   (791437) от 26.01.2018
+
+Чудо-Юдо  (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791437.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некотором царстве, в некотором государстве жил-был Царь Еремей с тремя сыновьями. Был он занят целыми днями важнейшим государственным делом — диктовал мемуары о своих несуществующих подвигах. И вот однажды, средь бела дня обнаружилось на границе Царства чудище драконьей породы, а проще говоря, Чудо-Юдо. И послал Царь сыновей чудище это победить и славу царского (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, фэнтезиРежиссер: Артем ЛукичевАктеры: Антон Макарский, Ирина Медведева, Наталия Медведева, Александр Пожаров, Людмила Артемьева, Федор Добронравов, Иван Добронравов, Диомид ВиноградовПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8756AC70CD56D9F3E9DF8B5CBFC3CA6981ECEAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510238   (791324) от 16.11.2021
+
+Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: фэнтези, боевик, комедия, приключения, фантастикаРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВПеревод: Дублированный, профессиональный многоголосыйСубтитры: русские, украинские, английскиеПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B3B9C99F5E97CE6E18CBC66ED3DD787EFB9F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387628   (791149) от 02.06.2020
 
 Бог грома / Mortal (2020) WEB-DL [1080p] ATV3
@@ -536,177 +701,6 @@ VA - Best of Green Hill Music: The Orchestral Collection (2021) [AAC|~337 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B307AB77AA13FDA6CB12E029A4418B7EF53F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510632   (790330) от 18.11.2021
-
-Little Mix - Between Us (Deluxe Version) (2021) [AAC|~317 Kbps] <Pop, R&B>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shout Out to My Ex (4:06)
-02. Black Magic (3:32)
-03. No (3:03)
-04. Touch (3:33)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2949B8BB64162E6478D361828F2130C27BC5D8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510881   (790275) от 18.11.2021
-
-А теперь нечто совсем иное / And Now for Something Completely Different (1971) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый полнометражный фильм «Монти Пайтон» - творческого содружества британских актеров, сценаристов, режиссеров и художников. В сущности, фильм представляет антологию скетчей, полных черного юмора, которые были впервые показаны в легендарной телевизионной серии «Летающий цирк» на английском телевидении.Производство: Великобритания / BBC Television Centre, Python (Monty) Pictures LimitedЖанр: комедияРежиссер: Йен МакНотонАктеры: Грэм Чепмен, Джон Клиз, Терри Гиллиам, Эрик Айдл, Терри Джонс, Майкл Пэйлин, Кэрол Кливлэнд, Конни Бут, Льюис Александр, Родни КардиффПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: русские, английскиеПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93D8772E8C301FBD0A58EEB178BB2CDFF751841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510629   (790268) от 18.11.2021
-
-Destiny's Child - Survivor (2001) [AAC|~336 Kbps] <R&B, Funk / Soul, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Independent Women, Pt. 1 (3:42)
-02. Survivor (4:14)
-03. Bootylicious (3:28)
-04. Nasty Girl (Album Version) (4:18)(   Читать дальше...   )Жанр: R&B, Funk / Soul, PopПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0ADD23006560FEA27413D4B09D733CF48049E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510640   (790220) от 18.11.2021
-
-VA - New Horizons: Young Stars of South African Jazz (2020) [AAC|~338 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benjamin Jephta Quintet - Evolution, Pt. 2 (3:30)
-02. Thandi Ntuli - Cosmic Light (6:16)
-03. Mabuta, Reza Khota - Slipstream (3:07)
-04. Lwanda Gogwana - Maqundeni (1:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2D402397B1F04315B0843C6F422494137B3206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510645   (790216) от 18.11.2021
-
-VA - New Horizons: Young Stars of South African Jazz, Vol. 2 (2021) [AAC|~338 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thembelihle Dunjana - Pressin' On (2:42)
-02. The SN Project - Afrikanization (5:44)
-03. Sisonke Xonti - Sinivile (6:31)
-04. Muhammad Dawjee, Siphephelo Ndlovu - Otherness (6:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1855A5BE2AB01FA869A2ECD54EC91616EA86F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510831   (790214) от 18.11.2021
-
-Adele - 30 (2021) [AAC|~290 Kbps] <Pop, Soul, Vocal Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers by Nature (3:02)
-02. Easy on Me (3:45)
-03. My Little Love (6:29)
-04. Cry Your Heart Out (4:15)(   Читать дальше...   )Жанр: Pop, Soul, Vocal JazzПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280F1BB9615FA48DBBEE9C4B1A44ADCA51FB559C
 ```
 
 https://mybot314.ru/tekegram_catalog/

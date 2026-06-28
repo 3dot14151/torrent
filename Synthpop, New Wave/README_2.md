@@ -1,3 +1,32 @@
+###  Публикация: 1507879   (797971) от 07.11.2021
+
+VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - MIR (5:34)
+02. Soulstring - Gagarin (5:50)
+03. Ionov - Spacewave (3:16)
+04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153F7C9F18ED6C609F6F8F75A1191259B9E57A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385305   (797810) от 24.05.2020
 
 Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <Electronic, Synth-pop>
@@ -717,35 +746,6 @@ Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586A39AE1E680DCF7DFF96C4ABC1FC9E0C0EE507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215579   (757933) от 26.03.2018
-
-Peru - 7 Studio Albums (1981-1993) [MP3|320 Kbps] <Electronic, Synth-pop, Ambient, Electro, Space>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757933.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Голландской электронной группы Peru началась в 1979 году вместе с Peter Kommers и Ruud van Es, давших названию группы первые слога своих имен. В ближайшее время в состав вошли: Rob Rapen и Jos van de Dungen. Три члена группы параллельно выходили под названием Nova, (так-же есть в клубе)Список альбомов:
-1981 - Constellations
-1981 - Macchu Picchu
-1983 - Continents(   Читать дальше...   )Жанр: Electronic, Synth-pop, Ambient, Electro, SpaceПродолжительность: 05:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC4A2D4DA9E316BB8980CA71F8100BE3EB3EEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1378534   (846519) от 25.04.2020
+
+Bones & Drew The Architect - DamagedGoods (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DamagedGoods [01:22]
+02. CharcoalHearts [01:54]
+03. PvP [02:19]
+04. CrossDissolve [02:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB88C152EB7DD65AF6BC032EBC13296EB70A934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380048   (835900) от 01.05.2020
 
 Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:254EB8A27E01F81DB9680C0360D0FC1805D5C5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136470   (674489) от 22.05.2017
-
-Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neva Left (5:07)
-02. Moment I Feared (feat. Rick Rock) (2:27)
-03. Bacc In Da Dayz (feat. Big Tray Deee) (3:49)
-04. Promise You This (2:51)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071218B731360372EBD2F62DB606AFF880C06EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1297350   (603574) от 23.04.2019
+
+Technimatic - Through the Hours (2019) [FLAC|Lossless|WEB-DL|tracks] <Jungle, Drum'n'bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Past, Present, Future (00:59)
+02. Recurring Dream (04:20)
+03. Sometimes (04:32)
+04. The Nightfall (feat. Jono McCleery) (04:30)(   Читать дальше...   )Жанр: Jungle, Drum'n'bassПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0345FD89CA2987AF77B32351F9353352117CE5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298999   (601603) от 29.04.2019
 
 Painstatic - The Unknown: 1 Year Edition (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
@@ -705,35 +734,6 @@ Naibu - Again / Uncalled (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37326FDFB87F45FAC4683C934FBC118B6CBEDBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949447   (376390) от 23.10.2015
-
-Infected Mushroom - Friends On Mushrooms (Deluxe Edition) (2015) [FLAC|tracks+.cue]<Psy-Trance, Dubstep, Electro House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infected Mushroom - Kafkaf (5:37)
-02. Infected Mushroom - Bass Nipple (4:54)
-03. Infected Mushroom feat. Savant - Savant on Mushrooms (6:18)
-04. Infected Mushroom - Kipod (6:55)(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D0465326B700722ACB13E78EB9FF1301F4A811
 ```
 
 https://mybot314.ru/tekegram_catalog/

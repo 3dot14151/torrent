@@ -1,25 +1,25 @@
-###  Публикация: 1189654   (269337) от 07.12.2017
+###  Публикация: 1189260   (271212) от 05.12.2017
 
-Дима Билан - 12 альбомов, 4 сингла (2003 - 2017) [MP3|320 Kbps] <Pop>
+Валерия - К солнцу (2017) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2003 - Я ночной хулиган
-2004 - На берегу неба
-2006 - Время река
-2008 - Против правил(   Читать дальше...   )Жанр: PopПродолжительность: 12:36:10
+1. Я живу
+2. В твоём мире
+3. А4
+4. Бегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8793D587AE856E092A3C6C70077F18F54CA6FFE
+magnet:?xt=urn:btih:543C61CC2B4B171AF2B46765EDB19FA99C924719
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,234 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338352   (269306) от 15.11.2019
+###  Публикация: 1189200   (271049) от 05.12.2017
 
-VA - 110 Hits 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+Joe Dassin - La Selection (Best Of) 3CD (2016) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Les Champs-Elysees
+02. Le dernier slow (Blu)
+03. Excuse Me Lady(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266398   (270961) от 01.12.2018
+
+VA - Top Of The Pops '1980 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собственно, вот мы и добрались до 80-х. Другое десятилетие, другие вкусы, другая музыка...
+Этот список треков является хронологическим списком популярных песен 80-х, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
+Эти программы (   Читать дальше...   )CD1:
+01. Adam & The Ants - Antmusic  (3:38)
+02. Dexy's Midnight Runners - Geno  (3:27)
+03. The Jam - Going Underground  (2:53)(   Читать дальше...   )Релиз состоялся: 31.10.2017Жанр: 1980s, pop, rockПродолжительность: 03:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF49B112FD1808CDB38DC6E251C9911CF7363057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311382   (270824) от 01.12.2018
+
+Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270824.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1977 году альбом был издан тиражом в 40 тыс экземпляров. Песня "Sing, Sing A Song" врывается в хит-парады Голландии, Бельгии, Швейцарии и Германии, весь первый тираж альбома расходится за 5 дней. После этого было принято решение выпустить еще 170 тыс. копий.
+Но Кену не суждено было об этом узнать, т.к. буквально через полтора месяца после выпуска альбома (   Читать дальше...   )01. You're Burning
+02. Ma Cherie, Mon Amour
+03. Don't Cry, My Baby
+04. Do It(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399025D0D9212E2E497447ECFC572101E78871B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338331   (270615) от 14.11.2019
+
+VA - The #1 80s Love Album (2019) [MP3|320 Kbps] <Pop, SoftRock, Other>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270615.jpg" />
+</div>
+
+
+###  Подробнее
+
+cd1:
+01. Whitney Houston - Saving All My Love For You 3:57
+02. The Bangles - Eternal Flame 3:56
+03. Roxy Music - Jealous Guy 4:54(   Читать дальше...   )Жанр: Pop, SoftRock, OtherПродолжительность: 04:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870309A46201E2BAD0898B6EBE74F9C1C0F3B07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338203   (270546) от 14.11.2019
+
+VA – XXXL 10. Максимальный размер удовольствий (2003) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Данилко ( Верка Сердючка ) - Чита дрита
+02. Валерия - Чёрно-белый цвет
+03. Hi-Fi - Седьмой лепесток
+04. Катя Лель - Муси-пуси(   Читать дальше...   )Жанр: РорПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22CE84514FE5DC4F6738660449AB1AE4C9C51EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189459   (270192) от 06.12.2017
+
+Кватро - Русская зима (2017) 2CD [MP3|320 Kbps] <Pop, Retro, Christmas>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270192.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альбом вошли девятнадцать русских новогодних хитов, которые участники группы «Кватро» исполнили под сопровождение симфонического оркестра. «Это не просто дань русским музыкальным традициям», - говорят музыканты. «Вечные», «неувядающие» новогодние мелодии они противопоставляют сумасшедшему разнообразию жанров и направлений, которые сегодня попеременно сменяют друг (   Читать дальше...   )1. А снег идёт
+2. В лесу родилась ёлочка
+3. Русская зима
+4. Зимняя любовь(   Читать дальше...   )Жанр: Pop, Retro, ChristmasПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEA01F930A713BC6448E97A6011488378CAA456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189388   (270188) от 06.12.2017
+
+Earth And Fire - 9 Studio Albums (1970-1989) Discography [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270188.jpg" />
+</div>
+
+
+###  Подробнее
+
+К началу 70-х в Голландии сформировалось ядро из нескольких команд, которые вышли за рамки национальной сцены и быстро завоевали европейский рынок. До сих пор на слуху, такие имена, как GOLDEN EARRING, LIVIN' BLUES, SHOCKING BLUE, EKSEPTION, FOCUS, KAYAK. Одним из таких успешных коллективов была группа EARTH AND FIRE.Список альбомов:
+1970 - Earth And Fire
+1971 - Song Of The Marching Children
+1973 - Atlantis(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 06:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC49D5714FF40FE381181B1AC5268F550E2E560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266561   (270072) от 02.12.2018
+
+VA - Booom 2019 the First (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270072.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Dadju - Ma Vie 3:27
-02. Maroon 5 - Memories 3:10
-03. Angèle - Flou 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:08
+01.  Sido — Tausend Tattoos
+02.  Calvin Harris — Promises
+03.  David Guetta — Don't Leave Me AloneЖанр: PopПродолжительность: 02:28:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:658634F4D20CCC4D60D960969AE6CEB9A992F988
+magnet:?xt=urn:btih:012731DEDDEDB0E9D88E831193D861546AE39AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +262,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266785   (269190) от 03.12.2018
+###  Публикация: 1266462   (270046) от 02.12.2018
 
-Karizma Duo - Acoustically Covered (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – In My Place
-02 – Perfect
-03 – It’s My Life
-04 – Take My Breath Away/Wherever You Will Go(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:23
+01. Growing Pains
+02. Not Today
+03. I Don't Want To
+04. 7 Days(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B091C6CF9C0030BDD11ED9E5AA37B7DBBC1786D
+magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338756   (269006) от 16.11.2019
+###  Публикация: 1266649   (270044) от 02.12.2018
 
-VA - Nu-Disco Selections, Vol. 13 (2019) [MP3|320 Kbps] <Nu Disco / Disco>
+VA - Clubfete 2019 (63 Club Dance & Party Hits) (2018) [MP3|320 Kbps] <Dance, Pop, Club, Tropical, Groove>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enrico BSJ Ferrari – Black Gold (6:48)
-02. Semitone – Forget You (3:05)
-03. X Gets The Crest – In Vain (7:04)
-04. C. Da Afro & J.B. Boogie – Invisible Disco (6:00)(   Читать дальше...   )Жанр: Nu Disco / DiscoПродолжительность: 02:21:23
+CD1:
+01. El Profesor feat. Laura White - Ce soire? (HUGEL Remix)
+02. Dynoro & Gigi D'Agostino - In My Mind
+03. David Guetta - Don't Leave Me Alone (feat. Anne-Marie)(   Читать дальше...   )Жанр: Dance, Pop, Club, Tropical, GrooveПродолжительность: 03:29:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F2CFAF880F25C51FABAF2837316FC6E7DF7210A
+magnet:?xt=urn:btih:1BB46FDF932CAC20BEA38B8FDB78552587D13E52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +320,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338719   (268983) от 16.11.2019
+###  Публикация: 1266460   (270042) от 02.12.2018
 
-Magic Power - Magic Power (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Lily Allen - No Shame (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Then (03:10)
+02. Trigger Bang (feat. Giggs) (03:32)
+03. What You Waiting For? (03:06)
+04. Your Choice (feat. Burna Boy) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266516   (270038) от 02.12.2018
+
+Jean-Pierre Massiera & Bernard Torelli - Turn Radio On (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lady Midnight (4:26)
-02. The Waiting Game (5:31)
-03. Darlin' I'm On Fire (4:34)
-04. Falling In Love While We're Dancin (5:04)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:39:57
+01. Turn Radio On (3:19)
+02. Help Taxi (2:09)
+03. Whistler Programm (2:31)
+04. Knock Out (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE321DD3D4C69BA3EDD9F51119EB3C70B7C20324
+magnet:?xt=urn:btih:9503E5FDEAF237037F122A16832F887A376655A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,115 +378,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338687   (268920) от 16.11.2019
+###  Публикация: 1266463   (270036) от 02.12.2018
 
-A'mbar - Love Maniac (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Maniac (17:00)
-02. Together To Heaven Or Hell (4:03)
-03. Sweet Lover (Part 1) (4:23)
-04. Sweet Lover (Part 2) (4:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7690127A3ED48F7DA6CDDA480B0133FE46889AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190098   (268892) от 08.12.2017
-
-Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Outside Your Love (3:01)
-02. Lost In Wonderland (4:12)
-03. Don't Make It So Hard (3:20)
-04. Love Insight (5:01)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542671E7DC8D4819C81A5C2212B30F12960B2EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338760   (268843) от 16.11.2019
-
-VA - Best Of Eurobeat Hi - Nrg Style (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irene – Sunday (radio version) (3:19)
-02. Ricky Visconti – Man Is For Woman (radio version) (3:04)
-03. Masha – Never Before (radio version) (2:43)
-04. Riki Visconti – You Make Me Feel So Blue (radio version) (3:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62296F9E4DADA5EFDC8619F7F00E4D5880B14EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266865   (268425) от 04.12.2018
-
-Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Akcent - King of Disco (2007) [FLAC|Lossless|tracks + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Bring Me to Life
-02 – Flames
-03 – Life Is a Rollercoaster
-04 – Don’t Stop Believin’(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
+01 - King of Disco
+02 - Let's Talk About It
+03 - Religious Girl
+04 - Baby(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
+magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,86 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266988   (268391) от 04.12.2018
+###  Публикация: 1266455   (270035) от 02.12.2018
 
-VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tw3lv, Jack Wilby - Together
-02. Lulleaux, Giang Pham - Contact
-03. Afsheen, Rebecca Ferguson - Uncrazy
-04. Lny Tnz, Catali - Secrets(   Читать дальше...   )Жанр: Club, Vocal, Groove, Indie DanceПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267030   (268382) от 04.12.2018
-
-Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite (2:56)
- 02. Let The Music Play (3:14)
- 03. It's Not Easy (3:13)
- 04. The Zoo Song (3:21)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267048   (268373) от 04.12.2018
-
-VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+The Hollies - Live at the BBC (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kygo & Imagine Dragons - Born to Be Yours
-02. Shawn Mendes - In My Blood
-03. Tiesto, Dzeko, Preme & Post Malone - Jackie Chan
-04. Cecilia Krull & Gavin Moss - My Life Is Going on(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:08
+01.  Here I Go Again
+02.  Jennifer Eccles
+03.  I've Got a Way of My Own
+04.  Wings(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
+magnet:?xt=urn:btih:62CC1B1B80B18CDF0475FD0E6BE7748AECA6F327
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,15 +436,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266877   (268349) от 04.12.2018
+###  Публикация: 1266615   (269982) от 02.12.2018
 
-VA - Новый год в стиле Ретро (2016) [MP3|320 Kbps] <Pop>
+VA - Новый год в стиле Ретро (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
->>Отечественная поп-музыка
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269982.jpg" />
 </div>
 
 
@@ -363,11 +453,11 @@ VA - Новый год в стиле Ретро (2016) [MP3|320 Kbps] <Pop>
 01. Николай Басков - Вот пришёл Новый год
 02. Натали - Снежная роза
 03. Игорь Николаев - Выпьем за любовь
-04. Игорь Саруханов - Карнавал(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
+04. Игорь Саруханов - Карнавал(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:002670627B5AA56DBC48B8DBE1161DA8A2E00043
+magnet:?xt=urn:btih:45A370E00FADFA53ADB0E38DBB32AFEF1F2E3561
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,15 +465,44 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266873   (268255) от 04.12.2018
+###  Публикация: 1266685   (269977) от 02.12.2018
 
-Русские Диджеи - Назад в СССР. Часть 1 (2007) [MP3|320 Kbps] <Pop>
+VA - DFM D-LUXE (2018) [MP3|320 Kbps] <Dance, Pop, Electronic>
 
 >>Pop
->>Отечественная поп-музыка
+>>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Diablo/Emeli Sandé/Gucci Mane - Survive
+02. Swanky Tunes/LP - Day By Day (Rompasso Remix)
+03. Faruk Sabanci/Mingue - Your Call
+04. Bizzey/Jozo/Kraantje Pappie - Traag(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD41F77D601C2D2AACE030034AA10BC1D74C7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266612   (269973) от 02.12.2018
+
+Русские Диджеи - Назад в СССР. Часть 1 (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269973.jpg" />
 </div>
 
 
@@ -392,11 +511,11 @@ https://mybot314.ru/tekegram_catalog/
 01. Иван Васильевич меняет профессию. Часть 1 (Звенит январская вьюга) (3:26)
 02. Бриллиантовая рука. Часть 1 (Песня про зайцев) Русская версия (3:45)
 03. Чародеи (Три белых коня) (3:28)
-04. Иван Васильевич меняет профессию. Часть 2 (Вдруг как в сказке) (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:09
+04. Иван Васильевич меняет профессию. Часть 2 (Вдруг как в сказке) (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7B93803A1F1CA68DFA0255A99B7581A8DC972F1
+magnet:?xt=urn:btih:60F60F299BC55D953160D558D62A504DB5BEFD5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +523,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267031   (268251) от 04.12.2018
+###  Публикация: 1266665   (269945) от 02.12.2018
 
-Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <Italo,Disco>
+Ace Of Base - Playlist: The Very Best Of Ace Of Base (2011) Remastered [FLAC|Lossless|tracks + .cue] <Europop, Eurodance>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Mike Mareen Essential Megamix (Nextanimal Edit) 8:05
-02. Love Spy (7inch Version) 4:16
-03. Dancing In The Dark (7inch Version) 3:31
-04. Stand Up (7inch Version) 3:59(   Читать дальше...   )Жанр: Italo,DiscoПродолжительность: 02:30:52
+01. All That She Wants (3:32)
+ 02. The Sign (3:11)
+ 03. Don't Turn Around (3:50)
+ 04. Beautiful Life (3:39)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:51:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A051BD4E13CADD8480198A991E91FD887D4A737
+magnet:?xt=urn:btih:F1107CEA0AD0E08B08904CE592CAA696F47E15E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,57 +552,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339018   (268216) от 17.11.2019
+###  Публикация: 1338354   (269865) от 15.11.2019
 
-The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man Don't Cry
-02. I Found Out
-03. Greenbank Drive
-04. All Talk(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B06E06D1AB075DE2FFA0669E0B92E7EC6D6ADB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338854   (268192) от 17.11.2019
-
-VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Mandingo - Savage Rite (1977) LP [MP3|320 Kbps] <Funk, Soul, Afrobeat>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alegria – Sin Pijiama (3:11)
-02. Junta & Alessandra Boni – Criminal (3:55)
-03. Cupido – Despacito (feat Sonya Queen) (3:55)
-04. Josua – Taki Taki (3:37)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 04:35:56
+01. Manhunter (3:18)
+02. Wild Man (3:05)
+03. Arachnid (2:41)
+04. King Of The Jungle (2:57)(   Читать дальше...   )Жанр: Funk, Soul, AfrobeatПродолжительность: 00:33:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
+magnet:?xt=urn:btih:7FC4555C1DE0698647A7AD5DB24A523F4336BA39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,144 +581,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339057   (268066) от 17.11.2019
+###  Публикация: 1338420   (269854) от 15.11.2019
 
-VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268066.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 8 ноября 2019 г. вышел очередной сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальный трейлер к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )01. Tones and I - Dance Monkey  (3:29)
-02. Kygo, Whitney Houston - Higher Love  (3:48)
-03. Regard - Ride It  (2:38)
-04. Ed Sheeran - Take Me Back to London (feat. Stormzy)  (3:10)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 02:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00D55CC646A9B5B615B0EB7262DD781C4304737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338676   (268052) от 17.11.2019
-
-Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vision Of Love [3:31]
- 02 - Love Takes Time [3:51]
- 03 - Someday [4:08]
- 04 - I Don't Wanna Cry [4:51](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190233   (268032) от 09.12.2017
-
-Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
+VA - Party Fun 2020 (2019) [MP3|320 Kbps] <Pop, Dance>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкие (у нас) представители синти и европопа из плодовитой Швеции. Выпустили только эти предлагаемые альбомы.01. Intro (1:28)
-02. Toner Av En Melodi (3:44)
-03. Vild Natt (4:23)
-04. Rosalina (3:48)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195E420D53203E2BACDF5F1EAA64C4AFA7D91691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267268   (267806) от 05.12.2018
-
-YUKO - Коллекция (2017-2018) [MP3|320 Kbps] <Electro, Folk, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kachky (2:54)
-02. Liuli Liuli (5:09)
-03. Mak (3:07)
-04. Hreblia (3:39)(   Читать дальше...   )Жанр: Electro, Folk, DanceПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F933FB84EB0B0711825EDC9C5EA44136B9A45E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190195   (267781) от 09.12.2017
-
-VA - Sunshine Live - Die 90er Vol.4 (2017) [MP3|320 Kbps] 2CD <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269854.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01.  DJ Bobo  -  Let The Dream Come True  4:02
-02.  Haddaway  -  Rock My Heart  4:20
-03.  Masterboy  -  Is This The Love  3:44(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 02:33:41
+01. Ed Sheeran - Beautiful People (feat. Khalid)
+02. Martin Garrix - Summer Days (feat. Macklemore & Patrick Stump)
+03. Soprano - Le coach (feat. Vincenzo)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:00:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:168689C1CA1F7EE5AE6CC0800D5D714CB359886B
+magnet:?xt=urn:btih:C7CF482AECFE5484932FD89BA94B043FD0EC774B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +610,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190086   (267769) от 09.12.2017
+###  Публикация: 1338555   (269846) от 15.11.2019
 
-VA - I love Italo Dance (Best Hits 90's Remixes) (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Dance>
+Instant Love - Roller Disco (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 
 >>Pop
->>Eurodance, Euro-House, Technopop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Disco Galera  -  The Sign (Zorro Version)  5:52
-02.  Ali Ba Ba  -  Hocus Pocus (Extended Version)  7:12
-03.  Angelo Branduardi  -  Ballo In Fa Diesis Minore (Celtika Extended Version)  6:15
-04.  B-1  -  Indian Summer (Solero Mix)  9:28(   Читать дальше...   )Жанр: Eurodance, Euro-House, DanceПродолжительность: 02:24:53
+01. Necesito Amor (Got To Be Loved) (4:24)
+02. Cualquier Amor (Any Love) (3:48)
+03. Despues Que El Amor Se Hayo Ido (After The Love Has Gone) (3:54)
+04. Good Times (3:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21FF3C073613E8C8D84A516626702B20BAF8FF7E
+magnet:?xt=urn:btih:A176F978F1980D43A06EA3A9585808372C2BF84D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190505   (267764) от 09.12.2017
+###  Публикация: 1338564   (269819) от 15.11.2019
 
-Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
+Peter Hahn & Anna Maria Kaufmann - CD3 Pop (2010) [FLAC|Lossless|image + .cue] <Pop, Cover, Classical Crossover>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ruleta (feat. Erick)
-02. Gimme Gimme
-03. My Dreams
-04. Tropical(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:46:57
+01. Anna Maria Kaufmann - Kann Es Wirklich Liebe Sein (Can You Feel The Love Tonight) (3:57)
+02. Anna Maria Kaufmann - Kiss From A Rose (4:49)
+03. Anna Maria Kaufmann - Dir Gehört Mein Herz (You'll Be In My Heart) (3:17)
+04. Anna Maria Kaufmann - Das Andere Leben (3:47)(   Читать дальше...   )Жанр: Pop, Cover, Classical CrossoverПродолжительность: 00:54:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
+magnet:?xt=urn:btih:3D897C3517049BD4D28FA624016FB603728486D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +668,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190495   (267756) от 09.12.2017
+###  Публикация: 1338395   (269768) от 15.11.2019
 
-VA - Первый танцевальный, Vol. 14 (2017) [MP3|320 Kbps] <Pop, Dance>
+VA - Another Side Of Fancy Part Two (2014) 2CD, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Hi-NRG>
 
 >>Pop
->>Eurodance, Euro-House, Technopop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ева Польна - Глубокое синее море
-02. Градусы - Выходи за меня
-03. Нюша - Не боюсь
-04. MONATIK - То, от чего без ума(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:18
+01. Sabine Sauvant - Cashbah In Cairo (Long Version) (5:24)
+02. Red Face - Down On The Corner (Long Version) (5:20)
+03. Tom Spencer - Get Love (12'' Version) (5:29)
+04. Paul Mc Douglas - Turbo-Geil (12'' Version) (6:37)(   Читать дальше...   )Жанр: Euro-Disco, Hi-NRGПродолжительность: 02:09:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB38BFEF491FDC9644216B66BEEEB2A7EAE56631
+magnet:?xt=urn:btih:A9C9455E15756E1B93C012AC7657F025E4A6FEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +697,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190485   (267678) от 09.12.2017
+###  Публикация: 1338424   (269708) от 15.11.2019
 
-Plazma - Indian Summer (2017) [MP3|320 Kbps] <Рор>
+Балаган Лимитед - Ностальгия (2019) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tame Your Ghosts
-02. Angel Of Snow
-03. Brilliant Water
-04. Mystery (The Power Within)(   Читать дальше...   )Жанр: РорПродолжительность: 00:57:50
+1. Горят костры далёкие
+2. Розпрягайте, хлопцi, коней
+3. Гляжу в озёра синие
+4. У моей у Любы(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82C6C078919C9BE9ACCFFC3C67526FE735D00D3B
+magnet:?xt=urn:btih:0FFBABE85DECDA15421F92D1D94EEAB58EA683FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189922   (269554) от 07.12.2017
+
+Creative Connection - 4 Singles & EPs (1985, 1986) 12" [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трио проект в составе:   Athina Haikali, Leroy Skeete Davis и наверное всем известной -  Lian Ross (настоящее имя - Josephine Hiebel).Список выпусков:
+1985 - Call My Name
+1985 - Scratch My Name
+1985 - You're My Heart, You're My Soul (Special Disco Version)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620B9E7ACE234771D5A32C59302F0FF47390ED02
 ```
 
 https://mybot314.ru/tekegram_catalog/

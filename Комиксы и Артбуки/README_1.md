@@ -1,3 +1,29 @@
+###  Публикация: 1363814   (940576) от 29.02.2020
+
+Nintendo | Артбук по игре Super Mario Odyssey / The Art of Super Mario Odyssey (2019) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре Super Mario OdysseyЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAD3F17689CEC91E13519EF86E9FA688B5C8779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927578   (937933) от 09.02.2016
 
 Лавнесс Кесинджер | Грут / Groot (2015) [JPG] [Обновляемая]
@@ -650,35 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F3FA189B3E22BFA22EA1899349C0BD6DF50DA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385657   (792430) от 31.05.2020
-
-Terry Scott Taylor, Doug TenNapel | Возвращение в Neverhood / Return to the Neverhood (2012) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комикс по вселенной игры Neverhood выполненый в жанре музыкальной новеллы.
-При просмотре комикса вы должны параллельно слушать музыку и перелистывать страницы при смене трека.
-
-Саундтрек: Return To The Neverhood (Comic Book Soundtrack) (2012)Жанр: Музыкальная новеллаФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591BCC3DA3A1A67D9CAB1D0AC374BF507DC74840
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1865749   (1065509) от 17.04.2026
+
+VA - Black Hole House Music 04-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES - Everybody Wants To Rule The World (Extended Mix) 05:13
+02. Robbie Rivera & Joe Delgado - Esta Noche (Extended Mix) 07:02
+03. Christian Burns - Darker Days (Avenue One Extended Remix) 06:14
+04. Cosmic Gate & Pretty Pink - Bloom (Extended Mix) 05:29(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEEC33561ACC9358C7CB0AF35756B4BE3BEE7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865461   (1065436) от 15.04.2026
+
+VA - PURRFECTION Compilation 2026 (2026) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelakhov - Haunted 07:28
+02. Checo Cotela - Depth Signal 06:27
+03. Exile (AR) - Destiny or Chance 07:10
+04. Chaguri - Natural Voice 06:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFBF4415DCBA4A7D9E583179BA3FD8831DEE6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865455   (1065435) от 15.04.2026
+
+VA - UV Miami 2026 (2026) [MP3|320 Kbps] <Progressive House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome Isma-Ae & Paul Thomas - Tomorrow (Trilucid Extended Remix) 05:45
+02. Markus Schulz & Dakota - Faultline (Das Pharaoh Extended Remix) 06:36
+03. Trilucid - Calling (M.O.S. Extended Remix) 06:20
+04. Trilucid - 2000 (Extended Mix) 07:52(   Читать дальше...   )Жанр: Progressive House, Organic HouseПродолжительность: 01:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36870884E7106CD8E65D78E430E48B31A780B772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862096   (1064362) от 28.03.2026
+
+VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B3RAO - Someway, Somehow (Original Mix) 05:59
+02. Earth N Days - Gonna Do (Extended Mix) 05:12
+03. D.P.V. - Roots (Original Mix) 05:48
+04. Piem - Disco Mordisco (Extended Mix) 06:41(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015C3A775B66709DF2A9865A0D1738F429A03616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862080   (1064361) от 28.03.2026
 
 VA - Playa Del Carmen 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
@@ -629,122 +745,6 @@ VA - Top 20 Melodic Techno 2026 February (2026) [MP3|320 Kbps] <Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420FD0C4633C4268AEDD78F5E5B5C37DDCB8F2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853724   (1057048) от 14.02.2026
-
-Cosmic Gate - Perspectives (Extended Mixes) (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & James French - I'm On Fire (Extended Mix) [5:56]
-02. Cosmic Gate & Cmd/Ctrl - Need A Little Love (Extended Mix) [6:20]
-03. Cosmic Gate - You (Extended Mix) [6:00]
-04. Cosmic Gate & Diana Miro - Never Erase You (Extended Mix) [5:57](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473888DB4BFE0DBFBE571A0FB188EAC424B5728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853512   (1056839) от 13.02.2026
-
-VA - Chill House Classics (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin, Nezhdan & Note U - Casablanca 05:55
-02. Anton Ishutin & Note U - Summer Jam 06:52
-03. Anton Ishutin & Nikita Malinin - D.N.A 05:36
-04. Sharapov - Keep On Rising 05:25(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC84176C369703AC0EEC29C9ED1D3B27C76048B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853449   (1056838) от 13.02.2026
-
-VA - Black Hole House Music 02-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME & PUROFY - Feel The Silence (Extended Mix) [5:17]
-02. Andy Duguid - 11 Things (Extended Mix) [5:18]
-03. Robbie Rivera & Pax Paloma - Can We Go Back (Extended Mix) [3:55]
-04. Kiholm, Kris O'Neil, FACTORe & SCHROEDS feat. Luke Coulson - Going Under (Kiholm & Kris O'Neil Extended Mix) [5:41](   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 02:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BACDDDD0BE6925E22EB21E1A0221AA78C366A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853246   (1056507) от 12.02.2026
-
-VA - Winter Hits Dance Selection 2026 Vol. 2 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FaraoN & Giulia Mihai - Need Your Love 04:33
-02. Padukov - Take My Hand 03:44
-03. FaraoN - Heaven 04:34
-04. FaraoN - Can't Stop Us 03:37(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6150240593E6588A06CA082EADAD6155EFE97A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1465821   (1018992) от 27.04.2021
+
+Profecia - Renacer (2021) [MP3|320 Kbps] <Heavy Meatal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludio a un Ocaso (02:02)
+ 02. Renacer (03:31)
+ 03. El Prisionero (03:26)
+ 04. El Camino del Viento (04:00)(   Читать дальше...   )Жанр: Heavy Meatal, Power MetalПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9AE21438F23E2D5EF909C0E712689CABB0FAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466150   (1018655) от 29.04.2021
+
+Organic Reaction - Mysteries Of The Lost World (2021) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impact Zone 00:59
+02. Wrong World 04:51
+03. The Creation Day 06:04
+04. Strange Perception 03:32(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1120BB11C211F32369C32A9FE8F0A497838BD3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466359   (1018645) от 29.04.2021
 
 Autumn Bride - Undying (2021) [MP3|320 Kbps] <Sympho Metal>
@@ -346,6 +404,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468430   (1017123) от 08.05.2021
+
+Moon Coven - 3 Albums (2014-2021) [MP3|320 Kbps] <Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further [00:05:09]
+02. Ceremony [00:06:07]
+03. Göbekli Tepe-Potbelly Hill [00:06:21]
+04. Eye Of The Night [00:04:02](   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 3CD, 02:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76E40964E2634C53512C6C9EAE5AAECE5809439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468678   (1017110) от 08.05.2021
+
+The Fall of Eve - 4 Albums (2016-2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Part of Me [00:03:15]
+02. Weather the Storm [00:03:44]
+03. Stay With Me [00:03:19]
+04. Beyond the Veil [00:03:17](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 4CD, 01:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA566AEF3C69DE54FBCFA5C09D07848A1E3FDE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468582   (1017082) от 08.05.2021
 
 Motorhead - The Lost Tapes Vol. 1 (1995) Live in Madrid, 2021 [MP3|320 Kbps] <Speed, Heavy Metal, Hard Rock>
@@ -397,6 +513,35 @@ Nekromantheon - Visions Of Trismegistos (2021) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CAD31F3AFD8EE6C8E7DAC97C662DA47D943F2A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469593   (1016313) от 13.05.2021
+
+Krysaor - Krysaor (2021) [MP3|320 Kbps] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emperor Of The Seas (06:01)
+ 02. Abyss Of Oblivion (03:36)
+ 03. The Disciple (04:15)
+ 04. Tell Me (feat. Flora Spinelli) (05:46)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E719261A93EAD4ECCBE87EE55C873089FF6186
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,151 +745,6 @@ Borgne - Temps morts (2021) [MP3|320 Kbps] <Industrial Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F702942CDCDBBE21B7BFD9C0E70959F70AE654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471933   (1014831) от 22.05.2021
-
-Herman Frank (ex-Accept) - Two for a Lie (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Teutonic Order [00:04:58]
-02 - Venom [00:03:46]
-03 - Hate [00:03:50]
-04 - Eye of the Storm [00:04:42](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADA0E66A8DC68BFC6649B486EC25DC13A314CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472019   (1014702) от 23.05.2021
-
-Nature Morte - 2 Albums, 1 Single (2018-2021) [MP3|320 Kbps] <Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Shallowness [00:08:49]
-02. White Goat Dark Hoof [00:05:33]
-03. Knife [00:07:24]
-04. T.S.O.C [00:04:33](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 3CD, 01:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2880192E6025F7BB96C61639B28BBC506852B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472012   (1014697) от 23.05.2021
-
-Zgard - Place of Power (2021) [MP3|320 Kbps] <Atmospheric Black Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Arise [00:02:01]
-02 - Trap of Cold [00:06:09]
-03 - Old Ruins [00:07:58]
-04 - Ascension Fog [00:06:22](   Читать дальше...   )Жанр: Atmospheric Black Metal, Pagan MetalПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED911166747A2B9ADB87BCC56AAFED64310B839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471953   (1014690) от 23.05.2021
-
-Xessive Supresin - 3 Albums (2019-2021) [MP3|320 Kbps] <Experimental, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:41]
-02. Fright [00:04:07]
-03. The Taste [00:04:54]
-04. Anto [00:04:02](   Читать дальше...   )Жанр: Experimental, Progressive Death MetalПродолжительность: 3CD, 02:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E681B0513F45AFF1EFE5460FBC533017755531A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471939   (1014676) от 23.05.2021
-
-Nergard - Eternal White (2021) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Forgive My Haunted Mind
-02. Pride Of The North
-03. From The Cradle To The Grave
-04. Carry Me(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6109B593591E029E4D20B1BDEB5ECEAA4288F31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1380628   (831455) от 04.05.2020
+
+VA - Personification: Rnb Show Music (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bj The Chicago Kid - Champagne
+002. K. Forest - Against The Wall
+003. Wyann Vaughn - Take Me Down
+004. Evann Mcintosh - Yours(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB52F7C54A18329D5AF20F30C28B4AE6E2F699DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502850   (821230) от 18.10.2021
 
 VA - Rap Inspiration: Music For Everyone (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -717,35 +746,6 @@ VA - Beatport Dancehall: Electro Sound Pack #116 (2020) [MP3|320 Kbps] <Reggae, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:652091EA4D6EEBC1EA841B58D82D48DBAA2A2748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280002   (763527) от 01.02.2019
-
-VA - Rasta On (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kraiggi Badart - Burnin
-002. Chan I - Jungle Ghod
-003. Tomorrows Bad Seeds - Illuminate
-004. Ziggy Marley - The Storm Is Coming(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 10:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B26A2DCBA8C09706DE31A58FAF32BD9B04D85DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

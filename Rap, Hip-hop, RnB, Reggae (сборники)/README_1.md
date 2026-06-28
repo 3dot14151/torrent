@@ -1,3 +1,32 @@
+###  Публикация: 1367702   (914242) от 17.03.2020
+
+VA - Reggae On The Roof: Miami Carnival (2020) [MP3|320 Kbps] <Reggae, Dancehall>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914242.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Vadim Vs Fat Freddy's Drop - Flashback
+002. The Romy - Shape Of You
+003. Tom D. Genese - Microbe
+004. Chronixx - Rastaman Wheel Out(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 08:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F099501B9262F5645B3CB0819EFE9953028CC0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098362   (906177) от 31.01.2017
 
 VA - Reggae Hits (Presents: Elgujakviso) (2017) [MP3|210-320 Kbps] <Reggae>
@@ -716,35 +745,6 @@ VA - Worldwide Rap Singles - Март 2020 (2020) [MP3|263-320 Kbps] <Rap, Hip-H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A93DCE8D67D1C91E74F9A6088C8C815B836826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380628   (831455) от 04.05.2020
-
-VA - Personification: Rnb Show Music (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bj The Chicago Kid - Champagne
-002. K. Forest - Against The Wall
-003. Wyann Vaughn - Take Me Down
-004. Evann Mcintosh - Yours(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB52F7C54A18329D5AF20F30C28B4AE6E2F699DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

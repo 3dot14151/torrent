@@ -1,3 +1,32 @@
+###  Публикация: 1175958   (374345) от 20.10.2017
+
+Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidonie
+02. L’Appareil A Sous
+03. Les amis de la musique
+04. El cuchipe(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176144   (374344) от 20.10.2017
 
 Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, Sax-Jazz-Funk>
@@ -746,35 +775,6 @@ VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DF2EA0E5303A7836912C2BA6B90664EDAC79827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256083   (359035) от 20.10.2018
-
-VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Draufgänger - Cordula Grün
-02. Mickie Krause - Reiss die Hütte ab! (Chirpy Chirpy Cheep Cheep) (Version 2018)
-03. Lorenz Büffel - Beate, die Harte
-04. Almklausi & Specktakel - Mama Laudaaa (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

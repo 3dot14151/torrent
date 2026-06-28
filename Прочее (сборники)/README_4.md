@@ -1,3 +1,90 @@
+###  Публикация: 1852224   (1055621) от 06.02.2026
+
+VA - No name compilation part 47 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dakota Lane - Shanelle – My Little Star
+02 - Diazza - White Night
+03 - Xezzo - Coffee
+04 - Mr Salama - First Snow(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE4F3D114C89447B9D71C4CC94E18858CBC8C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851781   (1055457) от 03.02.2026
+
+VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NONNA - Бриллианты (03:18)
+ 002. 140 ударов в минуту - Увидеть сны (04:02)
+ 003. 140 ударов в минуту - Холодный свет луны (02:42)
+ 004. Ad Voca & PACANI - Day Dreaming (01:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A4FBA0E2BE60B77CB113E07E861A0152121EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851434   (1055204) от 01.02.2026
+
+VA - Music News For Forum vol.160 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NATALIYA - Босая (03:11)
+ 002. 5УТРА - Моя девочка (03:07)
+ 003. 6 чувств - Полюса (02:05)
+ 004. A.I.M.Epoch - in the dark (02:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4AE6AA525962B1B813D39B6034DA72F2C5E765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851355   (1055158) от 02.02.2026
 
 VA - No name compilation part 46 Assorted (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sax, Other>
@@ -658,93 +745,6 @@ AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844725   (1050420) от 28.12.2025
-
-Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда то, в середине 90х, когда я был юн и беспечен, у меня была девушка — первая настоящая любовь. Она была значительно старше и мудрее меня. Ей очень нравилось творчество Richard Marx. У неё дома был проигрыватель ВЕГА 109 и пласты с альбомами Repeat Offender 1989 года и Rush Street 1991. И по прошествии лет, есть что вспомнить под эту музыку. Очень красивая и (   Читать дальше...   )001. Should've Known Better
-002. Don't Mean Nothing
-003. Endless Summer Nights
-004. Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216FFD40B1BA273BFD8180D889C72145FDF5AC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844855   (1050415) от 28.12.2025
-
-VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - I Have Everything Now Except
-02 - Riltim - Retona
-03 - Smtve - Let You Down
-04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844857   (1050414) от 28.12.2025
-
-VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sergey Chekalin - New Year's Greetings for 2026!!!
-02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
-03 - Smtve - Send My Love
-04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

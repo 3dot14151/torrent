@@ -1,3 +1,112 @@
+###  Публикация: 591320   (136149) от 20.12.2012
+
+Субботним вечером в прямом эфире / Saturday Night Live: Paul McCartney (SNL) (2012) HDTV [MPEG-2/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Пола Маккартни на шоу "Субботним вечером в прямом эфире" американского телеканала NBC 15 декабря 2012 г.01. Cut Me Some Slack (feat. Nirvana)
+02. My Valentine (feat. Joe Walsh)
+03. Simply Having a Wonderful Christmas timeЖанр: Концерт, RockПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591350   (136078) от 20.12.2012
+
+Глюк' OZA - Nowбой (2011) BDRemux
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый грандиозный проект певицы Глюк'озы! Живой концерт "NOWБОЙ" на диске Blue Ray! Программа концерта содержит, как старые, любимые всеми хиты певицы, так и новые песни. "Невеста", "Снег идёт", "Шуга" и многие другие знаковые композиции порадуют зрителя вместе с новыми, но уже полюбившимися хитами "Взмах", "Вот такая любовь", "Следы слёз" и многими другими. Каждый номер - это яркое сочетание световых эффектов, нереальных костюмов, хореографии и великолепного звука. Современное звучание и высокотехнологичная съёмка концерта позволит зрителю побывать на живом выступлении Глюк'озы не выходя из дома!Жанр: PopПеревод: ОтсутствуетПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679825   (135185) от 26.11.2023
+
+Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Recorded live in Sydney, Meat Loaf performs his greatest hits in an unforgettable concert showcasing the legendary '70s rocker dominating the stage, blasting out his iconic hits such as 'Bat Out Of Hell', and 'You Took The Words Right Out Of My Mouth (Hot Summer Night)' among others. In front of a sold out and wildly passionate crowd, Meat Loaf proves why his multi-platinum (   Читать дальше...   )Производство: Австралия / Via Vision EntertainmentЖанр: Rock, Hard rock, Heavy metal, Wagnerian rockАктеры: Meat Loaf: lead vocals; Patti Russo: female lead vocals; John Miceli: drums; Paul Crook: guitar; Randy Flowers: guitar, backing vocals; Dave Luther: saxophone, keyboards, backing vocals; Danny Miranda: bass, backing vocals; Justin Avery: piano, backing vocals; Ginny Luke: violin, backing vocalsПеревод: ОтсутствуетПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6E80791668B84A12B6AF83BB83F84E6B45C62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679877   (134887) от 27.11.2023
+
+Квартирник у Маргулиса. «Корней» (26.11.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт музыкального коллектива «Корней». Владимир Корниенко — сессионный гитарист и аранжировщик, на его счету более 60 альбомов. Музыкант известен по работе с Найком Борзовым, группами «Танцы Минус», «Ундервуд» и многими другими.00:00:06 За сотку до Речного
+00:05:20 Как воздух
+00:12:42 Осторожно
+00:18:40 Куда вы, минуты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Indie, rockЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683AC18E4DBFE8CC38C292F149BAE5539FF772D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679778   (134035) от 29.11.2023
 
 Mylene Farmer - Live A Bercy (1997) DVDRip [H.264/1080p] [Handmade Upscale AI]
@@ -610,110 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E801E4D52877DED495BB896519BC0C403F996E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701988   (116056) от 23.02.2024
-
-«Крематорий» в Горбушке. 39 лет (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крематорию – 39 лет! концерт состоялся 10 декабря 2022 года в московском ДК им. Горбунова.Жанр: концерт, музыкаПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D1E4A05367E3B9EF8ABB9778209F3C1D28AE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703707   (114879) от 01.03.2024
-
-Дельфин. Прощай оружие (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию видеохронику одного из самых ярких музыкальных событий 2023 года — концерта Дельфина. Грандиозное шоу проходило в московском VK Stadium. Музыкант представил поклонникам свой новый альбом «Прощай оружие», который получил свое название в честь одноименного романа американского писателя Эрнеста Хемингуэя. Дельфину удалось органично объединить (   Читать дальше...   )Производство: Россия / SETUPЖанр: концерт, музыкаРежиссер: Анна КозловаАктеры: ДельфинПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705466   (113895) от 08.03.2024
-
-Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113895.jpg" />
-</div>
-
-
-###  Подробнее
-
-LOVEBITES to release a greatest hits album with songs selected based on a fan vote. The songs are newly mastered by Mika Jussila at the prestigious Finnvox Studios in Finland and are included on the two CDs. Comes with new song(s). Comes with a Blu-ray with all the music videos.Производство: ЯпонияЖанр: Power metalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A250993885860BC41371DE64210B5DD4970F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712438   (112180) от 02.04.2024
-
-Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live at Mynavi Blitz Akasaka, Tokyo, Japan January 27, 2019.Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E96CA168F9C10E983A345C7C1E9F8D3C74BF0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

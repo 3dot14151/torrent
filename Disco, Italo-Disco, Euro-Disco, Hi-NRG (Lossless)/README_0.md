@@ -1,3 +1,90 @@
+###  Публикация: 1439776   (1039271) от 15.01.2021
+
+Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Systems in Blue - Lola, Better To Fall In Love (3:41)
+02. Systems in Blue - Don't walk into the light (3:30)
+03. D. O. Passion - How I'm gonna catch you? (3:54)
+04. MS Project & Michael Scholz - My Mystery (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A7867977AA0860C3390463E37AB882A8E189FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615594   (1037506) от 26.02.2023
+
+Italoconnection - Nordisko (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flash In The Night
+02. On The Radio (feat. Jaia Sowden)
+03. Talk To The Hand
+04. Donna Rouge(   Читать дальше...   )Жанр: Italo-Disco, Nu-Disco, Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9534287383D47083AB61C4C5840A182DC6AC0A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442240   (1036908) от 24.01.2021
+
+VA - Radio Mania, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikita Fomin - My Paradise, Your Hell (Viper Eurodance Radio Mix) (4:20)
+02. Chito - This Is Our Night (3:46)
+03. Amelie Divine - Be My Hero (Alternative Mix) (4:17)
+04. The Crosslines - Tomorrow Is Another Day (Radio Mix) (3:41)(   Читать дальше...   )Жанр: EuroDance, Euro-DiscoПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A365F5004B2E3071B4DB9C80C158F692086986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442237   (1036907) от 24.01.2021
 
 VA - Radio Mania, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-Disco>
@@ -658,93 +745,6 @@ VA - New Italo Disco Music Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDCBCBEA2F74E9C4D70024BE7B6D377CF65330A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445797   (1033549) от 06.02.2021
-
-Aphelion - Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Synth, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey Beyond the Sky (6:05)
-02. Cosmic Hereos (6:07)
-03. Land of My Dreams (6:47)
-04. Where Ends the Light of the Sun (6:11)(   Читать дальше...   )Жанр: Spacesynth, Italo-Synth, Italo-Disco, Italo-DanceПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96D5C07F09FE0C5D118AAC2D1111275428F3248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447206   (1032027) от 12.02.2021
-
-Boney M. - Rasputin - Big And Strong: The Greatest Hits of Boney M. (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin
-02. Daddy Cool
-03. Sunny
-04. Ma Baker(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A9FE11F5BFD769B12B864FB65D7B44AD99DAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449487   (1030019) от 21.02.2021
-
-Mflex Sounds - H.M.H. 2 from Another Perspective (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impulse (2:11)
-02. Invisible Miracles (6:39)
-03. Rock My Heart (7:06)
-04. Lover Tonight (L.E.) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro Disco, SpacesynthПродолжительность: 01:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5BE902A7F03B3649848E1A8ECFCA44F2DCC62
 ```
 
 https://mybot314.ru/tekegram_catalog/

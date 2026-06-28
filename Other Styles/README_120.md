@@ -1,3 +1,119 @@
+###  Публикация: 1251921   (410963) от 04.10.2018
+
+VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willie Nelson - A Song for You
+02. Angela Hacker - I Can't Make You Love Me
+03. Buck Owens - When I Need You
+04. Tamra Rosanes - Always On My Mind(   Читать дальше...   )Жанр: Country, Pop, FolkПродолжительность: 01:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E5E5ADFF64474DED1CF10156E6BEE3AD373E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252310   (410835) от 04.10.2018
+
+Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditation (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Brahma Journey (Loopable) (Original Mix)	20:00
+02.	Open Chakra (Original Mix)	7:20
+03.	Om Sleep (Original Mix)	7:00
+04.	Natural Vibrations (Original Mix)	8:20(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F28B4AE6F29210E2B148B448C19A38729B72BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168308   (410611) от 23.09.2017
+
+Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - True Love's Kiss (Performed by Amy Adams and James Marsden)
+02 - Happy Working Song (Performed by Amy Adams)
+03 - That's How You Know (Performed by Amy Adams)
+04 - So Close (Performed by Jon McLaughlin)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BB59D4F3AF89E9D565EA2A59C88D022716683F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168045   (410610) от 23.09.2017
+
+Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opening
+02 - Change
+03 - Permission to Go to Paris
+04 - To the Airport(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDCE0A65650204C8EBF39329F19C5A98170A80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168305   (410596) от 23.09.2017
 
 James Horner - A Beautiful Mind (2001) [MP3|320 Kbps] <Score>
@@ -647,140 +763,6 @@ Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168870   (403104) от 27.09.2017
-
-Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Beginnings (5:48)
- 02. Sea Breeze (5:31)
- 03. Riding The Surf (5:27)
- 04. Watching The Shorebirds (5:13)(   Читать дальше...   )Жанр: New Age, Solo Piano, RelaxПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED33C69ABC8A1A888FB44C081E7A7CCB49420068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564207   (402849) от 23.10.2012
-
-Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402849.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:55) 01. Do Not Ask Me Who
-(4:26) 02. A Thousand Words
-(4:41) 03. Monsoon
-(3:52) 04. Double Star Love Song
-(4:23) 05. Embrace The Starlight
-(5:40) 06. Hand
-(4:33) 07. Never Been Relentless Love
-(3:47) 08. Fishing Boat Lights Shining
-(4:44) 09. Aizaishenqiu
-(4:36) 10. The Edge Of Love And Pain(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1558E7C3DA97311F2A48C9C8400BA4FFC43893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564122   (402794) от 23.10.2012
-
-Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Elena [03:49]
-02. Maria-La-O [03:27]
-03. La Mer [05:10]
-04. Concierto De Aranjuez [04:33]
-05. One Note Samba [03:54]
-06. Amapola [04:00]
-07. Besame Mucho [04:23]
-08. The Girl From Ipanema [04:25]
-09. It's Now Or Never [03:45]
-10. Guantanamera [04:26](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564144   (402789) от 23.10.2012
-
-Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Te Quiero Dijiste [02:22]
-02. Angelitos Negros [03:34]
-03. Maria Elena [03:08]
-04. Beguin The Beguine [03:42]
-05. Cuando Sali De Cuba [02:53]
-06. Cielito Lindo [02:38]
-07. Amapola [02:28]
-08. La Flor De La Canela [03:37]
-09. Guadalajara [02:33]
-10. My Way [03:06](   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1775689   (71376) от 28.01.2025
+
+VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritchie Family - The Best Disco In Town
+02. Gloria Gaynor - Never Can Say Goodbye
+03. Kool & The Gang - Celebration
+04. Earth, Wind & Fire - September(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC53B775E038784EE74703583B7ABC015143E0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775632   (71374) от 28.01.2025
 
 VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
@@ -716,35 +745,6 @@ Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43F5DDF065CCA1F4933F4FC4F7DD97939405B563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786668   (68988) от 21.03.2025
-
-Brenda Lee - Best of Brenda Lee (2025) Remastered [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sweet Nothin's (Remastered) [00:02:19]
-02 - I'm Sorry (Remastered) [00:02:38]
-03 - I Want to Be Wanted (Remastered) [00:03:02]
-04 - One Step at a Time (Remastered) [00:02:39](   Читать дальше...   )Жанр: PopПродолжительность: 02:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAADCAF64E462C4AC67B74AD4AA8384625C32AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

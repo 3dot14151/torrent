@@ -1,3 +1,119 @@
+###  Публикация: 1209156   (779264) от 27.02.2018
+
+Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambient Blue  [12:08]
+02. Loop.E.Lou  [8:27]
+03. Delta Curve  [9:24]
+04. Sleepin'n'Slidin  [4:23](   Читать дальше...   )Жанр: New Age, Blues, WorldПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D28987696CAB0191C9EC8DC61FB2251997817A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209189   (779259) от 27.02.2018
+
+Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Ready To Lose
+02. Always
+03. The Present
+04. Change The Weather(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A0CE063E76BE3FB2C67448B0444D26EE8D3D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209910   (779128) от 28.02.2018
+
+Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Those Loving Hands (10:29)
+2. The Orbs (10:11)
+3. Light and Warmth (11:50)
+4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209214   (779125) от 28.02.2018
+
+Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. ODIN SPHERE's Theme [1:48]
+02. Opening Title [0:55]
+03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209648   (779089) от 28.02.2018
 
 Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks]<Soundtrack>
@@ -629,122 +745,6 @@ Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210964   (778148) от 05.03.2018
-
-Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Krishna (6:50)
-02. Human Nature (7:25)
-03. In Search of the Truth (8:06)
-04. Dhamma (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211108   (778069) от 05.03.2018
-
-ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадебное путешествие (4:16)
-02. Страна дураков (3:59)
-03. Белый месяц (3:41)
-04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013172   (777975) от 03.05.2016
-
-Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merlin
-02. En tu mirada
-03. Danza Medieval
-04. Evolucion(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012985   (777961) от 03.05.2016
-
-Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pathway to the Past    06:23
-02. Celebrating Ancient Times    05:08
-03. Dance of the Spirits    04:27
-04. Festival at the Castle    08:16(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B335E12765C7BFFBE4F87FB2FB73FC9E72134C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

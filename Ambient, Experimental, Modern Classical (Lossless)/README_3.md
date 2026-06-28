@@ -1,3 +1,87 @@
+###  Публикация: 1350670   (1003000) от 07.01.2020
+
+Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Field recordings>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santrauka I [08:00]
+02. Santrauka II [04:17]
+03. Santrauka III [03:46]
+04. Santrauka IV [04:00]Жанр: Ambient, Experimental, Field recordingsПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035992   (1002955) от 07.08.2021
+
+Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space, Psybient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High,Just As High And Third (59:44)Тип издания: CD, WEBЖанр: Ambient, Space, Psybient, Experimental, Techno, Drone •Продолжительность: 55:15:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8B2C9C33EB77D3AD27DCB0D2FCE97332D91FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141809   (1001879) от 11.01.2020
+
+Joel Tammik (Rajaleidja) - Collection 15 Releases (2004-2019) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, Dub, Ambient, Abstract, Minimal, Dub Techno, IDM, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aja Algus (04:21)
+ 02. Tuuletekkeline (08:34)
+ 03. Linnutee (06:55)
+ 04. Aeg Maha (05:57)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Glitch, Dub, Ambient, Abstract, Minimal, Dub Techno, IDM, Experimental •Продолжительность: 13:27:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5727AA4F1A155E26BF6060227293A1FBB8C7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488939   (1001425) от 13.08.2021
 
 Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <Tribal, Dark Ambient>
@@ -650,93 +734,6 @@ Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA79D4AE734B792D4558CECF92333F108B42CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758102   (916191) от 17.02.2014
-
-Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are A Dead Television (4:19)
- 02. Fragments A (Steady) (2:42)
- 03. Fragments B (Adrift) (5:05)
- 04. Sails (3:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097319   (915737) от 26.01.2017
-
-David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age,Easy listening>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Lucia [03:42]
-02. Arrivederci Roma [04:07]
-03. Speak Softly, Love [04:09]
-04. Mio Dolce Sogno [04:04](   Читать дальше...   )Жанр: New Age,Easy listeningПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CC20E9E51DD84E18FEDEA50AF4445BEF793CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368426   (910854) от 19.03.2020
-
-Roger Eno and Brian Eno - Mixing Colours (2020) Deutsche Grammophon [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Frost (04:07)
-02. Burnt Umber (04:15)
-03. Celeste (04:22)
-04. Wintergreen (04:10)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1154396A0716D1C65D65BDB7AA0A2E48BDE07A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

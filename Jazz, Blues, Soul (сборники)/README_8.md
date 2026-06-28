@@ -1,3 +1,32 @@
+###  Публикация: 1202274   (790410) от 28.01.2018
+
+VA - Blues Collection (Winter) (2018) [MP3|320 Kbps] <Blues. Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aynsley Lister -  Hurricane  (06:10) 
+02.Bill Wyman's Rhythm Kings -  Disappearing Nightly  (03:47) 
+03.Chris Robinson Brotherhood -  Blonde Light of Morning  (04:03) 
+04.Bluespam -  Are You Moving On  (04:24) (   Читать дальше...   )Жанр: Blues. Blues RockПродолжительность: 04:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE20B1F9012E65AB6327F2E4AA47E641CA25503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276312   (788549) от 15.01.2019
 
 VA - Empire Records - Bar (2019) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8DE83572D2E92969FA2967504000518F2F2D3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125713   (767899) от 15.04.2017
-
-Ronnie Earl - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Seranade
-02. Equinox
-03. Ida B
-04. Bella Donna(   Читать дальше...   )Жанр: BluesПродолжительность: 05:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29430C004561FE13F635CD77FDF4CF20255D8B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

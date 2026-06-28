@@ -1,3 +1,32 @@
+###  Публикация: 1048422   (546426) от 02.09.2016
+
+Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Forever
+02. Death of Love
+03. Crystallise
+04. Hush Little Voices(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F422019B00F0B2FC00A57B318142E74CB7C923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238596   (545493) от 31.07.2018
 
 VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
@@ -711,35 +740,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1343C1ED5E9A9D7B8E95BCA64D748D69C5FD6BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926803   (531722) от 11.08.2015
-
-Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Enough
- 02. Secrets
- 03. Some Other Lover
- 04. So Long(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6977788CF5B67BABAAFCFC7D7DDCC5DA919521ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1461809   (1021640) от 11.04.2021
+
+Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perpetuation [7:23]
+02. On The Street Where You Live [7:27]
+03. Fairytale [8:25]
+04. Paris [7:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BAD88D6F63EE57B0B20375DFCBB7582C8E7963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461828   (1021598) от 11.04.2021
+
+V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etta James – At Last
+02. Norah Jones – Don’t Know Why
+03. Nina Simone – Feeling Good
+04. Ella Fitzgerald – Mack The Knife (Live)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40649C02F49FB3AA59B7B5A6F2C6F44A4E786CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461979   (1021463) от 12.04.2021
 
 Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -687,64 +745,6 @@ Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99379192C76262B83D24F8AE7F02A44BA2E12A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465870   (1018974) от 27.04.2021
-
-Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 . All That Jazz (00:03:40)
-02. She Used To Be Mine (00:04:24)
-03. Trust In Me (00:04:29)
-04. My Ship (00:03:58)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6782913EB6ED16F382845E1399A274FC93AF7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465973   (1018833) от 28.04.2021
-
-Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for DiFang [5:26]
-02. Happy People [5:12]
-03. Tango in 6 [5:53]
-04. Ain't Nothing but the Blues [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1B574C1752D237153182EEE7A0C62447B3AC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

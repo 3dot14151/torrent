@@ -1,3 +1,32 @@
+###  Публикация: 1432717   (161958) от 19.12.2020
+
+VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry - Lonely (03:10)
+02. Dua Lipa - Break My Heart (03:41)
+03. Roddy Ricch - The Box (03:16)
+04. Jason DeRulo - Take You Dancing (03:10)(   Читать дальше...   )Жанр: PopПродолжительность: 05:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598811   (161799) от 20.12.2022
 
 Abba - Voyage (2021) [OGG Vorbis|600 Kbps] <Pop, Vocal>
@@ -716,35 +745,6 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56F2588F8134E1443D76919023B69192D2873DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194256   (155946) от 25.12.2017
-
-Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (04:29)
-02. Standby Beauty (04:32)
-03. If Only Your Bed Could Cry (03:42)
-04. Crystal Clear Mud (05:55)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904B48E854C8E90664CAA76986AECFC4FCA21AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

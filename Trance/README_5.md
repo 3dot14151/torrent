@@ -1,3 +1,90 @@
+###  Публикация: 1612136   (1039923) от 17.02.2023
+
+VA - Infrasonic Winter Selection (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caleb Golston - The End Of Something (Extended Mix) [6:06]
+02. Pulse & Sphere - Heavy Rain (Original Mix) [5:21]
+03. Salto Angel - Lunar (Extended Mix) [5:02]
+04. Awantalyst - Mononoke (Extended Mix) [7:12](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE06CA7D30D0F7E3757E07487AB1412340D712F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612826   (1039917) от 17.02.2023
+
+VA - The Sound Of 2023 Mix 3: Tokyo (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Trian - Weightless (Intro) [2:37]
+02. Sound Fusion - Signals (Original Mix) [5:01]
+03. Axel Zambrano - Xone (Original Mix) [4:41]
+04. Ormus - Vishnu (Original Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B38539C0762292F4DCF03EB792787A384EC877C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612620   (1039916) от 17.02.2023
+
+VA - Global Trance Masters Vol. 6 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade - Breaking Lies (Original Mix) [6:37]
+02. Liquid Dream - You In Heaven (DreamLife Remix) [7:39]
+03. York pres. The Sunseekers - Oasis 2002 (Original Mix) [9:21]
+04. Phil Green - Trance New World (Original Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFD3307B3B362D09BE9E40386693BDFA4BDF000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439442   (1039867) от 13.01.2021
 
 VA - Genix Presents: 20 Years Of Anjunabeats (2021) [MP3|320 Kbps] <Trance>
@@ -657,93 +744,6 @@ VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29670EDAB533F064A86383BA54FE75FB51E7F9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443500   (1035483) от 29.01.2021
-
-VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sina7 - Uranus (Extended Mix)
-02. Nikzad & Sina - The Seventh Sky (Extended Mix)
-03. FAWZY & W!SS - Horizont (Extended Mix)
-04. Last Soldier - To The Future (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BAB4C089A487534E45ACE92E48E556146263E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443880   (1035191) от 30.01.2021
-
-VA - Azura Trance Selections (2021) [MP3|320 Kbps] <Uplifting-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aevus - God's Particle (Time Machine Mix) (07:36)
-02. Andrea Ribeca - Firewire (Andrea Ribeca 2020 Remix) (06:48)
-03. Mario Piu - The Vision 2020 (Les Hemstock Remix) (06:16)
-04. Aevus - Amaterasu (Original Mix) (08:21)(   Читать дальше...   )Жанр: Uplifting-TranceПродолжительность: 03:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D84177C3933AFDA45B1703BF2A111589F53A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443743   (1035190) от 30.01.2021
-
-VA - Talla 2XLC - Carpe Diem (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Into The Wormhole (Album Mix)
-02. Talla 2XLC - Mantra (Original Mix)
-03. Talla 2XLC - All The Dreams We Shared (Original Mix)
-04. Alpha Breed - Epic Future (Extended Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27667A61EC31C8D14148F53FD7E8D94727CD0D79
 ```
 
 https://mybot314.ru/tekegram_catalog/

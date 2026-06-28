@@ -1,3 +1,90 @@
+###  Публикация: 1357704   (970632) от 06.02.2020
+
+Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of His Eyes the Peace V (7:05)
+02. After of Your Life (6:34)
+03. Mea Maxima Culpa (6:25)
+04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745413   (968177) от 14.01.2014
+
+David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:07)
+02. Along the Shore (6:37)
+03. Swirling Pools (6:16)
+04. Beachcomber (5:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745789   (967218) от 15.01.2014
+
+VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hilary Stagg - Inspirations (6:32)
+02. Paul Machlis - Nightblossom (3:43)
+03. Gary Malkin - The First Night (2:37)
+04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358539   (966195) от 10.02.2020
 
 Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -658,93 +745,6 @@ Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093851   (932102) от 16.01.2017
-
-Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds blows over the hill [6:30]
-02. Floating lotus [5:29]
-03. Daichi [6:10]
-04. Silence [6:13](   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 03:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986657   (929076) от 15.02.2016
-
-Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
-02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
-03. Waah Yantee  11:04
-04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365305   (929006) от 08.03.2020
-
-Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (4:07)
- 02. Hello (4:09)
- 03. Stitches (4:04)
- 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
 ```
 
 https://mybot314.ru/tekegram_catalog/

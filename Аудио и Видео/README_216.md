@@ -1,3 +1,165 @@
+###  Публикация: 1422959   (306290) от 10.11.2020
+
+VA - Beach Bar Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyzen SA, Butler - Never Meant to Be (Original Mix) (6:11)
+02. Chappell, Gregor Salto - Lonely (4:43)
+03. Monodeluxe - Sunny Afternoon (Original Mix) (5:35)
+04. Marga Sol - Satisfied (Original Mix) (5:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B08C7074DB5E58C8444BDE780C4B871E010FE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422817   (306164) от 10.11.2020
+
+VA - Soothing Relaxation Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Therese - Contact (Original Mix) (3:57)
+02. Marga Sol, Michael e - Reflections of You (Original Mix) (3:49)
+03. Malkou - Paris Á L'aube (Original Mix) (3:55)
+04. Roberto Sol, Nera - Sensuality (Ballad Mix) (4:02)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3C51020D03CAF41972F85BCF5BD024D1A5FB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845868   (305965) от 30.11.2014
+
+Самый опасный человек / A Most Wanted Man (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая война начинается со страха. Каждое предательство начинается с доверия. Глава секретного подразделения разведки получает задание найти опасного международного беглеца Ису Карпова, которого из симпатии укрывает молодая девушка-адвокат. Когда в погоню вступают разведки других стран, начинается большая шпионская игра, в которой любой может оказаться наживкой или акулой. А национальная безопасность нередко зависит от простых человеческих чувств.Жанр: ТриллерРежиссер: Антон КорбейнПродюсер: Андреа Колдервуд, Саймон Корнвэлл, Стивен КорнуэллАктеры: Филип Сеймур Хоффман, Рэйчел МакАдамс, Уиллем Дефо, Григорий Добрыгин, Нина Хосс, Робин Райт, Райнер Бок, Хомаюн Эршади, Мехди Дехби, Даниэль БрюльПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: АнглийскийПродолжительность: 02:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AA5D6023AEB41B46584E9035BC0AD96EA4C36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960849   (305291) от 29.11.2015
+
+Приключения Пикси / Pixies (2015) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смешные шалости и хулиганские проказы пиксиков, волшебных эльфов, которые обычно живут глубоко под землей, перевернули жизнь обычного парня Джо Бека вверх дном.Производство: КанадаЖанр: Мультфильм, комедияРежиссер: Шон Патрик О’РейлиАктеры: Алекса ПенаВега, Карлос ПенаВега, Билл Пэкстон, Кристофер Пламмер, Джофф Густафссон, Элисон Вандзура, Дэвид Милчард, Кифер О’Рейли, Шон Патрик О’Рейли, Эрик ПоллинсПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 1:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD2BD9951C6BCC6E90B7C83445AC5E916F99C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183837   (305170) от 15.11.2017
+
+Демон внутри / The Autopsy of Jane Doe (2016) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой девушки без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: СШАЖанр: Ужасы, триллер, детективРежиссер: Андре ОвредалАктеры: Брайан Кокс, Эмиль Хирш, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Джейн Перри, Паркер Сойерс, Мэри Дадди, Марк Феникс, СидниПеревод: Многоголосый закадровый (Лицензия)Субтитры: Русские,  АнглийскиеПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D737E89C623E898B5626A3296CC38CDE664DA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183971   (304939) от 15.11.2017
+
+Крым  (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304939.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о любви, вере и чести, о силе духа и настоящей дружбе на фоне реальных событий крымской весны 2014 года. Судьба свела их в Крыму близ древнего города Мангуп-Кале. Это была любовь с первого взгляда… В непростые дни исторических перемен они должны сохранить свою жизнь и любовь.Производство: РоссияЖанр: Драма, боевикРежиссер: Алексей ПимановАктеры: Роман Курцын, Евгения Лапова, Павел Крайнов, Павел Трубинер, Борис Щербаков, Елена Котельникова, Геннадий Яковлев, Алексей Комашко, Никита Зверев, Игорь БуяноверПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE59AC432556A1CD3F2A7D3515C07CABCD8CF696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261309   (304848) от 10.11.2018
 
 Кристофер Робин / Christopher Robin (2018) BDRip [1080p] ATV
@@ -537,180 +699,6 @@ Iron Angel - Emerald Eyes (2020) [AAC|~345 Kbps] <Speed Metal, Thrash>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC06DE0472F0E86AFCAB48DA9A7CA6F30001F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423239   (302621) от 12.11.2020
-
-VA - Purple Sky Lounge: Chillout Your Mind (2020) [AAC|~334 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Asavari (Original Mix) (5:21)
-02. Vincent Boot - Code (Original Mix) (6:00)
-03. Ingo Herrmann - Animal Life (Original Mix) (2:33)
-04. Marga Sol - Beautiful Morning (Seven24 & S.A.T Remix) (5:04)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB87AF39A3BF4C073D8D08CB5D56D6D1B75BF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423320   (302620) от 12.11.2020
-
-VA - My Garden Lounge: Chillout Your Mind (2020) [AAC|~336 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
-02. Michael e - Andiamo (Original Mix) (4:42)
-03. The Soul Crusaders - Escape from Reality (5:03)
-04. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789D129D294F26C2465E01E2D401A9B731A98A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423241   (302616) от 12.11.2020
-
-VA - On the Beach Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Get This Right (Original Mix) (2:47)
-02. Michael e - Infinite Beauty (Original Mix) (4:54)
-03. Clive Button - A Wish Come True (Original Mix) (4:42)
-04. Weber & Weber - Close to Nature (5:08)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7D8E2995560338AD0B5DC9A6F7D66EA999BE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423319   (302615) от 12.11.2020
-
-VA - Trip to Paris Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Romantic Paris (Original Mix) (2:28)
-02. Iffar - Des Pois (Original Mix) (4:48)
-03. Massimo Faraò Trio, Philip Harper - Round Midnight (Piano Jazz Trio, Trumpet) (5:20)
-04. Andrea Beneventano - Soul Eyes (4:37)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBF6B108048DAF9C6A45F0CCBEA83945B4293C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423323   (302614) от 12.11.2020
-
-VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [AAC|~309 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Rose for You (Original Mix) (5:39)
-02. Michael e - Tropic of Capricorn (Original Mix) (8:02)
-03. Simon Le Grec - Romantique Part Un (Sensitive Mix) (4:40)
-04. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9663D51DF5177306B7866C90211EBB2B92F38DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423237   (302613) от 12.11.2020
-
-VA - Happy Moments Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol, Chris le Blanc, Lisa De Andrade - Coracao (4:24)
-02. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
-03. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
-04. The Soul Crusaders - Into the Setting Sun (4:39)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB6E3EC7993ABB39F8C8B105473F81684E6B1FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

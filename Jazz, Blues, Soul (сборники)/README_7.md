@@ -1,3 +1,32 @@
+###  Публикация: 1118678   (811230) от 26.03.2017
+
+Climax Blues Band - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fool For The Bright Lights
+02. Little Red Rooster
+03. Chasin Change
+04. Summer Rain (Live From Miami 1979)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9B2CD6C4C17600D01E51133705E63148DFD98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118812   (811223) от 26.03.2017
 
 VA - Road Blues: Soul Collection (2017) 2CD [MP3|256-320 Kbps] <Blues, Rock Blues>
@@ -717,35 +746,6 @@ VA - Jazz From Monday On (2019) [MP3|320 Kbps] <Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DB4F0EC6B3D08044DC0042C45091F6B8CD52C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202274   (790410) от 28.01.2018
-
-VA - Blues Collection (Winter) (2018) [MP3|320 Kbps] <Blues. Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aynsley Lister -  Hurricane  (06:10) 
-02.Bill Wyman's Rhythm Kings -  Disappearing Nightly  (03:47) 
-03.Chris Robinson Brotherhood -  Blonde Light of Morning  (04:03) 
-04.Bluespam -  Are You Moving On  (04:24) (   Читать дальше...   )Жанр: Blues. Blues RockПродолжительность: 04:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE20B1F9012E65AB6327F2E4AA47E641CA25503
 ```
 
 https://mybot314.ru/tekegram_catalog/

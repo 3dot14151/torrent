@@ -1,3 +1,90 @@
+###  Публикация: 1424245   (229106) от 16.11.2020
+
+db and Ishq - Inbetween (2020) Virtual [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromosome (12:11)
+ 02. Hypnagogia (05:33)
+ 03. Pareidolia (09:33)
+ 04. Flote (08:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A30F347A38D8FA9D87716D90D382DF1F99AEF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649750   (228347) от 29.07.2023
+
+Eguana - Night Ambient Vol​.​2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Noise Outside (6:12)
+2. Sedation Noir (5:33)
+3. Drowsiness (4:49)
+4. Slumber (5:37)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935637CC5D53B2CA4BFD827A811A7E7B6DAB775A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268320   (228235) от 10.12.2018
+
+Will Dutta - 2 Albums (2012-2017) Just Music [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiting Flowre (03:51)
+ 02. Tangram (03:34)
+ 03. Bloume (03:47)
+ 04. A Higher Sense Of Time (feat. Plaid & Ed Macfarlane) (03:23)(   Читать дальше...   )Тип издания: CD, WebЖанр: Modern Classical/Ambient/ExperimentalПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C9248B915C364F6D7F43DC71F3FE86D9F1C2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424454   (227771) от 17.11.2020
 
 Lamasz - Nature Morte (2020) Past Inside The Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
@@ -647,93 +734,6 @@ The Higher Intelligence Agency (HIA, H.I.A.) - Discography 22 Releases (1993-202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3D991F7C7036A0AD0231CC38024E36BEBE5652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344008   (214951) от 08.12.2019
-
-Aksemetrix - Aqua Perception (2018) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Perception (03:58)
- 02. Star Shepherd (04:16)
- 03. Slow Motion (02:34)
- 04. Light In The Sky (03:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2820FACA62E8875EB56D7134B0B1D65C20870F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426439   (214287) от 24.11.2020
-
-Lars Leonhard - Spaceflight (2020) Synphaera [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spaceflight (06:10)
- 02. Dragon Spacecraft (07:26)
- 03. Gamma Ray Burst (06:22)
- 04. Space Phenomena (06:40)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242583E2AA91B7CB1810A66F59AF2164ECF0E4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344049   (213693) от 09.12.2019
-
-Blank & Jones (feat. Marcus Loeber) - Silent Piano (Hourglass EP) (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hourglass (Solo Piano) (5:23)
- 02. I Love You (Solo Piano) (4:30)
- 03. Let It Go (Solo Piano) (5:37)
- 04. Leaves (Solo Piano) (6:32)(   Читать дальше...   )Жанр: Modern Classical, Solo Piano, AmbientПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0434ABC8DB82CD394B24F05D026BEE9048C93A
 ```
 
 https://mybot314.ru/tekegram_catalog/

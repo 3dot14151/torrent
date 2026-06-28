@@ -1,3 +1,164 @@
+###  Публикация: 1254755   (252480) от 09.11.2025
+
+Вторжение / Breaking In (2018) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать с двумя детьми после смерти отца приезжает в уединённый дом, чтобы разобраться с делами усопшего. Особняк оборудован по последнему слову техники и готов к продолжительной осаде. Спокойствие нарушает группа бандитов, мечтающая добраться до миллионов, скрытых в хранилище особняка. Но никакие ловушки или непробиваемые двери не смогут остановить разъярённую мать, (   Читать дальше...   )Производство: США, ЯпонияЖанр: Боевик, триллер, драма, криминалРежиссер: Джеймс МакТигАктеры: Гэбриэл Юнион, Билли Бёрк, Ричард Кебрал, Аджиона Алексус, Леви Миден, Сет Карр, Марк Фурз, Джейсон Уинстон Джордж, Криста Миллер, Дэмиен ЛикПеревод: Дублированный (iTunes)Субтитры: АнглийскиеКачество: BDRip 576pПродолжительность: 01:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440D4E79D935BB9CD96FA42DE9FFD67FECDFDF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822515   (252433) от 09.11.2025
+
+Стартрек: Возмездие / Star Trek Into Darkness (2013) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись на Землю, команда корабля «Энтерпрайз» обнаруживает, что деятельность и принципы их организации подорваны изнутри. Флот скован необъяснимым ужасом и бездействует, пока мир все глубже погружается в бездну. Капитан Кирк берет на себя руководство операцией по поимке злодея, ответственного за этот хаос и способного уничтожить все человечество. В запутанной (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Леонард Нимой, Крис Пайн, Закари Куинто, Зои Салдана, Карл Урбан, Саймон Пегг, Джон Чо, Бенедикт Камбербэтч, Антон Ельчин, Брюс ГринвудПеревод: Профессиональный (дублированный) (Blu-ray CEE)Язык субтитров: Русский, АнглийскийКачество: BDRipПродолжительность: 02:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A5BC891A36358B873431374A2136AF7AE76C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565459   (249462) от 23.07.2022
+
+Убойные каникулы / Tucker and Dale vs Evil (2010) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа студентов колледжа отправляется за город, чтобы вовсю оторваться на выходных: попить пивка, поплавать в озере и подышать чистым лесным воздухом. Но уже в первый день они сталкиваются с неотесанными фермерами Такером и Дэйлом, также решившими как следует оттянуться на природе. Приняв этих диковатых, но, в сущности, симпатичных ребят за «злобных местных», горожане (   Читать дальше...   )Производство: Канада, США / Alberta Film Development Program of the Alberta Government, Eden Rock Media, Gynormous Pictures Inc., Kintop Pictures, Loubyloo Productions, National Bank of Canada TV and Motion Picture Group, Reliance Big Pictures, T&D Productions, Urban IslandЖанр: ужасы, комедияРежиссер: Эли КрэйгАктеры: Тайлер Лэбин, Алан Тьюдик, Катрина Боуден, Джесси Мосс, Филип Грэйнджер, Брэндон Джей МакЛарен, Кристи Лэйн, Челан Симмонс, Трэвис Нельсон, Алекс АрсеноПеревод: Дублированный, одноголосыйСубтитры: Русские (Д. Пучков), Английские (SDH)Продолжительность: 01:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F501B36400B94A42C16AB6505E14482F36FD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471850   (248379) от 06.05.2012
+
+Интерны (2010-2012) Серии 81-124 (обновление) SATRip | iPod
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои ситкома — четыре интерна. Они все время попадают в идиотские ситуации, а их руководитель доктор Быков с удовольствием за этим наблюдает. Доводить интернов до белого каления Быкову помогает друг доктор Купитман и мешает главврач больницы Анастасия Кисегач.Жанр: Комедия, СемейныйРежиссер: Максим ПежемскийАктеры: Иван Охлобыстин, Вадим Демчог, Светлана Камынина, Александр Ильин мл., Кристина Асмус, Илья ГлинниковПеревод: ОтсутствуетПродолжительность: 24 серии по 25 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705502   (246845) от 21.07.2023
+
+Теория Большого Взрыва / The Big Bang Theory (Сезон: 1-6) [Кураж-Бамбей] (2007-2013) WEB-DLRip, BDRip [480p] iPhone/iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два блестящих физика, Леонард и Шелдон, «великие умы», которые понимают, как «работает вселенная». Но их гениальность ничуть не помогает им общаться с людьми, особенно с женщинами. Всё начинает меняться, когда напротив них поселяется красавица Пенни.
+
+Когда Леонард и Шелдон встречают Пенни, Леонард сразу же начинает интересоваться ею. Он видит в общении с Пенни огромную (   Читать дальше...   )Жанр: комедия |В ролях: Джонни Галэки, Джим Парсонс, Кейли Куоко, Саймон Хелберг, Кунал Нэйэр, Мелисса Рауш, Майем Биэлик, Кэрол Энн Сьюзи, Кевин Суссман, Арти Манн и др.Перевод: Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийФормат: M4VКачество: WEB-DLRip, BDRip (3 сезон)Продолжительность: 135 х ~00:20:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1CF3F44235675621B8394BF056B93C8D2B92D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511326   (246061) от 20.11.2021
+
+Synth Replicants - Cyclus ONE (2020) [AAC|~316 Kbps] <Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trip back to Los Santos (5:57)
+02. Closer to the sun (7:20)
+03. Babushka Dream (9:07)
+04. In the name of the Father (5:33)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28CD3FA32E8E2A3A766977A2AB3EECB07C7644E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511284   (246051) от 20.11.2021
 
 Marina & the Kats - Small (2015) [AAC|~318 Kbps] <Swing, Jazz>
@@ -571,180 +732,6 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 4 (2015) [AAC|~3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E50AD95441E00B973065CC502302C174318E4087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522835   (245229) от 09.01.2022
-
-VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 1 (2014) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twentyeight - Memories (4:51)
-02. Ambiworx - Yellowstone Peaks (10:13)
-03. Pnfa - Blue (4:39)
-04. Twentyeight - Apparitions (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814A3EF455D94D87044E9F27CE32BF245FB444D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522885   (245223) от 09.01.2022
-
-VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 2 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patchy - Friend (3:20)
-02. Panos K. - Sunrise (5:38)
-03. Davide De Michele, Gabry Dee - Beautiful Girls (8:30)
-04. Freedom - Derail (Deep Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FCE06136E25F48F9174142D22A9CF9BABCC309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522810   (245168) от 09.01.2022
-
-VA - The Electro Swing Revolution (2011) [AAC|~305 Kbps] <Electro Swing, Nu Jazz, Breakbeat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lyre le temps - Lady Swing (3:52)
-02. Movits - Fel Del Av Garden (4:14)
-03. BOOGALOX - Chez Les Yé-Yé (4:30)
-04. Italian Secret Service - Not the Same (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, BreakbeatПродолжительность: 01:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0DC442191F9BB25273A7789343D09C03D21BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523066   (245115) от 10.01.2022
-
-VA - Nightflight Rio - 22 Premium Downbeat & Lounge Trax (2014) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Maretimo - One Night in Rio (Ipanema Beach Mix) (4:55)
-02. Cálido - El Calor (Patrick Marsh Chillout Mix) (5:41)
-03. Sunseeker - Soul Evine (Funky Chill Mix) (5:21)
-04. Floating Clouds - Sun and Water (Long Cut) (6:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0886DC823E4921329C40B3E084199BF606649CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523064   (245106) от 10.01.2022
-
-VA - Nightflight Mallorca – 22 Premium Downbeat & Lounge Trax (2013) [AAC|~345 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Maretimo - Ocean Cruiser (Wavepatcher Cut) (5:22)
-02. Orange Music, Mirjam - Take Me 2 the Sea (Floating Voice Mix) (6:56)
-03. Emotional - I Found It Again (Tom's V-Mix) (5:35)
-04. Good Chillaz - No Motion (Jazz Relax Mix) (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E249CB017A2D6A8357702BC478616DBD08DB5204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523098   (245092) от 10.01.2022
-
-VA - Reggaeton Nocturno, Vol. 4 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yaga & Mackie, Arcangel, De La Ghetto - Aparentemente (5:04)
-02. Jhay Cortez, Rafa Pabön - Cuando Bebe (4:14)
-03. Chyno Miranda, Zion & Lennox - Hasta El Ombligo (3:53)
-04. Lola Indigo, Rauw Alejandro, Lalo Ebratt - 4 besos (3:53)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE36167F986CFE4D26ED7E04564E6A027058A09D
 ```
 
 https://mybot314.ru/tekegram_catalog/

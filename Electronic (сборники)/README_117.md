@@ -1,3 +1,148 @@
+###  Публикация: 921848   (573706) от 26.07.2015
+
+19viii4 - Трекография (2015) [MP3|320 кб/с]<atmospheric dub, future garage, dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Sky [03:43]
+02. Elements [02:39]
+03. Follow Me [04:19]
+04. Forefault [03:40](   Читать дальше...   )Жанр: atmospheric dub, future garage, dubstepПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366526F1F53612D9F3D170EC6B48C4791FBFA0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043316   (573158) от 16.08.2016
+
+VA - La Terraza The Magic Of Lounge & Chill House Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Pacific Industries - Thinking Of You (4:57)
+02. Sunburn In Cyprus - Change (4:00)
+03. Mariana Lucy - Raining (4:11)
+04. Latin League - Mind & Soul (5:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4C36D209574FEE41735EE2E070959961D46877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043335   (572995) от 16.08.2016
+
+VA - Show Me Love Vol. 1 (The Ultimate Love Compilation) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol - Tomorrow (Extended Mix) (5:14)
+02. C Reflex - You You You (3:43)
+03. Naoki Kenji - Kismet (4:34)
+04. Polina Geht! - 1000 Chancen (3:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D4FD2F03808E11B8C1224E32E2490519949626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043427   (572991) от 16.08.2016
+
+VA - Ibiza House Hits Island Stars (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dimitri Vegas & Like Mike  -  A While (Ummet Ozcan Remix)  4:32
+002. Tiesto  -  Lethal Industry (MegaMen Remix)  6:11
+003. Bob Sinclar  -  Someone Who Needs Me (Kryder Remix)  5:08
+004. Fritz  -  Payday  5:20(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 09:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321C952509D44854304DD3C68FBBDE6E674B20DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043279   (572988) от 16.08.2016
+
+VA - Festival Ultra Hits & Anthems (2016) [MP3|320 Kbps] <House, Trance, Progressive, Dutch, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572988.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren, W&W  -  If It Ain't Dutch (Extended Mix)  4:21
+002. Dimitri Vegas & Like Mike vs. Ummet Ozcan  -  The Hum (Original Mix)  5:56
+003. Bassjackers & Thomas Newson  -  Wave Your Hands (Original Mix)  4:08
+004. DJ Dean & Danny Fervent  -  Headcrash (Club Mix)  5:10(   Читать дальше...   )Жанр: House, Trance, Progressive, Dutch, Future HouseПродолжительность: 09:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188CDC3DD31F625582868A7927737DD8BE398500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043460   (572986) от 16.08.2016
 
 VA - Beatport Trance Pack (15.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
@@ -601,151 +746,6 @@ VA - Milan Street Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6758489632A09E9B953128E082856F1AC796DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922723   (568358) от 29.07.2015
-
-VA - After Work Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonardo - Intro [01:55]
-02. Lisa - Feel Intensity [04:01]
-03. M. Vitoria - How Long Can I Wait [05:50]
-04. Paco Flores - Andalucia [05:33](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF385851A32749117E91763ABF5ECDDBEB819746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922713   (568356) от 29.07.2015
-
-VA - Relax Hotel Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gel - No Body [05:43]
-02. Nejmaoui - Beat Envolved [03:51]
-03. Nejmaoui - Karma & Bossa [03:33]
-04. Hotel Riviera - Slow [03:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1386A9AC4B08CAC621C84460A7AC9FA5FD2DA0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922717   (568203) от 29.07.2015
-
-VA - Extra House (episode 4) (2015) [MP3|320 кб/с]<Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jahkoy - Still in Love (Leon Bolier Remix) (04:39)
-02. Pasha & Izik - High Hopes (Original Mix) (06:50)
-03. Paul M. - Tayrona (Gux Jimenez Remix) (07:27)
-04. Olej, Stereoteric & Toxez feat. Raha - No Limits (Lessovsky Remix) (07:59)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62555B88B739CD87166B361060853DB282F8A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044263   (567571) от 19.08.2016
-
-VA - Ibiza Progressive Sessions Unleashed (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vadim Spark  -  New Life  7:20
-02. Sean Marx  -  Southbound  6:54
-03. Rufus K  -  Moonlight  6:53
-04. Jelly For The Babies & Filip Fisher  -  And Then Came You  5:13(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 02:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A11EC28D02CE73EE99E5882C1A90F0E4C9A59BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044158   (567472) от 19.08.2016
-
-VA - About Ultra EDM Melodies (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Emotional, Melodic, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Retek & Dbaste  -  Bianca (Alexandrians Remix)  7:39
-02. Pedro Del Mar & UDM  -  Boundless (Original Mix)  7:49
-03. Nomosk & Nathia Kate  -  Moments (Original Mix)  7:06
-04. ReLocate vs. Robert Nickson & Sarah Lynn  -  Will You Be There (Factoria Remix)  7:17(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Emotional, Melodic, ProgressiveПродолжительность: 10:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237890014DAF28E7968C3639508D7CBE4A54FEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

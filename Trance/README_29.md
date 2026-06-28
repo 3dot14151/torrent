@@ -1,3 +1,90 @@
+###  Публикация: 1160090   (474153) от 25.08.2017
+
+VA - Extrema Summer Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  4 Seas - Sagra (Radio Edit)  3:09
+02.  Hiroki Nagamine - Eien (Radio Edit)  3:15
+03.  Andres Sanchez & Amber Traill - Point Of Rescue (Vocal Radio Edit)  5:23
+04.  James Kelly & Craig Johnstone - Return To Reality (Radio Edit)  2:38(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B648DFDA4B14F1FB6B76913396B3DB17064CDB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245290   (474107) от 05.09.2018
+
+VA - Progressive Trance Selections Vol.06 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarenka - Mercan (Original Mix)
+02. TheRio - Tender (Extended Mix)
+03. Emotion Love - Return (Original Mix)
+04. Diego Morrill - Ventura (Imida Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5959457F999701FDEB5D48E44AD6E729F7909C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406994   (471187) от 05.09.2020
+
+VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Darroo - Rave Face 2018 (Original Mix)
+02. DJ Darroo - Lift (Original Mix)
+03. DJ Darroo - X Dream (Original Mix)
+04. DJ Darroo - Visions of Euphoria (Trance Mix)(   Читать дальше...   )Жанр: Hard Trance, TranceПродолжительность: 08:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23ECE10686DC4007A8844595CD20F64E77E12A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245684   (470084) от 07.09.2018
 
 VA - Essential Vocal Trance (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
@@ -655,93 +742,6 @@ VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8005A0162075D518E705EF170470AE00A77D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247252   (455114) от 14.09.2018
-
-VA - EnTangled Vol.03 (Mixed By Latex Zebra) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PhD & NG Rezonance - Rogue (Original Mix)
-02. Rhys Thomas - The Curve (Luke Warner Remix)
-03. Stefano Brigati - Recall (Ellez Ria Remix)
-04. Destia - Alloy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6255058BC7233D1E2A616C4D62CC4653A211E444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247171   (454936) от 14.09.2018
-
-VA - Black Hole Trance Music 09-18 (2018)[MP3|320 Kbps]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor Feat. Becky Jean Williams - The Real You (Extended Mix)
-02. Cosmic Gate - YEAH! (Extended Mix)
-03. Ferry Corsten & Jordan Suckley - Rosetta (Extended Mix)
-04. Antonio Moreno - We Ain't Ever Coming Down (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD33A7E82EA8FCB6B0E7F37E4EDF550593CF348B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569236   (453832) от 12.08.2022
-
-VA - Infrasonic Summer Selection (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Kumanov - Pura Vida (Extended Mix)
-02. Rakielis - Riposte (Extended Mix)
-03. Epidemika - Closer (Extended Mix)
-04. Pulse & Sphere - Energy Flow (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06B936C9ECD1EC5C484481D1A2AF1DD2D4618B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

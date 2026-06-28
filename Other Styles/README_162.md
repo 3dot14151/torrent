@@ -1,3 +1,119 @@
+###  Публикация: 150192   (169343) от 11.12.2019
+
+VA - Tarantinomania (1999) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pumpkin and Honey Bunny Speach (0:13)
+02. Dick Dale and His Del-Tones - Misirlou (2:11)
+03. Urge Overkill - Girl, You'll Be a Woman Soon (3:01)
+04. Rem Jem - Black Betty (2:27)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A539F11E6CD428942BD600676C11D8C03084238D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431059   (168819) от 12.12.2020
+
+Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Kiss (3:15)
+ 02. You Give Me Love (3:35)
+ 03. Let Me Let Go (4:25)
+ 04. Love Ain't Like That (3:50)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA7968F442058A7981E66E3B8CA0C01DA7D8619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 7944   (168752) от 12.12.2019
+
+Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcelona Nights
+02. Heart Still / Beating (4 Berlin)
+03. 3 Women Walking
+04. 2 the Night (Fast Cars) (4 Frank)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32113FCD8FC96FBCF53C9A0E60F56DE214085746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515706   (168515) от 08.12.2021
+
+Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in the waves
+02. Native tears
+03. Wuambrito otra vez
+04. Sounds of nature(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1733892FAA2C7EC7AC65ED37C1E5D68DE8C388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515610   (168482) от 08.12.2021
 
 VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Русские народные песни, гармонь>
@@ -628,122 +744,6 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549080   (163946) от 02.11.2023
-
-Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [FLAC|Lossless]<Folk / Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Христос Воскрес!
-02. Разлад
-03. Монолог собаки
-04. Появились молодые...(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169626627403A2AD4A35793A9BC5DFF450D627E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531612   (163888) от 02.11.2023
-
-Марина Капуро - Золотые хиты (2002) [FLAC|Lossless]<Folk, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поле, поле
-02. Летела гагара
-03. В горнице
-04. Деревня(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C50AD9AFEE71E26E93FF6BD60E1FDFA4F52E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346577   (163563) от 19.12.2019
-
-John Towner Williams - Звёздные войны: Скайуокер. Восход / Star Wars: The Rise of Skywalker (2019) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fanfare and Prologue
-2. Journey to Exegol
-3. The Rise of Skywalker
-4. The Old Death Star(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9025BA742BB5201FE4DC27F30FC474746D4A3449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597936   (163021) от 18.12.2022
-
-Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nothing Is Lost (You Give Me Strength) – The Weeknd
-2. Hometree – Simon Franglen
-3. Happiness Is Simple – Simon Franglen
-4. A New Star – Simon Franglen(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
 ```
 
 https://mybot314.ru/tekegram_catalog/

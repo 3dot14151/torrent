@@ -1,3 +1,90 @@
+###  Публикация: 1747647   (44409) от 06.09.2024
+
+VA - Trance 100 - Best Of Summer 2024 - Extended Versions (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - Es Vedrà (Extended Mix) [6:35]
+002. Reinier Zonneveld & Tiga & Zyntherius - Sunglasses At Night (Extended Mix) [6:12]
+003. Ben Gold & Bo Bruce - Half Light (Extended Mix) [9:33]
+004. Lock 'N Load - Blow Ya Mind (Laherte Extended Remix) [5:03](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 09:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778955D501E51FE0848D919FDB2DA4BE79DB4C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747621   (44197) от 08.09.2024
+
+VA - Trance 2024, Vol. 6 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Classics & Esmee Bor Stotijn - It's Time (Stargazers Remix) [3:31]
+02. Alan Morris & Denise Rivera - One Day At A Time (Original Mix) [3:26]
+03. Raz Nitzan & Neev Kennedy - Someone Else's Lover (Mhammed El Alami Uplifting Remix) [3:39]
+04. RAM & Arctic Moon & Stine Grove - A Billion Stars Above (Ciaran Mcauley Remix) [2:54](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC262C7407748EB9325704FB1637465C0902D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748705   (43903) от 11.09.2024
+
+VA - Trance 2024, Vol. 7 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Richard Durand - Nebula (Original Mix) [4:12]
+02. BiXX & Stargazers & Sarah Russell - A River Runs Through Me (Original Mix) [3:32]
+03. Stoneface & Terminal - Sun & Soul (Original Mix) [3:52]
+04. Kaimo K & Ellie Lawson - Till I Found You (Original Mix) [3:35](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C2E4B0DF930E249EDF1257C88F602BFD411B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748676   (43874) от 11.09.2024
 
 VA - Uplifting Only Top 15: September 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -652,93 +739,6 @@ Ferry Corsten - Connect (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E597D24E6829B6DB58C2E7A9F29576E7CFB4B2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762491   (36152) от 25.11.2024
-
-VA - The Best Of Suanda Base 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Milov - The Life We Knew (Extended Mix) [3:48]
-02. Adip Kiyoi - November (Extended Mix) [4:53]
-03. Michael Milov - Pilgrim (Extended Mix) [4:39]
-04. Mind-X & Tatana - Infusion (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B753DC7E0A87B56289571B98EC77F825A20BBFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763297   (35629) от 30.11.2024
-
-VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ovnimoon - Feel on Me (Original Mix) (10:33)
-02. Hoopoe - Aracari (Original Mix) (07:39)
-03. Pico Boulevard - Oblivion (Enlusion Remix) (10:18)
-04. Facade - Daedra (Original Mix) (08:08)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F352546785042CCBDD859B94D728F61FA86C4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763618   (35415) от 02.12.2024
-
-VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Wilks - Voice In The Dark (Extended Mix) (07:18)
-02. Dan Cooper - Electra (Extended Mix) (06:48)
-03. RAM, Richard Durand, Digital Culture, Spacefrog & Derb - Follow Me 2024 (Extended Mix) (07:49)
-04. 0Gravity & Lucas Deyong - Interfusion (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56D27138D2E00517966AFEF4DF80A28FEB4FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

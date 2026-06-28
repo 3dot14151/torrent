@@ -1,3 +1,125 @@
+###  Публикация: 1154183   (542536) от 29.07.2017
+
+VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumbao Cubacao - El sonero del barrio soy magou
+02. Mario Mayito Rivera - Son pa' Shakira
+03. Combinacion Latina Salsa - Estoy pegado
+04. Mario Mayito Rivera - Harley Davidson de Cuba(   Читать дальше...   )Жанр: Latin Music, CubanПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58090DD16AD40E8B768032A41ACE72EA0B0B830A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153629   (542524) от 29.07.2017
+
+VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin Band - Ai Se Eu Te Pego
+02. Roland - Danza Kuduro
+03. Latin Band - Waka Waka
+04. Krizia - On The Floor(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 03:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CDF946AD99E98A14BDF8B0880CD711FCEA142F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239123   (542424) от 03.08.2018
+
+Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Call of the Mountains
+02 – Are You Really Gone?
+03 – Falling Leaves
+04 – Life Changers(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9A866705FC0CE2AE584195EEB1932A23D2FBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530990   (542289) от 05.08.2012
+
+Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namania (4:09)
+2. N'tesse (4:31)
+3. Africa (4:50)
+4. Fimani (4:26)
+5. N'ba (4:38)
+6. Mali Ba (4:42)
+7. Barra (3:46)
+8. N'Teri (4:34)
+9. Nta Dima (3:03)
+10. Massake (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531222   (542043) от 05.08.2012
 
 Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
@@ -672,132 +794,6 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:923826FDF6E68B30803457206E004C755B7AE59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925668   (538759) от 07.08.2015
-
-The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Guitar
-02. The Third Man Theme
-03. La Playa
-04. The Executioner Theme(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154344   (538695) от 31.07.2017
-
-VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris-France-Transit - Souvenir From Rio [04:20]
-02. Santana - I Love You Much Too Much [04:41]
-03. Armik - Dancing Shadows [04:44]
-04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532378   (538560) от 07.08.2012
-
-Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buffalo Moon
-02. Brave Hearts
-03. Dream Catchers
-04. Geronimos Laughter
-05. Ly - O - Lay Ale Loya The Counterclockwide Circle Dance
-06. Come Faithful Ones
-07. Wishes Of Happiness & Prosperity
-08. Dawa The Cradlesong
-09. Montezuma
-10. May It Be(   Читать дальше...   )Жанр: Native American,New Age,Panflute,Instrumental,Продолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532252   (538244) от 07.08.2012
-
-Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beginnings
-2. Poeme Du bambou
-3. Hachijo
-4. Yamagoe
-5. Eisa
-6. Yuzuru
-7. Odaiko
-8. Yatai BayashiЖанр: Folk,Барабаны,Шоу,ЯпонияПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

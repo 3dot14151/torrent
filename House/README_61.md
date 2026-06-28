@@ -1,3 +1,177 @@
+###  Публикация: 1078980   (296396) от 03.12.2016
+
+VA - Black Hole Recordings Best Of 2016 (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Love Me Like You Never Did 04:22
+02. Cosmic Gate - Edge Of Life 03:18
+03. Myon & Shane 54 - Round We Go (Extended Mix) 05:07
+04. Ferry Corsten - Beautiful (Seven Lions Remix) 06:00(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098ECDC2CC92FAB9B6FB8A4CA193AC72E221B45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079204   (296395) от 03.12.2016
+
+VA - Best of EDM Party 2017 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Bulta (Original Mix) 3:53
+02. FLGTT - Party Jumpin (Extended Mix) 4:34
+03. Clubhunter - Tell Me (Turbotronic Mix) 4:11
+04. DJ Y.T - My Lady (Original Mix) 4:49(   Читать дальше...   )Жанр: HouseПродолжительность: 03:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290DD9CFA1227E407DC227AD053827C1397F7810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334239   (296381) от 28.10.2019
+
+Armin van Buuren - Balance (Extended Versions) (2019) [MP3|320 Kbps] <Big Room House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Avalan - Sucker For Love (2:56)
+02. Armin van Buuren & Avian Grays - Something Real (Feat. Jordan Shaw) (Extended Mix) (4:45)
+03. Armin van Buuren - Wild Wild Son (Feat. Sam Martin) (3:33)
+04. Armin van Buuren & Garibay - Phone Down (3:12)(   Читать дальше...   )Жанр: Big Room HouseПродолжительность: 02:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F9C1FDC38C35BA14F010B332E9C04EC807B3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185204   (295220) от 20.11.2017
+
+VA - Progressions (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Holliday - Multiverse [09:57]
+02. John 00 Fleming - Spirit Awaking [08:43]
+03. Tim Penner - The Temptress [08:32]
+04. Kintar - The Path [07:21](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 04:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840B4D34C5A975415CFD7CD0514737A965D8D866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334509   (294877) от 29.10.2019
+
+VA - Club Sounds Best Of 2019 (2019) 3CD [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294877.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Calvin Harris & Rag'n'Bone Man - Giant 3:49
+02. Avicii - Heaven 4:37
+03. Martin Garrix feat. Bonn - No Sleep 3:27(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAC33283149B8F53F34E1CAC8B025674A6B3513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185585   (293738) от 21.11.2017
+
+VA - Chillout Deep House 2017 Vol.1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miraux feat. Kimber Hernandez  - Haunted (Extended Mix)  5:37
+02.  Hel  - Belove (Original Mix)  5:25
+03.  Oscar GS  - Flavour (Original Mix)  7:02
+04.  K-Bana  - Sophisticated (Dub Mix)  7:09(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D2058FD4E479B3E9515C06F81684032BC47C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262653   (293522) от 16.11.2018
 
 VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funky>
@@ -568,180 +742,6 @@ VA - Who's Gonna Drive You Home Tonight (25 Deep-House Weekenders) Vol.5 (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07F5F8AF4CC590E155BA67907E256202E46F6B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081498   (283077) от 10.12.2016
-
-VA - Best Driving EDM 2017 (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Kkulbam (Radio Edit) 03:09
-02. Clubhunter - Tell Me (Turbotronic Mix) 04:11
-03. Dj E-Maxx - La Bomba (Extended Mix) 03:48
-04. Dj Y.T - My Lady (Original Mix) 04:48(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288CA263F670B399B5D541AF7ACFC953522C9E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264168   (282960) от 22.11.2018
-
-VA - If You Train Hart Enough You Will Come Closer To Your Goal (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tabish Green - Eddie (03:05)
-02. T.I.L.F. - Modations (03:05)
-03. Susan Sustain - Tryout (03:05)
-04. Styleshaker - Galaxy (03:05)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A741CFD6CD5521B8CC7313A47788EA3C7ADEED07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081940   (281118) от 11.12.2016
-
-VA - Release Records: Best Of (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Party - Alive 3:33
-02. Pink Panda - Xenon 6:28
-03. Third Party & Sentinel - Start It 3:50
-04. Magic Sound - Return 4:28(   Читать дальше...   )Жанр: HouseПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5127967515AC07257D4C4D326F1CE62E389F40EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081964   (281056) от 11.12.2016
-
-VA - Underground People Christmas 2016 (50 Tracks For Your Winter Party) (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phunk Investigation - Dna Extractor (Markus Schulz Big Room Reconstruction Edit) 04:15
-02. M. Fukuda - Wind Knights 07:14
-03. Andreew - Olympic 06:36
-04. Anti-Slam & W.E.A.P.O.N - The Original B-Boy (Phunk Investigation Remix) 08:14(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 06:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9F99ADC381D6851554A7856C1A0098C421E1F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081966   (281052) от 11.12.2016
-
-VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W - How Many 2:48
-02. TWIIG - Hero 3:00
-03. Maurice West - Dont You Say 3:10
-04. W&W with Hardwell & Lil Jon - Live The Night 2:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081953   (281040) от 11.12.2016
-
-VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016) [MP3|320 Kbps] <House, Vocal House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Camaro - Soft 4:35
-02. Gaab - Way Back 4:58
-03. KVSH - Seekin' (Feat. Erinio) 5:41
-04. Paul Jacobson - Spend My Time (Radio Edit) 2:32(   Читать дальше...   )Жанр: House, Vocal House, ProgressiveПродолжительность: 02:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

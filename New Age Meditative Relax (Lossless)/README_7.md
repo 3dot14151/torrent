@@ -1,3 +1,90 @@
+###  Публикация: 1380275   (831572) от 04.05.2020
+
+Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namaste 04:10
+2. Evocación 06:21
+3. Caminante del cielo 05:20
+4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380230   (831564) от 04.05.2020
+
+Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831564.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Camelot 05:06
+2. Reflejos de luna 05:14
+3. El ritmo de la luna 05:48
+4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380759   (831453) от 04.05.2020
+
+Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZOOM0001 (01:04)
+ 02. ZOOM0002 (02:35)
+ 03. ZOOM0003 (02:29)
+ 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5602040761846DA6DC18ECDA0A9CD31AAD568B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380680   (831361) от 04.05.2020
 
 Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -656,90 +743,6 @@ Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117638   (815347) от 24.03.2017
-
-Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, Never Sleep [00:04:05]Жанр: Electronic, AmbientПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 777195   (814093) от 14.04.2014
-
-Yanni - Ultimate Yanni (2003) 2CD [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paths of water
-02. Marching season
-03. Reflections of passion
-04. Looking glass(   Читать дальше...   )Жанр: New Age |Продолжительность: 02:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD92B6398A4EC2661F19627324BAD3D3071AECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382890   (813459) от 14.05.2020
-
-Mike Oldfield - Light + Shade (2005) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksilver (5:56)
-02. Resolution (4:33)
-03. Slipstream (5:15)
-04. Surfing (5:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F78596288676D705A97157328687751BBD025F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1672518   (169238) от 28.10.2023
+
+VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. John O'Callaghan - Riverside (Extended Mix) [7:31]
+02. DJ Eternity - Living For Today (Extended Mix) [7:38]
+03. DJ Sakin & Talla 2XLC - Nomansland (David's Song) (Extended Mix) [6:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4ED2BA6D47C0716F9C6741B86DDD4A47951928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596724   (169203) от 11.12.2022
+
+VA - Best of We Are Trance 2022 Mixed by DJ GOOSE [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bram VanK & Northern Project - Twitch (Dinamic Extended Edit) (5:23)
+02. InfeXus - Illusion (Extended Mix) (6:43)
+03. Numedian - Babylon (Extended Mix) (7:45)
+04. Slow Emotion - Summer's Answer (Extended Mix) (6:55)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA8D1B96714424529B466969D88E7D444C0052D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596733   (169202) от 11.12.2022
+
+VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze & Kenny Palmer - Insomniacs (Extended Mix) (6:22)
+02. UDM - Airwave (Extended Mix) (6:35)
+03. DJ Shog - Make The Sun Rise (Woody van Eyden Extended Remix) (7:33)
+04. Arctic Ocean - Feel The Wave (Extended Mix) (6:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82621C42335C292412561514DA609A6D9C8902EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596457   (168957) от 11.12.2022
 
 VA - Vocal Trance 2023 (2022) [MP3|320 Kbps] <Trance>
@@ -656,93 +743,6 @@ VA - Black Hole Recordings - Best of 2022 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184B15FC8D96FD5F0CC10EC68F7BEDC304EDF505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599742   (159635) от 24.12.2022
-
-VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milad E & David Deere - Metamorphic (Original Mix) (3:09)
-02. Andrew Mirt & Natune - My Fairytale (KWONE Extended Remix) (4:25)
-03. Paul Echo - The Journey (Extended Mix) (5:34)
-04. POPOFF & Ria Joyse - Full Of Love (Extended Mix) (5:36)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0591115DE24797BD9C42C2C0ACD3000B1C08B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599577   (159621) от 24.12.2022
-
-VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Connelly - Got To Give (3:59)
-02. Metta & Glyde - Build A Bridge (3:41)
-03. Stargazers - Stand Me Up Alive (3:47)
-04. Raz Nitzan - Moon Phases (3:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042D478D9F863491601DA4B77CD86083E5EE7AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967685   (158491) от 21.12.2015
-
-VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Tayle feat. Poppy - The Way Back Home (Solid Stone Remix) (6:23)
-02. Genix - Makoto (Original Mix) (5:19)
-03. Ferry Tayle feat. Sarah Shields & Ludovic H - The Most Important Thing (LTN Remix) (5:48)
-04. Mhammed El Alami - Arton (Original Mix) (6:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF42A8CBC3FCEB2E16C887A03A08E213FC70935C
 ```
 
 https://mybot314.ru/tekegram_catalog/

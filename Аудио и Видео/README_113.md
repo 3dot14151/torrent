@@ -1,3 +1,174 @@
+###  Публикация: 1532554   (713143) от 20.02.2022
+
+VA - Tea Time Moments, Vol. 2 (2018) [AAC|~306 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belinha Bossa Duo - Carinhoso (Original Mix) (4:34)
+02. Raquel Silva Joly - Preciso Aprender a Ser So (Original Mix) (6:22)
+03. Gabrielle Chiararo - Night and Day (Instrumental Mix) (3:22)
+04. Nagual - Cantilena (Original Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB5F8633ECE122CAE54B97BCFD0F14ADDC2E986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532559   (713134) от 20.02.2022
+
+VA - Study Sounds 014 (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Chiller - Urban Night (3:00)
+02. Teatisana - Lovely Lavander (2:02)
+03. Johannes Fischer, Theo Levi Fischer - Night Sky (Piano Version) (2:42)
+04. Koul - Doñana (2:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFBA147D1FC89A80C7F5683682C1A59970F42EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893615   (713120) от 29.04.2015
+
+Пирамида / The Pyramid (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа американских археологов раскапывает древнюю пирамиду, расположенную глубоко под египетской пустыней. Когда они начинают исследовать внутренние помещения пирамиды, то безнадежно теряются в ее бесконечных темных катакомбах.Производство: СШАЖанр: УжасыРежиссер: Грегори ЛевассёрАктеры: Эшли Хиншоу, Дэнис О’Хэр, Джеймс Бакли, Криста Никола, Амир Камиаб, Файкал Аттугуй, Филип Шелли, Аит Хаму Амин, Омар Бенбрахим, Джозеф БедделемПеревод: Дублированный (iTunes Russia)Продолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518B235282604D9AD438B63E4258DCB197425291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532528   (713117) от 20.02.2022
+
+VA - Soulful Jazz Cafe, Vol. 2 (2016) [AAC|~342 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benatural - English (Extended Mix) (2:44)
+02. KoolSax - Transmission (5:15)
+03. Florito - A La Playa (5:29)
+04. Marga Sol - Amazing (4:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C4BB14224D4E7169017E99B01B6CB1B0B31B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532526   (713115) от 20.02.2022
+
+VA - Soulful Jazz Cafe, Vol. 1 (2016) [AAC|~331 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Area Code 51 - Chillout In Paris (3:30)
+02. Lounge Groove Avenue - Soulstream (2:43)
+03. Peter Pearson - Through The Ether (4:09)
+04. Jerome Adam - Apue (Original Mix) (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C44C69E73004580ACCA8ECE927FEEE66D128361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532553   (713109) от 20.02.2022
+
+VA - Tea Time Moments, Vol. 1 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle Chiararo - So Nice (Original Mix) (2:46)
+02. Gabrielle Chiararo - Smooth Operator (Instrumental Mix) (5:05)
+03. Gabrielle Chiararo - Estate (Instrumental Mix) (3:40)
+04. Gabrielle Chiararo - Parole Parole (Instrumental Mix) (4:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C307C29DB8A9039266761909760F956C68AC65F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532555   (713107) от 20.02.2022
 
 VA - Tea Time Moments, Vol. 3 (2019) [AAC|~325 Kbps] <Lounge, Chill Out, Smooth Jazz>
@@ -524,177 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5244BE6C89038C7B796F0399D5CB90377574F50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894211   (709560) от 01.05.2015
-
-Пятьдесят к одному / 50 to 1 (2014) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709560.jpg" />
-</div>
-
-
-###  Подробнее
-
-США, 2000-е годы. Талантливый и опытный наездник Калвин Борел на регулярной основе принимает участие в скачках штата Кентукки. Несмотря на его огромный опыт, он так и не нашел себе скакуна, который не только отвечал бы его ожиданиям, но и стал настоящим единомышленником, партнером, другом. Тем временем на одной из провинциальных конюшен рождается красивейшая лошадь чистокровной породы. Она легкая, быстрая, изящная, за что сразу получает кличку «Моя птичка». Узнав о ее существовании, Борел немедленно ее выкупает (   Читать дальше...   )Производство: США / Ten FurlongsЖанр: драмаРежиссер: Джим УилсонАктеры: Скит Ульрих, Кристиан Кэйн, Уильям Дивэйн, Мэдлин Дойч, Тодд Лоу, Дэвид Эткинсон, Кэлвин Борел, Брюс Экелман, Хьюго Перез, Элой КасадосПеревод: Многоголосый закадровыйОзвучка / Автор перевода: Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A256CD6791ED165A9A212F59973DCABF71852FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532776   (709105) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 14 (2020) [AAC|~315 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Israel Vich, Marco Tegui - Tortuga (Original Mix) (6:08)
-02. Foxall, Deaf Can Dance - Babel (Original Mix) (7:37)
-03. Fulltone - Looped (Original Mix) (5:20)
-04. Derrok, Biomigrant - Sueño Profundo (Just Emma Remix) (9:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36AE3641128A666A29A800511E63CEAA2860132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532775   (709104) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 13 (2020) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JPattersson - Silkwood Shower (Dolph Bees & Bears Remix) (7:02)
-02. David Rausch - Substance (Original Mix) (7:46)
-03. Israel Vich, Tony V, Zufu - Ayahuasca Gift (Original Mix) (5:20)
-04. Fulltone - Cricket Groove (Original Mix) (7:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6385E2FCDFC0D964474485A0457F494B1647C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532975   (709102) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 16 (2021) [AAC|~326 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PALMFooD - Bogogan (8:00)
-02. Amount - Tripping Octaves (6:04)
-03. Kotelett & Zadak - Sapiens (Original Mix) (7:34)
-04. Renga Weh - Kaleidoscope (Original Mix) (5:52)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52622C7A7192B5AF1B07553D6020A278E77D387E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532973   (709101) от 22.02.2022
-
-Martin Hiska - Abroad (2020) [AAC|~311 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shahma (4:30)
-02. One On One (4:54)
-03. Bansi (6:33)
-04. Stepping Stone (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F7936C26C9BEDC59A8674A6A78D326172CC77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532755   (709099) от 22.02.2022
-
-Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1001 Desires (6:24)
-02. Stateless (5:31)
-03. Ali (4:10)
-04. Beyond Dreams (5:04)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD32F01A9FEE78EC44A22BE21ED978569CE1C91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

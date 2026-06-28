@@ -1,3 +1,32 @@
+###  Публикация: 1679558   (135200) от 26.11.2023
+
+VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Secchi presents Oscar - Children  Voyage
+02.  740 Boyz - Party Over Here
+03.  Unlimited Nation - Move Your Body
+04.  Edison - The Whistle(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35840338C8844828AD01BF48C4FD6B83C910EFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680390   (133875) от 30.11.2023
 
 VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -727,35 +756,6 @@ VA - Disco Balls Miami 2023 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4171A06E92D6ECD9F8D0EBB7D9786AA604E99D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692065   (122960) от 14.01.2024
-
-Michael Cretu - 5 Albums (1979-1992) LP [MP3|320 Kbps] <Electronic, Pop, Disco, Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий музыкант и музыкальный продюсер румынского происхождения, создатель и идейный вдохновитель музыкального проекта Enigma. До этого работал со многими музыкантами: Сандра (с которой был брак и развод), Hubert Kah, Франк Фариан, Boney M., Мирей Матье, Петер Корнелиус и Майк Олдфилд. Позже партнёрами по творческой работе стали Франк Петерсон,Йенс Гад, Angel Х, (   Читать дальше...   )Список альбомов:
-1979 - Moon, Light & Flowers
-1983 - Legionare
-1985 - Die Chinesische Mauer (Deutsch version)(   Читать дальше...   )Жанр: Electronic, Pop, Disco, Downtempo, Synth-popПродолжительность: 03:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF9DBA75AA60DDFD43AAC81E81EC03A62441523
 ```
 
 https://mybot314.ru/tekegram_catalog/

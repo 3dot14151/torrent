@@ -1,3 +1,174 @@
+###  Публикация: 1515097   (213946) от 05.12.2021
+
+Arkay Koo - Terra Server (2021) [AAC|~328 Kbps] <Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.I'm (Original Mix) (5:45)
+02. Dia Verde O Fuera Del Tiempo (Original Mix) (8:24)
+03. Cybee (Original Mix) (6:16)
+04. Quantum Flowers (Original Mix) (6:12)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B0DABAFE2B4BEBBB1553F4276E84B5185EC076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515085   (213937) от 05.12.2021
+
+VA - In Love with Lounge, Vol. 4 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Take It Easy (Original Mix) (4:08)
+02. Road - Saudades do Brasil (Original Mix) (4:29)
+03. Euphonic Traveller - Le Ciel de Paris (Pier-O Pont des Arts Mix) (3:55)
+04. Yantra Mantra - Pink City (Ayurveda Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3904034FB26D5F558B8AB24BF2D31848F535A6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193828   (213922) от 23.12.2017
+
+Снеговик / The Snowman (2017) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213922.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, ШвецияЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон, Шарлотта Генсбур, Йонас Карлссон, Майкл Йэтс, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  РусскиеПродолжительность: 1:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0448205CDC76C2247F1578FC33ED00D35DCAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515079   (213873) от 05.12.2021
+
+VA - Bedtime Stories, Vol. 1 (A One Night Lounge Affair) (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Summer in the City (Original Mix) (2:51)
+02. Carlos Corona - Empty Heart (Original Mix) (3:36)
+03. Andrew Morel - Make Your Heads Well (Original Mix) (4:06)
+04. Cool Laguna - Drive the Change (Chillout Mix) (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55271DEA8DF1F87E89C7016C3AA83646430DB134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515083   (213864) от 05.12.2021
+
+VA - Bossa & Latin Flavours (2021) [AAC|~339 Kbps] <Nu Jazz, Bossa Nova, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nostra - Inverno (Cybophonia Bossa 'N' Funk Remix) (10:38)
+02. 12 Fingers, Viviane Cruz - Rio (5:46)
+03. Bossa Nostra, Bruna Loppez - Espera (2:07)
+04. Silvia Donati, Clan Greco - Avenida (4:57)(   Читать дальше...   )Жанр: Nu Jazz, Bossa Nova, LoungeПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1C025B740228959E6C3970A21A2BF962C7B380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515113   (213850) от 05.12.2021
+
+VA - Lounge Erotique (Seductive Night in a Loungy Mood) (2015) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giacomo Bondi - A Noite Passa (4:39)
+02. St Project - One Night Only (3:35)
+03. Francesco Demegni - Seduction (3:15)
+04. Luna Lounge - Bengala Mantra (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59579EDFABD4A3F008E35E8A7AFC3A9BB1B005C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194040   (213834) от 23.12.2017
 
 Снеговик / The Snowman (2017) WEB-DLRip [576p] iPad
@@ -546,177 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C9A106A6DC88A80CFFA9FA75268B0756F32704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860670   (192206) от 01.11.2022
-
-Эрих Мария Ремарк | На западном фронте без перемен (2006) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их вырвали из привычной жизни... Их швырнули в кровавую грязь войны... Когда-то они были юношами, учившимися жить и мыслить. Теперь они - пушечное мясо. Солдаты. И учатся они - выживать и не думать. Тысячи и тысячи навеки лягут на полях Первой мировой. Тысячи и тысячи вернувшихся еще пожалеют, что не легли вместе с убитыми. Но пока что - на Западном фронте все еще (   Читать дальше...   )Жанр: РоманФормат: M4BПродолжительность: 8:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8326DE66330197AEF3AD069A514D93F75D941C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426712   (186015) от 25.11.2020
-
-Би-2 - Бог проклятых (2020) [AAC|~323 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бог проклятых (3:18)
-02. Бог проклятых (prod. тима ищет свет) (Лиза Громова version) (3:57)
-03. Бог Проклятых (Midnight Faces Version) (3:17)
-04. Бог проклятых (Jukebox Trio) (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264DEA4D895F9334F78B14E3CA4B1B734115FF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426558   (185904) от 25.11.2020
-
-VA - Золотые застольные песни (2006) [AAC|~300 Kbps] <Pop, Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185904.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Группа "Золотая стрела" - Любо, братцы, любо (5:35)
-1.02. Группа "Черная кошка" - Мой костер (2:43)
-1.03. Группа "Эшелон" - Черный ворон (4:05)
-1.04. Группа "Калитка" - Тонкая рябина (3:28)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 08:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DF58023FCB787CF07B27404BA5DFEB73B433D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426833   (185478) от 26.11.2020
-
-Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TWELVE (2:32)
-02. SLIME (2:39)
-03. FREAK (2:47)
-04. TASTY (2:24)(   Читать дальше...   )Жанр: Electronic, Grime, ExperimentalПродолжительность: 00:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC42C887050A03F79BD64AED348613768136C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426890   (185416) от 26.11.2020
-
-Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps] <Jazz, Funk>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Steppin’ (12" Version) (5:53)
-1.02. Easier Said Than Done (7" Version) (3:46)
-1.03. Night Birds (7" Version) (4:23)
-1.04. Dark Is The Night (Extended Version) (6:27)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 03:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA4F7FE5FF27210FDAC22CE404EF209A2F598D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426817   (185392) от 26.11.2020
-
-BTS - BE (2020) [AAC|~318 Kbps] <kpop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Goes On (3:27)
-02. Fly To My Room (3:42)
-03. Blue & Grey (4:15)
-04. Skit (3:00)(   Читать дальше...   )Жанр: kpopПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89601B3E332E28EF7DAE0135E5B561F6C4E4EEC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

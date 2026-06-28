@@ -1,3 +1,171 @@
+###  Публикация: 1273095   (799321) от 03.01.2019
+
+Ничего хорошего в отеле «Эль рояль» / Bad Times at the El Royale (2018) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799321.jpg" />
+</div>
+
+
+###  Подробнее
+
+1969 год. Группа разношерстных личностей останавливается на ночь в когда-то популярном отеле «Эль Рояль», расположенном на границе штатов Невада и Калифорния. В здании отеля собрались неприветливый священник, певица Дарлин, энергичный продавец пылесосов и подозрительная девушка с Юга. Вместе с ними ночь в отеле проводит молодой консьерж. Каждому из них есть что скрывать, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, криминал, детективРежиссер: Дрю ГоддардАктеры: Джефф Бриджес, Синтиа Эриво, Дакота Джонсон, Джон Хэмм, Крис Хемсворт, Кэйли Спэни, Льюис Пуллман, Ник Офферман, Ксавье Долан, Шей УигэмПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC355F05AC03659A3D0C4B714B946880E491ADBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122122   (799201) от 04.04.2017
+
+Монстр-траки / Monster Trucks (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Трипп мечтает сбежать из скучного городка, где родился и вырос, и увлеченно собирает монстр-трак из обломков старых авто. И когда происшествие на буровой вышке высвобождает из-под земли удивительное создание, знающее толк в скорости, у Триппа появляется реальный шанс не только наконец-то изменить жизнь, но и обрести настоящего друга... Если, конечно, (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, комедия, семейныйРежиссер: Крис УэджАктеры: Лукас Тилл, Джейн Леви, Томас Леннон, Барри Пеппер, Роб Лоу, Дэнни Гловер, Эми Райан, Холт МакКэллани, Фрэнк Уэйли, Алийа О’Брайен, Дэниэл БэйконПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4280A489E0AFB39F3A05C7C697EC3F6A5FE3D222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506857   (799170) от 02.11.2021
+
+VA - Istanbul Orange: Urban Chillout Music (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Pantelis - That Summer (The Balearica Anthem) (4:15)
+02. Eivissarts - Mahasamadhi (Original Mix) (6:07)
+03. Clelia Felix - Eastern Sunrise (Original Mix) (4:25)
+04. Nasser Shibani - Night Shift (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6020FE45C9B5FC15938492CE93D6355D974DEF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506835   (799169) от 02.11.2021
+
+VA - Chillout Your Mind, Vol. 4 (Ultimate Chillout Collection) (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Nothing Gold Can Stay (Original Mix) (5:00)
+02. Peter Mac, Simply Chill - Hope (Original Mix) (4:32)
+03. Charlie North - Patient (Original Mix) (5:48)
+04. Living Room - Daydreaming (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09887F6488C21E776415769B5A8160AEEF6827F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506831   (799164) от 02.11.2021
+
+VA - Chillout Your Mind, Vol. 3 (Ultimate Chillout Collection) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Sheela & Luna (Original Mix) (6:07)
+02. La Estación Del Mar - Nightlife (3:23)
+03. Chillson, Marc Hartman - It's Allright (Original Mix) (4:42)
+04. Ibiza Chilled - Sky Blue Vadella (Original Mix) (6:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC39E956D6A4965B7A4DE520B4C9D63F8E7A110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506836   (799141) от 02.11.2021
+
+VA - Chillout Your Mind, Vol. 5 (Ultimate Chillout Collection) (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - All Phased Out (Original Mix) (5:02)
+02. Michael e - Beauty & Seduction (Original Mix) (4:48)
+03. Digby Jones, Funkdust - Ah Negresco (3:27)
+04. Living Room - A Cup of Jazz (Original Mix) (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC974DA0E774EF582B81D4413B6626B500656AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506888   (799138) от 02.11.2021
 
 VA - Relaxing Therapy Session with José Sierra (Pt 1) (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
@@ -571,177 +739,6 @@ Sexy Chillout Music Cafe - Erotic Chillout Music to Diversify Sexual Life (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3466DF291716CD474E020C5B9EE8845AFD6FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507119   (798706) от 03.11.2021
-
-Sexy Chillout Music Cafe - Чуттєвий мікс - Чилаут компіляція найсексуальнішої музики для закоханих (Sensual Mix of Chillout Music) (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сексуальні ритми (3:50)
-02. Одна ніч (3:40)
-03. Кривавий захід сонця (3:45)
-04. Танець живота (3:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E067A320C1F5808103D158EE94D684CAB8351B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273961   (798685) от 04.01.2019
-
-Проводник  (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня, девушка Катя, обладает мистическим даром: она видит призраков. Когда пропадает её сестра-близнец, девушка в одиночку бросается на поиски. В полиции настаивают, что сестры вообще  не существует, что она — плод Катиного больного воображения. Однако в процессе поисков сестры Катя понимает, что в городе орудует серийный маньяк, и сестра — одна (   Читать дальше...   )Производство: РоссияЖанр: Ужасы, триллерРежиссер: Илья МаксимовАктеры: Александра Бортич, Евгений Цыганов, Александр Робак, Вячеслав Разбегаев, Владимир Яглыч, Константин Мурзенко, Юрий Скулябин, Марта Тимофеева, Екатерина Рокотова, Василий БочкаревПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6DB3DBD5B50BFDA681CBFAAEAC548A7BF1808B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507138   (798517) от 03.11.2021
-
-Blue System - My Star (2021) [AAC|~344 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (Maxi Version) (5:16)
-02. Big Boys Don't Cry (3:13)
-03. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:28)
-04. Under My Skin (Radio Version) (3:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAFD212C4D0C57A755DADF63AD054C4D0A24960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507359   (798487) от 04.11.2021
-
-VA - One Jazzy Night, vol. 4: Best of Smooth Jazz Music (2021) [AAC|~321 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Boquita, Javier Nuñez - Come Away with Me (3:10)
-02. Sergio Belem, Digby Jones - Sunrise over Corcovado (4:25)
-03. Pier-O - Whisky and Cigars (5:48)
-04. Nicola Barbon, Massimo Faraò Trio, Bobo Facchinetti - September (2:01)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C2C2527BCF2730998E2B4EC32AAEE7130A6C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507416   (798479) от 04.11.2021
-
-VA - Andrew Lloyd Webber’s “Cinderella” (Original Album Cast Recording) (2021) [AAC|~299 Kbps] <Musical>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Lloyd Webber, Helen George - Buns 'N' Roses (7:54)
-02. Andrew Lloyd Webber - It Has To Be Her (2:30)
-03. Andrew Lloyd Webber, Carrie Hope Fletcher - Bad Cinderella (3:06)
-04. Andrew Lloyd Webber, Carrie Hope Fletcher, Ivano Turco - So Long (4:23)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F500C937A65E6F37EB70223F1375F2D3F5ABEAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507530   (798424) от 04.11.2021
-
-Diana Ross - Supertonic Mixes (2020) [AAC|~353 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Coming Out / Upside Down (Eric Kupper remix) (3:07)
-02. Love Hangover (Eric Kupper remix) (3:49)
-03. The Boss (Eric Kupper remix) (3:41)
-04. Surrender (Eric Kupper remix) (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542796AB8FDE8B7F4515BD4005C100C59336100A
 ```
 
 https://mybot314.ru/tekegram_catalog/

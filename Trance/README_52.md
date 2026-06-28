@@ -1,3 +1,90 @@
+###  Публикация: 1665168   (182409) от 30.09.2023
+
+Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always You (Extended Intro Mix) [5:36]
+02. Fly Away (Extended Mix) [7:12]
+03. Let Go (Extended Mix) [6:40]
+04. Deeper Love (Extended Mix) [7:14](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9BD587CB092B5AC9B78423A21F5B7D3037154D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593055   (181804) от 25.11.2022
+
+VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
+02. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
+03. Richard Durand - Evolution (Extended Mix)
+04. Bryan Kearney - Kaia (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435836A39030E7665BE7DBA794CEE032A3FA7FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593096   (181713) от 25.11.2022
+
+VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa - My Own Way (4:01)
+02. Costa - I See His Eyes (4:17)
+03. Raz Nitzan - Called By A Whisper (4:20)
+04. Raz Nitzan - Unconditional (3:52)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B598F262A052B7930E864959D187925D4D3ADDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428529   (179993) от 02.12.2020
 
 VA - Trance Dance - Back To The 90s The 2021 Edition (2020) 2CD [MP3|320 Kbps] <Trance, Progressive Trance, Dance>
@@ -658,93 +745,6 @@ VA - Amsterdam Dance Essentials 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C524F1A6FB2E7B498D38EAEE8EA61AF49A63410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672518   (169238) от 28.10.2023
-
-VA - Techno Club Vol. 70 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169238.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. John O'Callaghan - Riverside (Extended Mix) [7:31]
-02. DJ Eternity - Living For Today (Extended Mix) [7:38]
-03. DJ Sakin & Talla 2XLC - Nomansland (David's Song) (Extended Mix) [6:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4ED2BA6D47C0716F9C6741B86DDD4A47951928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596724   (169203) от 11.12.2022
-
-VA - Best of We Are Trance 2022 Mixed by DJ GOOSE [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bram VanK & Northern Project - Twitch (Dinamic Extended Edit) (5:23)
-02. InfeXus - Illusion (Extended Mix) (6:43)
-03. Numedian - Babylon (Extended Mix) (7:45)
-04. Slow Emotion - Summer's Answer (Extended Mix) (6:55)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA8D1B96714424529B466969D88E7D444C0052D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596733   (169202) от 11.12.2022
-
-VA - This is Ablazing 2022 (Mixed & Selected by Rene Ablaze) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze & Kenny Palmer - Insomniacs (Extended Mix) (6:22)
-02. UDM - Airwave (Extended Mix) (6:35)
-03. DJ Shog - Make The Sun Rise (Woody van Eyden Extended Remix) (7:33)
-04. Arctic Ocean - Feel The Wave (Extended Mix) (6:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82621C42335C292412561514DA609A6D9C8902EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

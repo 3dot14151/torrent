@@ -1,3 +1,119 @@
+###  Публикация: 1366811   (918882) от 14.03.2020
+
+Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Carnival Is Over
+02. El Lute
+03. Somewhere In The World
+04. Where Did You Go(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8043837D2458EBB9322E94B7D656F9CCA6E3A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989115   (918806) от 21.02.2016
+
+Arabesque - The Magic of Arabesque (2016) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey 3:28
+02. Someone Is Waiting For You 4:04
+03. Six Times A Day 3:12
+04. Buggy Boy 2:56(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A540F5AE683FA043709B56770471A0CE0A99B3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367345   (917227) от 15.03.2020
+
+VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917227.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love’s Theme - Love Unlimited Orchestra [3:35]
+ 2. Dancing Machine - The Jackson 5 [2:42]
+ 3. Rock the Boat - The Hues Corporation [3:09]
+ 4. Honeybee - Gloria Gaynor [3:45](   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 04:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 64935   (914925) от 22.08.2021
+
+Alphaville - First Harvest  The Best Of Alphaville 1984-1992 (2003) [APE]
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big In Japan
+02. Sounds Like A Melody
+03. Sensations
+04. The Mysteries of Love(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FAA322E5711D24438A0FCBDDC448DCBCDFA274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097377   (914084) от 27.01.2017
 
 VA - Disco Gold: Scepter Records & The Birth Of Disco (2011) [FLAC|Lossless|tracks + .cue] <Disco, Funk, Soul>
@@ -623,122 +739,6 @@ VA - Italodisco Rarities (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6991F74E6F189F6202B74E192EA1090F7C478A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997642   (873560) от 17.03.2016
-
-Joy - The Original Maxi-Singles Collection and B'Sides (2015) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In Hong Kong (12'' Version) [04:48]
-02. Lucky Star [03:48]
-03. Touch By Touch (12'' Version) [05:25]
-04. Fire In The Night (12'' Version) [05:16](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C6BE18197E59F08816DF27278A36F860B90BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374334   (872694) от 10.04.2020
-
-Happy Dance Company - Hit Feuerwerk Party Mix Nonstop (Unknown) [FLAC|Lossless|image + .cue] <Disco, Rock & Roll, Cover>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1 
-01. Vamonas (3:57)
-02. Revolution In Paradise (5:04)
-03. Samba De Janeiro (2:47)(   Читать дальше...   )Жанр: Disco, Rock & Roll, CoverПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62383E24D2BF9B0BD4421D6C1E6F02264F10BD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496712   (871224) от 18.09.2021
-
-VA - Las Mejores Canciones Dance Del Siglo (1999) 12CD, Box Set, Limited Edition, Mixed [FLAC|Lossless|image + .cue] <Italo-Disco, Pop, Euro-House, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murray Head - One Night In Bangkok (1:54)
-02. Indeep - Last Night A DJ Saved My Life (1:55)
-03. The Twins - Ballet Dancer (1:58)
-04. The Flirts - Passion (1:42)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-House, Synthpop |Продолжительность: 15:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2706C38333867555B5F7BA1420B0431F44DDE506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496847   (869801) от 19.09.2021
-
-Stage - The Prisoner Of Your Love (2014) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo Dance (Extended Version) [00:07:04]
-02. Ocean Of Crime (We're Movin' On) (Extended Version) [00:05:09]
-03. Real (Extended Version) [00:06:04]
-04. I Can't Get You Out Of My Mind (Dance Version) [00:06:14](   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDBA80BCE94A8CB1EF1BE383345C0F1E1E89E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1145932   (618094) от 27.06.2017
+
+La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandolay (6:20)
+02. Only The Lonely (Have A Reason To Be Sad) (4:32)
+03. Can You Dance (3:27)
+04. Can't Kill The Beat (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230329   (617385) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert X - Vision
+02. Kono - Cleopatra (Dance Version)
+03. Raigo - Let Me Live
+04. J. Ford - Mind Wanderer (Japanese Mix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230324   (617382) от 11.06.2018
 
 VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
@@ -697,64 +755,6 @@ Italoconnection - Metropoli (2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767E187BB28651F1366096A7B58A3CFCEA75B226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231576   (603201) от 21.06.2018
-
-Tobias Bernstrup - 4 Albums, 1 EP (2002-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, EBM, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do Me Wrong (4:28)
-02. Trannies At Night (4:22)
-03. 27 (4:19)
-04. Videodrome (5:00)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, EBM, ElectroПродолжительность: 03:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606FB001D96B490DC9B5514CB28A1D4365C8D415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297713   (603086) от 24.04.2019
-
-Emly Starr - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мари-Кристин Марелс (нидерл. Marie-Christine Mareels; род. 5 сентября 1958 в Ларне, Бельгия) - бельгийская певица и киноактриса, более известная под псевдонимом Эмли Старр (нидерл. Emly Starr); представительница Бельгии на конкурсе песни Евровидение 1981.01. Do Svidaanja (4:07)
-02. Hey Aloha (Honolulu) (3:34)
-03. The Reason To Live (3:44)
-04. Up And Down (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6621AA80C0643E820C878E92AF54455611D0388B
 ```
 
 https://mybot314.ru/tekegram_catalog/

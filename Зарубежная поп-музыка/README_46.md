@@ -1,3 +1,32 @@
+###  Публикация: 1314427   (519370) от 14.07.2019
+
+VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technotronic - Pump Up The Jam (Edit)
+02. Mr. President - Coco Jamboo (Radio Version)
+03. Eiffel 65 - Blue (Da Ba Dee) (DJ Ponte Ice Pop Radio)
+04. Snap! - The Power(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E791380B965FC6942417ADCA09EB5B569767B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314349   (519361) от 14.07.2019
 
 VA - Stevie Wonder Covers (2019) [MP3|320 Kbps] <Pop, Rock, Funk, Soul>
@@ -740,35 +769,6 @@ Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932389   (509003) от 29.08.2015
-
-Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (05:35)
-02. You Can Win If You Want (03:51)
-03. There's too Much Blue in Missing You (04:42)
-04. Diamonds Never Made a Lady (04:06)(   Читать дальше...   )Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
 ```
 
 https://mybot314.ru/tekegram_catalog/

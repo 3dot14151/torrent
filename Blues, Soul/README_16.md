@@ -1,3 +1,32 @@
+###  Публикация: 1034578   (634317) от 13.07.2016
+
+Bacon Fat - Tough Dude (1971) Reissue, SM The CD  [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wait On It
+02. Down The Road
+03. Betty
+04. Leaving On Your Mind(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCF7960C27F333F5D975806DCB25A12F22699DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908126   (634262) от 14.06.2015
 
 Jazz Gillum: The Essential (2CD) (2003) [MP3|320 кб/с]<Blues>
@@ -748,35 +777,6 @@ CD4 - Korea BluesЖанр: Blues, Chicago BluesПродолжительност�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB057B0D2ED384D62E1FEEAE84975CAA816F7600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035732   (624572) от 18.07.2016
-
-VA - The Real... Blues: The Ultimate Collection (2015) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624572.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 01. Mississippi Sheiks - Sitting On Top Of The World (3:15)
- 02. Mississippi John Hurt - Stack O'Lee (2:57)
- 03. Maceo Merriweather - Worried Life Blues (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2ABF3651F9B62F1BA8AB7FEFB1497F6E2E2FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

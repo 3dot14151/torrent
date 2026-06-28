@@ -1,148 +1,3 @@
-###  Публикация: 1435734   (140831) от 29.12.2020
-
-VA - Зима на Love Radio vol2 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zivert - Многоточия (Radio Edit) (2:52)
-02. Tiesto - The Business (2:44)
-03. Marshmello & Imanbek feat. Usher - Too Much (2:45)
-04. Meduza feat. Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265CEB01548391CC7A59465587016B97D492BE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970508   (140600) от 30.12.2015
-
-VA - Новогоднее настроение в СССР (2CD) (1956-1991) от DON Music (2015) [MP3|320 кб/с] <Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Людмила Гурченко - Пять минут (1956) (03:31)
-02. Майя Кристалинская - Снег идёт (1961) (02:18)
-03. Капиталина Лазаренко - Костёр на снегу (1965) (02:13)
-04. Ирина Бржевская - Полетел снежок над Обью (1965) (02:46)(   Читать дальше...   )Жанр: RetroПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1D2803C117F96D5D1A4C4A438F5B9EFE80954E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959723   (140156) от 30.12.2016
-
-Илья Гусев - Слушай 'Ласковый Май' (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Долгие ночи
-02. Июльский вечер
-03. Сказки детства
-04. Не отдам(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFFDB444D9C88E24B7079D0F1FAE94F62A0DD83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348994   (139703) от 30.12.2019
-
-VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Banks - Till Now
-002. Бцїў‚ь - Wonderland
-003. Igit - Caroline
-004. Linda Sundblad - Velkommen Hem(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7557FE647F3EA9355E11647E337F8F157C6D88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195725   (138786) от 31.12.2017
-
-VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138786.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. John Travolta & Olivia Newton John - You're The One That I Want (2:49)
-002. Mighty Sparrow With Byron Lee & The Dragonaires - Only A Fool (2:46)
-003. Boney M - Rivers Of Babylon (4:22)
-004. Scott Fitzgerald & Yvonne Keeley - If I Had Words (3:51)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273044   (138751) от 30.12.2018
 
 VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
@@ -820,6 +675,181 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594559   (133492) от 26.12.2012
+
+VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raquel, Diddy, Dorrough & Yo Gotty - Touch (David May Edit Mix)
+02. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
+03. DJ Antoine vs. Mad Mark - Broadway (DJ Antoine vs Mad Mark 2k12 Radio Edit)
+04. Sasha Dith & Steve Modana feat. Nadya - Улечу
+05. G & G Feat. Gary Wright & Baby Brown - My My My (Coming Apart) 2K12 (Radio Edit)
+06. Настя Любимова - Любовь моя
+07. Empyre One - Moonlight Shadow 2K12 (Godlike Music Port Edit)
+08. Lalo Project feat. Wegmix - Живу тобой
+09. Xonia - Remember (Radio Edit)
+10. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594899   (133112) от 27.12.2012
+
+VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дмитрий Колдун - Облака-бродяги
+02. One Direction - Live While We're Young
+03. Сати Казанова и Батишта - Чувство легкости
+04. Amelia Lily - You Bring Me Joy
+05. Дима Билан - Лови мои цветные сны
+06. Otto Knows - Million Voices (Radio Edit)
+07. Полина Гагарина - Нет
+08. Pink - Try
+09. Иракли - Осень
+10. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595276   (132716) от 28.12.2012
+
+VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 AD Men's - Жара (extended mix)
+02 Aerofeel5 - Disco In The Hell (original mix)
+03 Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
+04 Chris Decay & Re-lay - Love Junkie (Original Summer Mix Edit)
+05 Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
+06 LTN - Never Let Me Go (Beat Service remix)
+07 MMDance feat. Dj Smash - Суббота
+08 Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
+09 Горячий шоколад - Стены (Andry Makarov Club remix)
+10 Kash Trivedi - Darkness (LinBit remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595229   (132699) от 28.12.2012
+
+VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kazahy - Это Новый Год
+02 Italobrothers - My Life Is A Party (R.I.O. Edit)
+03 Бьянка - Заснеженные
+04 Soraya - Dreamer
+05 Artik pres. Asti - Облака (DJ Alex Radioso Radio Edit)
+06 Alex M. Vs. Marc Van Damme - Rock The House 2012 (Original Mix Edit 2012)
+07 Инфинити - Я так скучаю (DJ Sergey Fisun Remix)
+08 Wonder Girls feat. Akon - Like Money (DJ Sergey Fisun Remix)
+09 Сергей Лазарев - Нереальная любовь
+10 Greg Parys - The Girl Is Mine (Dance Version)(   Читать дальше...   )Жанр: PopПродолжительность: 05:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D579ED0E3343ACE94A821564EA56C0E82D38B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594788   (132695) от 28.12.2012
+
+VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ю.Шатунов - Бродяга (57)
+2. KReeD и Полина Булаткина - Расстояния (320)
+3. Benefit - Sex Sells(256)
+4. OKSI - Новогодняя(320)
+5. Руки в брюки - Друзья(320)
+6. MC Hammer - You Can't Touch This(320)
+7. Baby Alice - Sexy(320)
+8. Brigada United - Марины,Тони,Тани...(192)
+9. Натали - О боже какой мужчина...(320)
+10.гр.Свои - Называл тебя глупышкой(192)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
 ```
 
 https://mybot314.ru/tekegram_catalog/

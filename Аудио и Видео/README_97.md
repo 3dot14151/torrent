@@ -1,3 +1,174 @@
+###  Публикация: 1526063   (738810) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Criado - Vulnerable (Denis Kenzo Edit) (4:17)
+02. Beat Service, Sarah Lynn - Dream Weaver (Radio Edit) (4:03)
+03. Radion6, Katty Heath - Beautiful Nothing (Radio Edit) (2:59)
+04. 4 Strings, Denise Rivera - In The Middle of a Dream (Radio Edit) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526078   (738789) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 6 (2022) [AAC|~332 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Susana - Weather The Storm (4:25)
+02. Frainbreeze, Denise Rivera - Memory of You (3:23)
+03. Costa, Veronica K - You Are Loved (Behind The Horizon) (3:43)
+04. Christopher Corrigan - Far Away (4:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D924EC491C5C614F1BDF2410D6C292B2DFE65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526053   (738743) от 23.01.2022
+
+VA - Singing With The Stars, vol. 1 (2020) [AAC|~318 Kbps] <Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa Nova>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walter Ricci, Sylvain Luc - Caruso (3:45)
+02. Matteo Brancaleoni - More (3:28)
+03. Melania - O Sole Mio (4:00)
+04. Papik, Nadia Straccia - Black Hole Sun (3:56)(   Читать дальше...   )Жанр: Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa NovaПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9965284FE1DB148FB7DE4BFE52CC96402FE4255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526056   (738733) от 23.01.2022
+
+VA - Singing With The Stars, vol. 2 (2021) [AAC|~324 Kbps] <Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa Nova>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Scaffardi - Stand By Me (4:05)
+02. Papik, Ely Bruna - I'm Not In Love (3:57)
+03. Ohm Guru, Faraa - Wild World (4:43)
+04. Papik, Tom Gaebel - New Frontier (5:00)(   Читать дальше...   )Жанр: Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa NovaПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F740A8AC6518AE0B044AA05E9DD28F62C2737D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785839   (738605) от 12.05.2014
+
+Джек Райан: Теория хаоса / Jack Ryan: Shadow Recruit (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рядовой аналитик ЦРУ Джек Райан приезжает в Москву, чтобы решить простую задачу: ему нужно проверить операции компании, принадлежащей миллиардеру Виктору Черевину. Но все усложняется, когда Райана пытаются убить. Теперь он вынужден защищаться с оружием в руках, вспоминая армейские навыки и неожиданно для себя оказываясь в роли настоящего спецагента. На помощь Джеку приходят маститый офицер спецслужб Харпер и внезапно оказавшаяся в Москве супруга Кэти. Но облегчит ли это миссию, которую теперь предстоит выполнить Райану, — предотвратить международный заговор, грозящий погрузить весь мир в хаос?Жанр: Боевик, триллер, детективПродюсер: Дэвид Баррон, Лоренцо Ди Бонавентура, Мэйс НойфельдВ ролях: Крис Пайн, Кира Найтли, Кеннет Брана, Кевин Костнер, Алек Утгофф, Джемма Чан, Петер Андерссон, Елена Великанова, Нонсо Анози, Колм ФиорПеревод: Дублированный (Line)Язык субтитров: АнглийскийПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B7696D51115A97BFEBFE0F65AA27814E41B787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526366   (738520) от 24.01.2022
+
+VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Solveig - Sealife (3:19)
+02. Florito - 90 Degrees Fahrenheit (3:59)
+03. Beatgroove - La Piazza (5:07)
+04. Ingo Herrmann - Walking Away (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313D7CAD5F6211C16F0D8446BF4E25EDDB53BBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526369   (738519) от 24.01.2022
 
 VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
@@ -566,172 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7821C307833053E6FF55B3337CFCFA30C3F2C61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526291   (738389) от 24.01.2022
-
-Девичий источник / Jungfrukallan / The Virgin Spring (1960) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Карин, избалованная родительской заботой и любовью, протанцевала всю ночь и проспала заутреню. Но канон требует, чтобы непорочная девушка совершила паломничество в далекую церковь. Карин покидает хутор вместе со сводной сестрой-язычницей. Она держит путь через глухой лес, где судьба готовит ей страшную встречу с тремя бродягами…Производство: Швеция / Svensk Filmindustri (SF) ABЖанр: Драма, криминалРежиссер: Ингмар БергманАктеры: Макс фон Сюдов, Биргитта Вальберг, Гуннель Линдблум, Биргитта Петтерссон, Аксель Дюберг, Тор Иседаль, Аллан Эдвалль, Ове Порат, Аксель Слангус, Гудрун БростПеревод: Профессиональный многоголосыйСубтитры: Русские, неотключаемыеПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A6FC0105AEF812C0511F46549FA2A90540EC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526272   (738384) от 24.01.2022
-
-Земляничная поляна / Smultronstallet / Wild Strawberries (1957) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738384.jpg" />
-</div>
-
-
-###  Подробнее
-
-78-летний профессор из Стокгольма вспоминает и пересматривает разочарования своей долгой жизни. Вместе с женой сына он едет на машине на вручение почетной докторской степени, посещая по пути места, где был молод, встречая разных людей и старых знакомых, вспоминая сны и былое.Производство: Швеция / Svensk Filmindustri (SF) ABЖанр: ДрамаРежиссер: Ингмар БергманАктеры: Виктор Шёстрём, Биби Андерссон, Ингрид Тулин, Гуннар Бьёрнстранд, Юллан Киндаль, Фольке Сундквист, Бьёрн Бьельфвенстам, Найма Вифстранд, Гуннель Брострём, Гертруд ФридПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E2CE3E7B225C6AE2314A590A2AA5DCFAC54E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526309   (738340) от 24.01.2022
-
-Моя борьба / Mein Kampf (2009) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной пьесы популярного венгерского драматурга Георга Табори. Чернейшая комедия, рассказывающая о молодых годах Адольфа Гитлера-Шикльгрубера.
-Юный Адольф приезжает в Вену, где заводит дружбу с престарелым евреем Шломо Херцлем. Гитлер и не предполагает, что общается с лютым расовым врагом и следует всем советам и пожеланиям нового знакомца.Производство: Австрия, Германия, Швейцария / ARTE LLC, Dor Film Produktionsgesellschaft GmbH, hugofilm, Schiwago Film, Schweizer Fernsehen DRS, SRG SSR idée suisse, UFA Filmproduktion GmbH, ZDFtheaterkanalЖанр: Драма, комедияРежиссер: Урс ОдерматтАктеры: Гёц Георге, Том Шиллинг, Анна Унтербергер, Бернд Бирхан, Вольф Бахофнер, Элизабет Орт, Карин Нойхаузер, Симон Шварц, Пол Матич, Хеннинг ПекерПеревод: Профессиональный многоголосыйСубтитры: АнглийскиеПродолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E721AF5F3748D423E54A52DA2ECDE17012B91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526575   (738177) от 25.01.2022
-
-VA - Milano Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - Spirit (Original Mix) (5:19)
-02. Giacomo Bondi - Breakfast Club Di Milano (Instrumental) (4:43)
-03. Brass - Firenze Vacations (Original Mix) (4:16)
-04. St Project - Sound of Dark (Original Mix) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2753D2BF690C703898934B56516D63929B25524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526574   (738175) от 25.01.2022
-
-VA - New York Orange (Urban Music for Urban People) (2018) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil Beat - Ain't No Sunshine (Original Mix) (3:56)
-02. Gabrielle Chiararo - Fool Me (Original Mix) (4:19)
-03. Soul Trend - You Got Me Wrong (Original Mix) (4:55)
-04. Pier-O - Dim Light (Original Mix) (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676B36F070820FE66033D1ADFB13DAAECAF799BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526579   (738174) от 25.01.2022
-
-VA - Singapore Orange (Urban Music for Urban People) (2019) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Copponi - Deep Blue (Original Mix) (4:42)
-02. Silvio Piersanti, Antonio Arena - Exotic (Original Mix) (3:24)
-03. Double Fab - Tribal Dreams (Original Mix) (8:10)
-04. Andrea Cardillo - Asiatic Girl (Original Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19792682404EB9ED1026F2B87AA1148EDAEE2D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

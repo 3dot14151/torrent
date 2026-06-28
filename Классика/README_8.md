@@ -1,3 +1,32 @@
+###  Публикация: 993404   (895521) от 05.03.2016
+
+Renee Fleming - The Art Of Renee Fleming (2012), compilation [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ave Maria, D839 (Schubert) (4:21)
+02.  Casta Diva (Norma - Bellini) (7:36)
+03.  Lo son l'umile ancella del Genio creator (Adriana Lecouvreur - Cilea) (3:57)
+04.  Ah! je veux vivre (Waltz Song) (Romeo et Juliette - Gounod) (3:42)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D9EAC7E24C4E5F6904B76B7EA16312E0B2CA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993437   (895448) от 05.03.2016
 
 W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|image + .cue] <Classical>
@@ -718,33 +747,6 @@ VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:635055270DEDFB477A9CBA3F01C25D0153972247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371822   (888404) от 01.04.2020
-
-Daniel Behle - George Petrou Gluck: Opera Arias (2014) [FLAC|Lossless|image + .cue] <Classical opera vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antigono, Wq 21
-1. "Quercia annosa sull'erte pendici" (Ed. Giovanni Secchi) 4:06Жанр: Classical opera vocalПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6033B6C7F86D7293C3A132F82A504757C0EAC27
 ```
 
 https://mybot314.ru/tekegram_catalog/

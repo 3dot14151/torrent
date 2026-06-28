@@ -1,3 +1,90 @@
+###  Публикация: 1156310   (527646) от 07.08.2017
+
+Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Im Gleichgewicht von Mond und Erde (06:15)
+02. Surrounded By Love (06:48)
+03. Sailing Boat (06:50)
+04. Darjeeling (First Flush) (06:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24719EB7DFE6CA77F3803D25EC2BDB945E2E4D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053229   (526077) от 17.09.2016
+
+Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America the Beautiful [00:02:45]
+02. Battle Hymn of the Republic [00:02:22]
+03. When Johnny Comes Marching Home [00:01:59]
+04. My Country 'Tis of Thee [00:02:11](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954553CF6FF7A11247668C604B5D445B2AD92F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053009   (525966) от 17.09.2016
+
+Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight From The City (06:31)
+02. A Song For Europa (02:34)
+03. The Drowned World (02:21)
+04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927209   (524847) от 13.08.2015
 
 Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
@@ -659,93 +746,6 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405939   (479130) от 01.09.2020
-
-David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding On Wings Of Mercy
-02. Skyward
-03. Flutterings From The Autumn Trees
-04. Beyond The Intimate(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244934   (477967) от 03.09.2018
-
-Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ishq (8:09)
-02. Tumi Bhaja Re Mana (8:07)
-03. Sattva (7:06)
-04. Shivoham (9:42)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406562   (474910) от 03.09.2020
-
-Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America (3:31)
- 02. The Sound of Silence (3:24)
- 03. Mrs. Robinson (3:29)
- 04. El Condor Pasa (If I Could) (3:18)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

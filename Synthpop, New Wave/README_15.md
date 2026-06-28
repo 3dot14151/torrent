@@ -1,3 +1,32 @@
+###  Публикация: 1755376   (40163) от 16.10.2024
+
+Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Moshi Moshi Records [MP3|320 Kbps] <Synth-Pop, Indie Pop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hittin Skittles [00:04:30]
+02. Marrow [00:04:49]
+03. My PC (20th Anniversary Deluxe Edition) [00:03:05]
+04. From Drummer To Driver [00:04:24](   Читать дальше...   )Жанр: Synth-Pop, Indie Pop, ElectroПродолжительность: 2 CD, 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755709   (40090) от 17.10.2024
 
 Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>

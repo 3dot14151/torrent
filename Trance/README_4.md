@@ -1,3 +1,90 @@
+###  Публикация: 1607601   (1043940) от 27.01.2023
+
+Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - For Emily (Album Mix) [3:38]
+02. Activa & Lo - Leave A Light On (Extended Mix) [8:27]
+03. Activa feat. Rolo Green & Julie Harrington - Reach Out (Extended Mix) [8:29]
+04. Orkidea - Z21 (Activa's Origins Extended Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A8A6122C052F9E017CACC1EFAAA94C5F41E32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608211   (1043755) от 29.01.2023
+
+VA - Alveda Trance Hits 2023 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Meretskiy - Caffeine (Original Mix) [7:33]
+02. Joren Heelsing - Falling (Original Mix) [5:47]
+03. Steve Melodic - I Am Not Afraid Of The 140 (Original Mix) [7:46]
+04. Nick Osta5h - Deja Vu (Original Mix) [7:01](   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE5364BBA6A76B96CDD57B510FCC4DC29932618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436732   (1043087) от 01.01.2021
+
+VA - Subculture (Mixed by John O'Callaghan) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Blue - Recovery (John O`Callaghan Remix)
+02. Paul Denton & Deirdre McLaughlin - Let You Go (Original Mix)
+03. Will Rees - Into The Light (Original Mix)
+04. Alan Morris & Martin Drake - Catharis (Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4EF06CEA0FE4562D8674F469C9D54CEF197811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436750   (1042792) от 02.01.2021
 
 VA - Victor Special Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -656,93 +743,6 @@ VA - Best Of FSOE Clandestine (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ED51D41A830E92D2CFD62DCF137D8B5993DBA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612136   (1039923) от 17.02.2023
-
-VA - Infrasonic Winter Selection (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleb Golston - The End Of Something (Extended Mix) [6:06]
-02. Pulse & Sphere - Heavy Rain (Original Mix) [5:21]
-03. Salto Angel - Lunar (Extended Mix) [5:02]
-04. Awantalyst - Mononoke (Extended Mix) [7:12](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE06CA7D30D0F7E3757E07487AB1412340D712F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612826   (1039917) от 17.02.2023
-
-VA - The Sound Of 2023 Mix 3: Tokyo (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Trian - Weightless (Intro) [2:37]
-02. Sound Fusion - Signals (Original Mix) [5:01]
-03. Axel Zambrano - Xone (Original Mix) [4:41]
-04. Ormus - Vishnu (Original Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B38539C0762292F4DCF03EB792787A384EC877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612620   (1039916) от 17.02.2023
-
-VA - Global Trance Masters Vol. 6 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade - Breaking Lies (Original Mix) [6:37]
-02. Liquid Dream - You In Heaven (DreamLife Remix) [7:39]
-03. York pres. The Sunseekers - Oasis 2002 (Original Mix) [9:21]
-04. Phil Green - Trance New World (Original Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD3307B3B362D09BE9E40386693BDFA4BDF000
 ```
 
 https://mybot314.ru/tekegram_catalog/

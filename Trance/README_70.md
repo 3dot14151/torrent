@@ -1,3 +1,90 @@
+###  Публикация: 1762491   (36152) от 25.11.2024
+
+VA - The Best Of Suanda Base 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov - The Life We Knew (Extended Mix) [3:48]
+02. Adip Kiyoi - November (Extended Mix) [4:53]
+03. Michael Milov - Pilgrim (Extended Mix) [4:39]
+04. Mind-X & Tatana - Infusion (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B753DC7E0A87B56289571B98EC77F825A20BBFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763297   (35629) от 30.11.2024
+
+VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ovnimoon - Feel on Me (Original Mix) (10:33)
+02. Hoopoe - Aracari (Original Mix) (07:39)
+03. Pico Boulevard - Oblivion (Enlusion Remix) (10:18)
+04. Facade - Daedra (Original Mix) (08:08)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F352546785042CCBDD859B94D728F61FA86C4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763618   (35415) от 02.12.2024
+
+VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Wilks - Voice In The Dark (Extended Mix) (07:18)
+02. Dan Cooper - Electra (Extended Mix) (06:48)
+03. RAM, Richard Durand, Digital Culture, Spacefrog & Derb - Follow Me 2024 (Extended Mix) (07:49)
+04. 0Gravity & Lucas Deyong - Interfusion (Extended Mix) (06:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE56D27138D2E00517966AFEF4DF80A28FEB4FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763660   (35412) от 02.12.2024
 
 VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Manuel Rocca Presents: White Clouds Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B02F55E91569C1BAFDB2DAE437274A701359960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908096   (31723) от 07.01.2025
-
-VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren pres Rising Star - Safe Inside You (feat Betsie Larkin) [03:21]
-02. Gareth Emery - Dynamite (feat Christina Novelli - MaRLo) [04:12]
-03. Andrew Rayel - We Bring The Love (feat Sylvia Tosun) [02:58]
-04. Cosmic Gate & Emma Hewitt - Going Home (Gareth Emery) [03:09](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2810102C450DA58DB4107FF9A0838F43800C53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009655   (31718) от 07.01.2025
-
-Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobina - Speed Breaker (05:28)
- 02. Bobina with Natalie Gioia - Addicted (03:35)
- 03. Bobina with Kyle Richardson - Love Is The Answer (03:10)
- 04. Bobina - Music Box (Album Mix) (06:52)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B745988951118D55D373C76CC54CF4265C5ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824760   (31716) от 07.01.2025
-
-VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rafael Frost - Never Been Hurt Before - Radio Edit
-002. Dart Rayne - Incomplete - Radio Edit
-003. Beat Service - When You Won't Come Home - Radio Edit
-004. Tenishia - Lifetime When Right - Radio Edit(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC14C730011382CE1C0C583BF8BD550C0F07BC4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

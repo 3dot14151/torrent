@@ -1,3 +1,29 @@
+###  Публикация: 1590208   (189288) от 12.11.2022
+
+Disney Television Animation | Артбук по мультсериалу Утиные истории / The Art of DuckTales (2022) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по мультсериалу "Утиные истории".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB744E84FFD7FF530603E7D56AC694DF77D137CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592753   (182928) от 23.11.2022
 
 Arkane Studios | Артбук по игре Dishonored / Dishonored - The Dunwall Archives (2014) [CBR] [EN]
@@ -648,33 +674,6 @@ Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Galler
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D55B2EC613D3D119E300C03B6F56E59B6A1DEBEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435350   (143774) от 28.12.2020
-
-Кэти Бёрнетт, Арни Феннер | Артбук Spectrum / Spectrum: The First Annual Collection of the Best in Contemporary Fantastic Art (1994) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук Spectrum: Первая ежегодная коллекция лучших произведений современного фантастического искусства.
-В этой богато иллюстрированной книге представлены работы современных создателей бестселлеров в области фэнтези и научной фантастики. Представлено более 100 художников, отобранных жюри из отмеченных наградами профессионалов. Предисловие написано лауреатом Пулитцеровской (   Читать дальше...   )Жанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E7F2B1BB7626881AE5DEB9766C600AD77C1DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

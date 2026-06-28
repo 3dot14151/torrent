@@ -1,3 +1,148 @@
+###  Публикация: 1815700   (4962) от 31.08.2025
+
+VA - 60 minutes. Old School Dance Music vol.25 (mixed by Dj V) (2024) [MP3|320 Kbps] <Euro Trance,  Progressive Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - 9 PM (Till I Come) (Signum Mix)
+02. Rank 1 - Airwave (Original Mix)
+03. Paul Van Dyk - Another Way (Club Mix)
+04. Thrillseekers feat. Alexis Strum - Dreaming Of You (Original Mix)(   Читать дальше...   )Жанр: Euro Trance,  Progressive Trance, Vocal TranceПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017C1510AF863B1327CFD335AFE0B94C696784D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815743   (4956) от 31.08.2025
+
+Sardø - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vivo En Tus Suenos
+ 02 - Viva La Noche
+ 03 - Santa Maria
+ 04 - La Bella Luna(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881BCA551336B0E90587B3390ED2DAC664B77B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815909   (4817) от 01.09.2025
+
+VA - Compilation Part 189 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hamidshax - I Can't Stop
+02 - A-Sultan - Here I Am
+03 - A-Sultan - Lost Signal
+04 - Jumanov - Target(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7636FEF2AB93B4D958CD657E01F3BD02B6D5E612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815913   (4812) от 01.09.2025
+
+Xezzo - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Walk Away
+ 02 - I Forget You
+ 03 - Without You
+ 04 - Stay in My Dreams(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF588B5FCE718691FE936CC2D1C32C2F728A2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815910   (4803) от 01.09.2025
+
+JONI - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fading Away
+ 02 - Mourning
+ 03 - No Hope
+ 04 - I Feel You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB82056EF44F9CC4011A9392DC472597348BC8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815878   (4792) от 01.09.2025
 
 VA - Trance In Motion Vol.390 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
@@ -600,35 +745,6 @@ Sardø - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25BA095056000687C98600A3823AD8BAAC0126A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820359   (502) от 27.09.2025
-
-VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Piano House, Latin House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Supafly vs Fishbowl - Let's Get Down (Warren Clarke Main Mix)
-02-Aaron Smith Feat. Luvli - Dancin (PHNTM Groovy Dub Mix)
-03-Dr. Kucho! feat. Jodie - Belmondo Rulez 2.0 (It's All About You) (Bob Sinclar club mix)
-04-Casanovy - I Need Your Lovin (Milk & Sugar Rmx)(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Progressive HouseПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

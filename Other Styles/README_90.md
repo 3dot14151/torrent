@@ -1,3 +1,119 @@
+###  Публикация: 1300947   (587143) от 09.05.2019
+
+Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinita Sabedoria (4:11)
+02. Brilho da Lua (3:52)
+03. Árvore Dourada (4:57)
+04. Doce Brilho (4:16)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5C02CC3C3D7BBB25D708B91B191D6FB7CACA87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040515   (586446) от 05.08.2016
+
+David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation
+02. The Letter
+03. Talavera
+04. Resurgam(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301198   (586254) от 10.05.2019
+
+Henry Jackman - Ralph Breaks the Internet / Ральф против интернета (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Zero (03:32)
+02. Sarah Silverman, Gal Gadot, Cast - Ralph Breaks the Internet - A Place Called Slaughter Race (03:28)
+03. Julia Michaels - In This Place (03:21)
+04. Henry Jackman - Best Friends (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301244   (586252) от 10.05.2019
+
+Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weisse Weihnachten (3:25)
+02. Leise Rieselt Der Schnee (3:12)
+03. Alle Jahre Wieder (3:30)
+04. Morgen Kommt Der Weihnachtsmann (3:05)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301238   (586251) от 10.05.2019
 
 Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -634,119 +750,6 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52856031F7F6A4B619E0AA1E36F8226EC55B2553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357764   (582664) от 05.07.2011
-
-Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 05:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041510   (582423) от 09.08.2016
-
-Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally, Sun - 4:04
-02. Let The Children Frolic - 2:04
-03. Acoustic Painting - 4:02
-04. Young King David - 3:32(   Читать дальше...   )Жанр: Contemporary Jazz, Instrumental GuitarПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8BD8F26E77C8E03BF52637F40D951F3A6D6175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041521   (582244) от 09.08.2016
-
-Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Task Force X (04:53)
-02. Arkham Asylum (03:24)
-03. I'm Going To Figure This Out (01:42)
-04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041523   (582178) от 09.08.2016
-
-Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Task Force X (04:53)
-02. Arkham Asylum (03:24)
-03. I'm Going To Figure This Out (01:42)
-04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

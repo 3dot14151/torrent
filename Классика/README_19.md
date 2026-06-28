@@ -1,3 +1,29 @@
+###  Публикация: 661127   (770639) от 26.05.2013
+
+V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED77444AE1E7EC888D19467D36A689E605BB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016357   (770156) от 14.05.2016
 
 N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Снегурочка (2008) [APE|Lossless|image + .cue] <Opera>
@@ -708,35 +734,6 @@ Rick Wakeman - Piano Odyssey (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A4C421159146A40B1C3ACAA8AE4DC122F5503E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217344   (743230) от 04.04.2018
-
-Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump in infinity 2:00
-02. Seven lights 2:16
-03. City of lonely ghosts 3:12
-04. Phoenix 2:43(   Читать дальше...   )Жанр: Neoclassical, AmbientПродолжительность: 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4EC2710BD1351EFC999CD1340DA5573E4883F
 ```
 
 https://mybot314.ru/tekegram_catalog/

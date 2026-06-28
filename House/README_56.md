@@ -1,3 +1,180 @@
+###  Публикация: 1070715   (364668) от 08.11.2016
+
+VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diazar - Frequencies (5:07)
+02. Spiced Boogie - Lifestyle (5:40)
+03. Didier Beydts - Sheridan (6:28)
+04. Starbud - Need You (6:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DF165FA0745CF7A911F488CD37553FE46AB443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070835   (364663) от 08.11.2016
+
+VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam Van Dyke - Still Dre - Skydiver Edit
+02. Eric Delgado - Breaking Free
+03. Chloe Van Doren - Shades of Blue - Lust Mix
+04. Merrick Lowell - Groovejet(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAC23C7BD3F1A6A55C33DA2E4B5C6BA6E9719BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255497   (364361) от 18.10.2018
+
+VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elypsis – Adrift At Sea (Original Mix)
+02. Skyline Drive, Allay & Astroleaf – Ocean Boulevard (Original Mix)
+03. LOOPer & Andy Wooding – All We Are (Shomu Remix)
+04. Terry Da Libra – Eunoia (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0AF7FF4D952C87B75C25F4905211F0EB9339DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255562   (364273) от 18.10.2018
+
+VA - Toolroom Amsterdam 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusky - Amongst The Gods (original mix) (5:38)
+02. Maribou State - Nervous Tics (feat Holly Walker - Maceo Plex remix) (5:51)
+03. Weiss (UK) - Feel My Needs (Gorgon City extended mix) (6:12)
+04. Will Saul - By Your Side (original mix) (6:18)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 10:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75271E67B8386B1E018C1C572714B963CE7E8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576929   (363747) от 17.11.2012
+
+VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Ana Criado - Suddenly Summer (Original Mix)
+02. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart
+03. Above & Beyond feat. Richard Bedford - On My Way To Heaven (Above & Beyond Club Mix)
+04. Gareth Emery - Tokyo (Edit)
+05. Lange feat. Stine Grove - Crossroads (Original Mix)
+06. Cosmic Gate - The Theme
+07. Markus Schulz vs. Ferry Corsten - Loops & Tings (Extended Mix)
+08. Marcel Woods - Advanced (Tiesto Remix)
+09. Arty - Open Space (Radio Edit)
+10. Sander van Doorn - Chasin' (Original Mix)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0CAB40602DB34DBD5E46835C5A18B82CBCF077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254239   (362317) от 05.11.2010
+
+VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro HouseПродолжительность: 06:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EB2AFA107BB6AA92CE380AEE6B35A49F317E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071104   (362133) от 09.11.2016
 
 VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
@@ -565,180 +742,6 @@ VA - Ministry of Progressive (50 Supreme Tunes) Vol.2 (2018) [MP3|320 Kbps] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DE7CD550FAF491A5153B0CD8C05CEF04917827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179431   (349211) от 31.10.2017
-
-VA - Coffee House: Armada Music (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies - Here With You (Stereoclip Remix)
-02. Tiggi Hawke - Dangerous Behaviour (Original Mix)
-03. Pablo Nouvelle - I Want For Nothing (Feat. Favela)
-04. Thomas Gold - Dreamer (Feat. Mimoza)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD565C07D5CC45FD639B2F787D10C8097AA70DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179174   (349058) от 31.10.2017
-
-VA - Euphoria Classics - Ministry Of Sound (2017) [MP3|320 Kbps] <House, Trance, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Faithless - God Is A DJ 3:28
-02.  Martin Garrix - Animals (UK Radio Edit) 2:45
-03.  Avicii - Levels 3:21
-04.  Swedish House Mafia - Don't You Worry Child (Radio Edit) 3:32(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 06:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582D89E0448555FEC64C7608EA36194065F89E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073119   (347954) от 15.11.2016
-
-VA - 25 Vocal House Multibundle (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Aslow - So Easy (Original Mix) 7:14
-02. Will Varley - I Believe (Original Mix) 7:34
-03. Valentino Reas - This Is The Night (Dabool Remix) 5:39
-04. Urig & Dice - Manchester (Original Mix) 7:39(   Читать дальше...   )Жанр: HouseПродолжительность: 02:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017FB3438326089DF452A5F91225D2525562E107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073350   (347948) от 15.11.2016
-
-VA - Beach Bar Lounge: Chill out and Deep House Selection (2016) [MP3|320 Kbps] <Deep House, Chill House, Chillout>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monika Kruse - Snowfall - Remastered
-02. Florzinho - Staring at the Stars
-03. Deep Mood - 4 Am
-04. Boy Funktastic - You(   Читать дальше...   )Жанр: Deep House, Chill House, ChilloutПродолжительность: 01:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522AF3680361C3611D8732792B49FEC3E6044DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179787   (347112) от 01.11.2017
-
-VA - Coastal Sunrise 001 (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Carniel - Aura
-02. Billy Horn - Berkanan
-03. Guilty Spark - Dagna
-04. Dunkan - Deeper(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2EB0C3530458435B6B511B2EDE72605619E81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179686   (347103) от 01.11.2017
-
-VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunsterz - Cometa (Original Mix)
-02. 4ngus - Circles (Original Mix)
-03. #MONKEYStuff - Be Someone (Original Mix) (feat. Dmitry F)
-04. Chris Energize - Modern Times (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
 ```
 
 https://mybot314.ru/tekegram_catalog/

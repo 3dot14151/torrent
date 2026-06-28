@@ -1,3 +1,90 @@
+###  Публикация: 1012227   (794809) от 30.04.2016
+
+VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer -  Lights (Matt Bukovski Remix) (feat. Emma Lock)  6:19
+02. NoMosk -  From Sunrise To Sunset (Original Mix)  6:37
+03. Ark Planet -  Midnight Way (Original Mix)  8:09
+04. Feel -  If You Feel Love (Feel Up Mix)  7:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A2B3E1692419F2B0DFE84B5CC8DD1F7032F8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274306   (794164) от 06.01.2019
+
+VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suncatcher – Monumental (Original Mix)
+02. Edelways – Changes (Original Mix)
+03. Plutian – Subsolar (Original Mix)
+04. DANIEL KANDI – Hong Kong (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F83646C05F567A251C4114BA83420FFE38FBD5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200960   (794069) от 23.01.2018
+
+VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Hunter - Power Of The Code (Jens Jakob remix)
+02. Nx-Trance - Symbiont (original mix)
+03. Stella Project - Universe (Mark Eworth remix)
+04. Luca Gazzola - North Rose (Diego Morrill's Manticore mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509810   (792934) от 14.11.2021
 
 VA - Black Hole Trance Music 11-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,92 +745,6 @@ VA - Uplifting Trance Sessions Vol.11 (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B1A0284884B788A44EA19C042FFD0BD12F74E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276843   (787247) от 18.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Jam El Mar - Lotus (Extended Mix)
-02. Moogwai - Viola (Elevation Extended Remix)
-03. Fisherman - The JaguarЖанр: TranceПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7831F7349E573352D0A764236ED6ED5BC0687EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276846   (787238) от 18.01.2019
-
-VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Profetik Feat. Mandy Jones - Memories (Extended Mix)
-02. Orkidea - Forward Forever (Extended Mix)
-03. Maarten De Jong - Goodbye (Extended Mix)
-04. Myon & Late Night Alumni - Hearts & Silence (Super8 & Tab Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31539303922E83B569F86F12658E50DAA715211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123468   (786220) от 09.04.2017
-
-VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
-02.  Empirian - Waves (Original Mix)  5:49
-03.  Artra & Holland - Freyja (Extended Mix)  6:38
-04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
 ```
 
 https://mybot314.ru/tekegram_catalog/

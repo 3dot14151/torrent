@@ -1,3 +1,118 @@
+###  Публикация: 1289622   (686625) от 16.03.2019
+
+Daddy Cool Kids  - School's Out (2008) Single [FLAC|Lossless|image + .cue] <Disco, Europop, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. School's Out (Radio Version)	3:47
+2. School's Out (Extended Version)	4:37
+3. School's Out (Karaoke Version)	3:47Жанр: Disco, Europop, ElectronicПродолжительность: 00:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01475AEF170243A38D416C6E235E55FD1347E955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289524   (686366) от 16.03.2019
+
+Goombay Dance Band - Sun Of Jamaica (1995) Series Pop Shop Sony Music [FLAC|Lossless|image + .cue] <Electronic, Latin, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Of Jamaica
+02. Seven Tears
+03. Island Of Dreams
+04. Eldorado(   Читать дальше...   )Жанр: Electronic, Latin, DiscoПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808C48F84EEFB2BF205421F165B589438EEDB3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290393   (679833) от 19.03.2019
+
+Arabesque - The Best - Легенды Дискотек 80-х (2006) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friday Night
+02. City Cats
+03. Hello, Mr. Monkey
+04. In The Heat Of Disco Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BC7C7B5120DD3DD9E89F3EBB197772BB43C8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136231   (676840) от 21.05.2017
+
+Dschinghis Khan - Non-Stop Best Hits (2001) Compilation, Mixed [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan 03:16
+02. Hadschi Halef Omar 03:09
+03. Rocking Son Of Dschinghis Khan 02:58
+04. Der Verrater 03:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9328BEEA30C39FD5BB12EFF679D013329062E8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290509   (675955) от 21.03.2019
 
 Dschinghis Khan - Dschinghis Khan (1979) [FLAC|Lossless|image + .cue] <Disco>
@@ -635,122 +750,6 @@ VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B7C27D9D16E7C5A9B41B9EF7CCD2AD33227CB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143548   (635252) от 18.06.2017
-
-Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Dancer
-02. Hotline
-03. In The 25th Century
-04. Living In A Fantasy (Single Version)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67473EEA5403D1DA6F69AA0F99FC73D57308C90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143546   (635250) от 18.06.2017
-
-Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taken To The Stars
-02. Videogirl
-03. Digital Love
-04. Lightspeed(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D708678DE1AAFE7962F2B7AD0B2514F2796EC1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143552   (635122) от 18.06.2017
-
-Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora 5:26
-02. Night Sky 4:58
-03. You Tell Me 3:48
-04. The Future 4:15(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542881   (633431) от 09.04.2022
-
-Patty Ryan - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Love, You're My Life
-02. I Don't Wanna Lose You Tonight
-03. Love Is The Name Of The Game
-04. Love Emotion(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6175A5487D665057AC8A6F9CBF36F6E691B2F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

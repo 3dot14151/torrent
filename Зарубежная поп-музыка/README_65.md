@@ -1,3 +1,32 @@
+###  Публикация: 1188016   (275977) от 01.12.2017
+
+Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Satellites
+2. 9 to 5
+3. Ms Pepper
+4. Bambi(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEC0BC116A6E11FC4C430FF8D020326F6DFE58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 273466   (275846) от 21.12.2010
 
 Falco - Out Of The Dark (Into The Light) (1998) [MP3|320 kbps]<Pop/Rock>
@@ -723,35 +752,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658634F4D20CCC4D60D960969AE6CEB9A992F988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338756   (269006) от 16.11.2019
-
-VA - Nu-Disco Selections, Vol. 13 (2019) [MP3|320 Kbps] <Nu Disco / Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico BSJ Ferrari – Black Gold (6:48)
-02. Semitone – Forget You (3:05)
-03. X Gets The Crest – In Vain (7:04)
-04. C. Da Afro & J.B. Boogie – Invisible Disco (6:00)(   Читать дальше...   )Жанр: Nu Disco / DiscoПродолжительность: 02:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2CFAF880F25C51FABAF2837316FC6E7DF7210A
 ```
 
 https://mybot314.ru/tekegram_catalog/

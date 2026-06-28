@@ -1,3 +1,143 @@
+###  Публикация: 602627   (996702) от 16.01.2013
+
+Sam Taylor - Mood Kayou Best (2CD) (2008) [MP3|320 кб/с]<Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 101. Tokyo Love You (2:39)
+02. See You In Yurakucho (2:45)
+03. The Second Night Fog Highway (3:07)
+04. Love You More Than Anyone (2:21)
+05. Una Sera Di Tokyo (2:48)
+06. Veggie - Delight Night Dream (3:03)
+07. Bruce Thought Bridge (2:37)
+08. Ginza Twilight (2:10)
+09. I Know Too Much (3:14)
+10. Atami Night (3:09)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17694028FA98D4514CE883C6C9C066671276544D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602633   (996683) от 16.01.2013
+
+Давид Тухманов - Марши для духового оркестра (2006) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый марш - 03:43
+02. Марш чемпионов - 04:18
+03. Марш - Кавалерия - 03:04
+04. Марш - Эскорт - 01:42
+05. Марш - Павел - 01:26
+06. Марш - Петр - 01:06
+07. Марш - Суворов - 01:00
+08. Марш - 1812 год - 01:10
+09. Церемониальный марш - 04:26
+10. Марш - Парад - 02:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAA8487D4DFF33C85C743CA79DB5F44C3C410F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604184   (996457) от 17.01.2013
+
+Охотники на гангстеров / Gangster Squad (2013) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. His Name Is Mickey Cohen [2:25]
+02. Welcome To Los Angeles [3:13]
+03. He Can't Have You [1:39]
+04. War For the Soul of LA [2:48]
+05. There Goes Our Ride [1:14]
+06. You Can't Shoot Me [3:52]
+07. Always Knew I'd Die In Burbank [2:30]
+08. You're Talking to God [0:51]
+09. The Bug [2:18]
+10. Hot Potato With a Grenade [3:19](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604547   (996063) от 18.01.2013
+
+Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996063.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Andalu
+ 02. Quiver
+ 03. Field Of Tears
+ 04. Eros
+ 05. Allura
+ 06. From Where They Fall
+ 07. Aria
+ 08. Laguna
+ 09. Bellaire
+ 10. Lanotte(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604293   (995224) от 21.01.2013
 
 Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native american>
@@ -693,119 +833,6 @@ David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5B4B70AD4610F2335E4E67564344FBEE250E169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970616   (988576) от 01.01.2016
-
-David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. While the Trees Sleep (5:43)
-02. Home (3:40)
-03. Ascending with Angels (3:04)
-04. Light (4:40)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAABA327964EFDEC96CF65AE875874624031605E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163621   (988284) от 05.01.2010
-
-Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, CelticПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658858   (987773) от 22.01.2020
-
-Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
-02. Bamboleo - 3:24
-03. Djobi Djoba - 3:25
-04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970808   (987322) от 02.01.2016
-
-Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby (Orchestral version) (3:24)
-02. All You Need Is Love (3:15)
-03. When I'm Sixty-Four (3:15)
-04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

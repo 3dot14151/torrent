@@ -1,3 +1,195 @@
+###  Публикация: 1334526   (294766) от 29.10.2019
+
+Alan Walker - The Spectre (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spectre (3:14)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B7B29551CFDBA3A81813C49257BAE25445AE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334527   (294680) от 29.10.2019
+
+Alan Walker - Faded (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faded (3:33)
+ 02. Faded - Instrumental (3:34)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A5D1CAB97BFD23273ADA87BE6D6BD39C139B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334524   (294663) от 29.10.2019
+
+Alan Walker - Different World (2018) [FLAC|Lossless|tracks + .cue] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:16)
+ 02. Lost Control (feat. Sorana) (3:42)
+ 03. I Don't Wanna Go (feat. Julie Bergan) (2:42)
+ 04. Lily (feat. K-391 & Emelie Hollow) (3:16)(   Читать дальше...   )Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C23836C84515872A42182FFE15B02908A4F4FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079562   (293898) от 04.12.2016
+
+Boris Brejcha - DJ Mixes Single Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amisette (9:18)
+02. Fidibus (8:21)
+03. Bebot (8:09)
+04. Black Beauty (7:50)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 03:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8827BB7B81D29F5788CE5FA57D3F8C4539789C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262579   (293507) от 16.11.2018
+
+E-Light - Controversy (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Controversy (Original Mix)
+02. At Low Cost (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6872FFDE84813CB28CF3A7F3719175536522F331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262589   (293501) от 16.11.2018
+
+Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello (Original Mix)
+02. Noi (Original Mix)Жанр: Progressive HouseПродолжительность: 00:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982FC83DE91D480F11A9D46CC6D69D1882A850C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262571   (293500) от 16.11.2018
+
+Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elohim (Original Mix)
+02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960899   (292839) от 05.12.2015
 
 VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tracks+.cue]<House, Deep House, Tech House>
@@ -542,209 +734,6 @@ DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335787   (284727) от 04.11.2019
-
-Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderphalt (05:59)
- 02. Attio (07:00)
- 03. Sonder at Mountain Street (06:59)
- 04. Embrace Space (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335792   (284550) от 04.11.2019
-
-UHF - Flight To Anywhere EP (2019) Gladio Operations [FLAC|Lossless|Vinyl|tracks] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight To Anywhere (Scape One's Flight To Mars Mix) (07:12)
- 02. Flight To Anywhere (05:45)
- 03. Reality (06:21)
- 04. Inner Fight (05:54)Жанр: ElectroПродолжительность: 00:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E828A55738FC508DA0DA65DCD88B68C3C214723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263848   (282891) от 22.11.2018
-
-VA - In The Mix 007 (Airwave Progressive Sessions) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pranav Mayekar - Elixier (Original Mix)                         [09:46]
-02. Eric Lune - Benji (Original Mix)                                [06:57]
-03. Eelke Kleijn - The Calling (Original Mix)                       [08:12]
-04. Laurent Chanal - Marlin (Nicolas Rada Remix)                    [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2C60D3420CE549DEA65828959FEE5A91D4A322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264157   (282883) от 22.11.2018
-
-Parra for Cuva - Paspatou (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paspatou (4:29)
- 02. Out Here with Us (4:08)
- 03. Useless Magic (3:57)
- 04. Cupa Cupa (6:05)(   Читать дальше...   )Жанр: Electronic, Chill House, Tech House, DowntempoПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD96C0508B434370F4BE62680EBB747AA2527623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264326   (281242) от 23.11.2018
-
-SMX - Hinterland EP (2018) Blank Mind [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hinterland (05:15)
- 02. Mono (06:30)
- 03. Study One (09:07)
- 04. Uakari (07:57)Жанр: Techno, AmbientПродолжительность: 00:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D56A9A1C2C6B180B6AFF97A8E77FC85D907FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964857   (280782) от 12.12.2015
-
-Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<Trance, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell - Eclipse (Chocolate Puma Remix)
-02. Hardwell feat. Jason Derulo - Follow Me (Bingo Players Remix)
-03. Hardwell feat. Harrison - Sally (Frontliner Remix)
-04. Hardwell feat. Bright Lights - Let Me Be Your Home (Dave Winnel Remix)(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 01:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA4D765E240BF670F048D696CBB9957230E54C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081974   (280754) от 11.12.2016
-
-VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paji & Juliet Sikora - Dimension (original mix) (05:57)
-02. KANT - Never U Mind (original mix) (06:30)
-03. Purple Disco Machine - Walls (original mix) (06:38)
-04. Tube & Berger - Set Free (feat Ghost Loft) (06:50)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

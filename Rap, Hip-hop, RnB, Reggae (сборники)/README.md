@@ -202,6 +202,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603462   (1045725) от 09.01.2023
+
+VA - DJ Vision Happy Weekend (2023) [MP3|320 Kbps] <Dirty Rap, Alternative R&B, Urbano, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake feat. Wizkid & Kyla - One Dance (DJ Fricktion 104-127 UK Funky Transition)
+02. DJ Chose feat Megan Thee Stallion - THICK Remix (PeteDown Transition) 100-73 (Dirty)
+03. Jeezy Ft. Yo Gotti - BackЖанр: Dirty Rap, Alternative R&B, Urbano, ReggaetonПродолжительность: 02:13:34 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EFB1D59EF9B3E70E8C41176E0FDA5DD02124CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607376   (1044013) от 26.01.2023
 
 VA - We Got The Soul (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
@@ -717,35 +745,6 @@ VA - Rap Francais (Vol.09) (2021) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665F3526C70B04CE1F00CF320F05D9FA50137F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457029   (1024602) от 25.03.2021
-
-VA - Symphony Of The Street (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rap - в настоящее время сформировался как очень яркая и самобытная культура, условно называемая уличной. Со своей музыкой, одеждой, сленгом, изобразительным искусством - граффити, несколькими стилями танцев, со своей системой жизненных ценностей - то есть со всеми признаками полноценной субкультуры, какой была культура модов или хиппи001. Asian Doll - Everybody Stressed
-002. Death Over Simplicit - Childhood's End
-003. Evidence - Speaker Cabinet
-004. Ampichino - Go Crazy(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E17685621F24309D7B4B5821CC3B9461D22A527
 ```
 
 https://mybot314.ru/tekegram_catalog/

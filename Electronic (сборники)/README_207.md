@@ -1,3 +1,148 @@
+###  Публикация: 1194964   (142004) от 29.12.2017
+
+VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love And Rockets - No Big Deal (12'' Mix) - 1989
+02. Walk The Moon - Daddy's Coming Home - 1987
+03. Mental As Anything - Surf & Mull & Sex & Fun - 1985
+04. Vicious Pink - Take Me Now - 1985(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 03:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C32118FC2BB2836A8C42ECEDC667CBD79B1BF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520387   (141983) от 28.12.2021
+
+VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника под названием "The Space Beats" отправит Вас на космический крейсер, который вот-вот отправиться в увлекательное фантастическое путешествие по тысячам планет нашей необъятной галактики. Раскрываются фермы стартового комплекса, включается реактор, ярким сиянием загораются ракетные двигатели, и наш корабль отправляется к очередной звездной (   Читать дальше...   )001. Lost Souls Of Saturn - Ring Transmission
+002. Chase Smith - Phenylketoneutropics
+003. Marco Monteverde - Tribal Green
+004. Red Rooms - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 09:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970593   (141620) от 30.12.2015
+
+VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic – To The Party (Radio Edit) 03:43
+ 02. Mr X Project – Let’s Run Away (Teknova Remix) 03:52
+ 03. Mario Sem Ft John Mood – Run Again (Stephan F Remix) 05:24
+ 04. Eliza G Ft Lion D – Ladies Nite (Turbotronic Remix Edit) 03:45(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 03:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214A2352E2D71100EF3045469297438571C22658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348803   (141270) от 29.12.2019
+
+VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
+002. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+003. Billie Eilish - bad guy 3:14
+004. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F3027EB2E022334ADFEA4FB75EDC41092190DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088214   (141215) от 30.12.2016
+
+VA - Antagon Cybernetic: 130 Hard Technostyle (2016) [MP3|320 Kbps] <Hardstyle, Electro Hardcore>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 6-Pack - Drunken Piece Of Shit
+002. Ace The Space - 9 Is A Classic (Ultimate Rave Mix)
+003. Adrenalize - Robot Love
+004. Advanced Dealer - Back To The Rave (Edit)(   Читать дальше...   )Жанр: Hardstyle, Electro HardcoreПродолжительность: 11:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F734E49D2FF7439E41B93386611FFA1A0E3A2A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088291   (141213) от 30.12.2016
 
 VA - Apollo Four Forty - Best275z (1994 - 2012) [MP3|320 Kbps] <Electronic>
@@ -597,157 +742,6 @@ VA - Record Super Chart Final (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9855B70480D9D63C5F56F5DEB32C70354E0396E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273159   (137679) от 31.12.2018
-
-VA - Options Remake Of Tracks December -C- (2018) [MP3|320 Kbps] <Electronic, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Kolev - Higher Collective (Original Mix)
-02. Joris Voorn - Genova Original Mix
-03. Tilt - Sinai (Holy Mountain Mix)
-04. Hausman - Aether(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 06:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43ABA571FAF5512B09C8B4295A07A497D924371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970758   (137651) от 31.12.2015
-
-VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Uplifting Trance , TechLifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Bowdidge - Final Rising (Original Mix) (6:58)
-02. James Kelly - 400 (Extrema 400 Official Anthem) (5:49)
-03. John O'Callaghan - Meridian Bay (Original Mix) (6:52)
-04. WeAreAliens - Star Driver (Original Mix) (6:49)(   Читать дальше...   )Жанр: Trance , Uplifting Trance , Techlifting TranceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088563   (137283) от 31.12.2016
-
-VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZANIO - Will (Elevate & Raggapop Inc Remix) (6:28)
-02. Yuriy From Russia - Keep Your Head Down (Original Mix) (7:50)
-03. Bring Bliss & Sonya P. - Wish the Night (Stas Isometrica Remix) (6:05)
-04. Platunoff - The Time To Go (Original Mix) (7:12)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Atmospheric Breaks, Progressive BreaksПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824620   (136904) от 16.10.2025
-
-Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Like to Live
- 02 - Dance Away
- 03 - I Lost You
- 04 - Moscow(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591197   (136287) от 20.12.2012
-
-VA - Cavalier's Club Volume One (2012) [MP3|320 кб/с]<Chillout, House, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yonderboi - Amor
-02. Moodorama - Into The Sunrise
-03. Elastic Field - Blow In Your Mind
-04. Nor Elle - Forgotten Fields
-05. Koala - Floating Pillow - Alternative Mix
-06. Ohm-G - One
-07. Acoustique Parfum - Bus Ride
-08. DJ Nob Tee aka Dugsoul - Keep On - Natural Soul Mix
-09. Yonderboi - I Am Cgi
-10. Ohm-G - Island Dream(   Читать дальше...   )Жанр: Chillout, House, DowntempoПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2B86C640EEA91F250BAACFD54689CC22E42D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

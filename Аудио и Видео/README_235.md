@@ -1,3 +1,177 @@
+###  Публикация: 1495303   (237806) от 13.10.2021
+
+VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (2015) [AAC|~329 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
+02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
+03. Noise Boyz - I'm a Jazzwoman (Cooljazz Mix) (5:06)
+04. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 04:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497410   (237800) от 13.10.2021
+
+VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dharma Frequency - Puja Ritual (5:15)
+02. S.W. - Like In My Dream (0:47)
+03. Prana Tones - Eastern Piano (4:52)
+04. Lemongrass - Dreaming (2:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7652D90901706F2AFDE60FA0122599BD4B205C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496555   (237793) от 13.10.2021
+
+VA - Smooth Jazz n Chill 2 (2017) [AAC|~344 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Colionne - Got to Keep It Moving (4:51)
+02. LeBron, Keith Fluitt - For the Love (4:37)
+03. Cindy Bradley - Lifted (4:55)
+04. Nicholas Cole, Steve Cole - Just One Night (4:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6214F900510CA535597EEC00980D570A2E8874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498507   (237785) от 13.10.2021
+
+VA - Fireplace Chill, Vol. 2 (2020) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twentyeight - Sunday Morning (Original Version) (5:40)
+02. Dreamhunter - How to Disappear (Original Mix) (4:13)
+03. Weathertunes - Anis nous explique (Original Mix) (5:32)
+04. Stargazer - Providence (Original Mix) (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515B0EA03AB4F1C8A024A96E522DEF48CCC78219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495305   (237775) от 13.10.2021
+
+VA - Fifty Shades of Lounge, Vol. 2 - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (2016) [AAC|~329 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo, Vladi Strecker - Sentimental Break (Wide Ocean Mix) (6:51)
+02. Orange Music - Blown Away (Acoustic Mix) (6:03)
+03. Jazzy James Jr. - Jazz Dilemma (Jazz Loungebar Mix) (4:54)
+04. Vladi Strecker - Hot Afternoon (Jazzfly Mix) (9:33)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 04:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33F8145F22418D8D499E702238A669EB5EE7443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496563   (237769) от 13.10.2021
+
+VA - Smooth Jazz n Chill 6 (2021) [AAC|~347 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cindy Bradley - Exhale (5:15)
+02. Kayla Waters - Open Portals (4:24)
+03. Nick Colionne - Right Around The Corner (3:47)
+04. Oli Silk - Just Can't Resist (4:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E21DD9C51C87F374DADD16F6D82FE1266567B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495377   (237760) от 13.10.2021
 
 Epica - Omega (2021) [AAC|~345 Kbps] <Symphonic Metal>
@@ -571,180 +745,6 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 2 (2015) [AAC|~323 Kbps] <Ea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F22D5379CF98E753A8AAC13C26C04C91E7722C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498957   (237525) от 14.10.2021
-
-VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Therese - When You Come Home (4:23)
-02. Nightzoom - So Much (Short Plugged Vocal Remix) (3:08)
-03. The Compunist - Deep Funk (4:49)
-04. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497395   (237514) от 14.10.2021
-
-VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - A World of Beauty (4:49)
-02. Buddhatronic - Back to the Beginning (4:18)
-03. Aqualuna - Electric Cloud (4:00)
-04. For Found Future - Bees of the Wonderland (4:01)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DBF7EACAD6A0144BA315DC18871453C43ECCDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502302   (237507) от 14.10.2021
-
-VA - Urban House Grooves, Vol. 2 (2021) [AAC|~323 Kbps] <House, Progressive House, Club House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldera - Not Fidel (Edit) (3:22)
-02. Jag, Yuji Ono - Remind Me (Original Mix) (5:51)
-03. Congotronik, Maria Jap - El Mata Mara (Original Mix) (5:00)
-04. MiCON (UK) - The Gate (Original Mix) (6:54)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 02:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0FCB9152B47CE6DBEE90ACA705DFCB78AAC062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502300   (237498) от 14.10.2021
-
-VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive House, Club House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Victorio - Arpège (House and Glitter Mix) (2:40)
-02. YNOT, Francesco Diaz - Spread Love (Trilllion Radio Edit) (3:33)
-03. Sordid Soundz, Chris Marina - Get Ready (Original Mix) (6:29)
-04. Fijin, Nessa - The One (Sovi Remix) (4:58)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 02:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5D56466E8633193D009585B6C3C00F3D4AF4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499724   (237490) от 14.10.2021
-
-Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В тёмную воду. Intro (3:40)
-02. Никого не останется (4:20)
-03. Вьюгина ты дочь (5:33)
-04. Сам с собой (4:46)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499027   (237478) от 14.10.2021
-
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiozoom - Lounge Girl (4:37)
-02. Soundset City - Bar Nights (3:31)
-03. Soundset City - Lounge (Sun Is Shining Mix) (3:52)
-04. CiYou - Merge Of Delays (2:03)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274AC542A9821133731A009D5300B6A0E2DB7288
 ```
 
 https://mybot314.ru/tekegram_catalog/

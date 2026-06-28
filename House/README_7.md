@@ -1,3 +1,177 @@
+###  Публикация: 1092776   (937417) от 13.01.2017
+
+Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will Fast & Major Lover - First Life (6:11)
+02.  Will Fast & Major Lover - I'll Be Back (5:24)
+03.  Touch Me  (4:43)
+04.  You & I  (4:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFD971B053E7DDF3A3440B65B844E8129A98E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092890   (937411) от 13.01.2017
+
+VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alkalino - Distant Future [6:42]
+02. Ritmo Du Vela - It's Good [6:00]
+03. Dany Cohiba - Just Be Real [6:24]
+04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093056   (937328) от 13.01.2017
+
+VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice Output - Fastest
+02. Xenias - Banana
+03. Ulric Hopz - Provoi
+04. Xort Base - Useful(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364434   (936406) от 03.03.2020
+
+VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Electro Jack - Stadium 4:11
+2. Edgar Blaime - Legazy 4:11
+3. Dustin Phillow - Amount 4:11
+4. Duna Shain - Sculpt 4:11(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093331   (934026) от 15.01.2017
+
+VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daleri ft Vice - Somebody Told Me (En Route)  3:06
+02.  Tom Fall - Irok (Radio Edit)  3:14
+03.  Julian Jordan - Pilot  2:33
+04.  Sunstars - Crysis  2:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA55AE6F6A3E2BF9D9A6B7082C561DC4B0948DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093701   (934024) от 15.01.2017
+
+VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortimer Snerd III – Crazy Fox (Miggs & Mortimer ReTouch) 06:50
+02. TrackHead Steve – U 4Get About Me (Steve Miggedy Maestro ReTouch) 07:27
+03. Michele Laws – Saditty (Miggedy’s Jackin ReTouch) 06:35
+04. Tink Thomas – Breathe (Tink Thomas Mix) 08:56(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365082   (933811) от 05.03.2020
 
 VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
@@ -571,180 +745,6 @@ VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6204121A48D37306307FECB1E3088D188CB692C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095911   (922526) от 22.01.2017
-
-Vitalic - Voyager (2017) [MP3|320 Kbps] <Electro House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Viaje (01:34)
-02. Waiting For The Stars (Feat. David Shaw) (03:52)
-03. Levitation (05:40)
-04. Hans Is Driving (Feat. Miss Kittin) (04:33)(   Читать дальше...   )Жанр: Electro House, Nu-DiscoПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1B9C3E613DFF27CC9A4F465E1ECD07A476ED99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096268   (920980) от 23.01.2017
-
-VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Dreamscape  6:11
-02.  Enrico Donner - Where the Sun Rises (Feat. Ali Rouass)  7:07
-03.  DJ Riquo - Deep Winds  5:08
-04.  Cane Garden Quartet - Sea Jam  5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988608   (920950) от 20.02.2016
-
-VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Phunk - Swept Away (Ibiza Workout Remix) 04:50
-02. We:Us - For The Night (Tropical House Fitness Edit) 04:20
-03. American Groove Junkies - Reach You (Sexy & Fit Mix) 03:34
-04. Summer Beats - Hold On (Dancefloor Fitness Mix) 04:06(   Читать дальше...   )Жанр: Club, Progressive, Future HouseПродолжительность: 02:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096154   (920943) от 23.01.2017
-
-VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electro Jack - Funktup 05:01
-02. Vladimir Damira - Grabba 05:38
-03. Sammy Kaiser - Flow with Da Grow 05:03
-04. Susan Sustain - Hypnotize2 07:28(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096428   (920932) от 23.01.2017
-
-VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qamil Stello — Gonet 02:52
-02. Saber Wolf — Hong Kong 02:37
-03. Sofia Morales — Macsound 04:01
-04. Jeff Haymaker — Elec 04:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096478   (919308) от 24.01.2017
-
-VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Mode — First Mode (Original Mix) 05:48
-02. Mighty Real — Remote Viewing (Original Mix) 06:43
-03. Circuito Zeta — Step Down (Original Mix) 07:17
-04. Stube — Calling Dingo (Original Mix) 06:30(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B73650F921E9DD2A7E3AE39EBBE9DF0A021E171
 ```
 
 https://mybot314.ru/tekegram_catalog/

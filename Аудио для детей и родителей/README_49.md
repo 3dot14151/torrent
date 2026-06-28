@@ -1,3 +1,58 @@
+###  Публикация: 232101   (509343) от 31.08.2010
+
+VA - Школьная пора (2007) [MP3|160 kbps]<Песенки для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509343.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+1.	Веселый урок
+2.	Дважды два - четыре
+3.	Девчонки и мальчишки(   Читать дальше...   )Жанр: Песенки для детейПродолжительность: 02:19:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562461   (509287) от 09.07.2022
+
+Виктор Астафьев | Конь с розовой гривой (2022) [MP3, Нина Гуркова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ Астафьева «Конь с розовой гривой» повествует об одном эпизоде из детства мальчика. Рассказ заставляет улыбнуться над проделкой главного героя и одновременно оценить замечательный урок, который преподала бабушка своему внуку. Маленький мальчик отправляется собирать землянику, и бабушка обещает ему за это пряничного коня с розовой гривой. Для тяжелого полуголодного (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DBE3CADFB1B99AC5D48FD56520D7B3D7B62B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232220   (508990) от 31.08.2010
 
 VA - Песни Про Маму (2010) [MP3|256 kbps]<Детские песни>
@@ -668,64 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFE68ACA418617DBE42E3E2B2E598C37234BB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379621   (503643) от 24.08.2011
-
-VA - Io Canto (2010) [MP3|204-238 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigla D'Apertura (Medley) - Stefania Tesoro, Sara Musella, Roberta Spampinato, Francesco Pugliese, Roberto Tramutola, Virgilia Siddi, Davide Caci (песни: Il mondo che vorrei, Avrai, Non mollare mai, Nel blu dipinto di blu)
-02. Come saprei - Cristian Imparato (бэк-вокал Mario Cordova)
-03. Io canto - Simone Frulio и Chiara Sapienza
-04. Think - Fidalma Intini(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D73C81A8230E121504C065DEF1016E6FC9B254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379630   (503543) от 24.08.2011
-
-VA - Io Canto - 2a Edizione (2010) [MP3|320 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Silvia Iannone e Maya Pieri - Waka Waka
-2. Luana Chiaradia - Pensieri E Parole
-3. Liudmila Loglisi e Davide Caci - Non Succedera Piu
-4. Alessia Labate - Angel(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5AFDB5BF132C8CA0C245070C338B18CC068B02
 ```
 
 https://mybot314.ru/tekegram_catalog/

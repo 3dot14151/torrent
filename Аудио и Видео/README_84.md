@@ -1,3 +1,174 @@
+###  Публикация: 1521768   (763659) от 04.01.2022
+
+bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Peace (2:22)
+02. bcalm, Banks, Purrple Cat - Firelight (2:24)
+03. bcalm, Banks, Fletcher Reed - Comfort (2:18)
+04. bcalm, Banks, Fletcher Reed - Sleep Patterns (2:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo FiПродолжительность: 00:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A435D9ACD5347950F0FB31B3764E9A35D6DC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521929   (763658) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exalted to God (Original Mix) (5:25)
+02. Warm Heart (Original Mix) (6:37)
+03. Iris Dee Jay, Maria Opale - For You (Rayan Myers Remix) (4:12)
+04. Pleasant Calmness (Original Mix) (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CAFE0B2B1AFC0DFBADAA79702AE206D6F6E534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394553   (763625) от 05.07.2020
+
+Кровь машин (Кровавые машины) / Blood Machines (2019) WEB-DL [1080p] ATV3
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двум бывалым космическим охотникам поручено найти сбежавший звездолет. Однако, настигнув цель, они обнаруживают, что у искусственного разума этого корабля есть душа - ангелоподобный призрак молодой женщины, что рвется на свободу. Не в силах понять это удивительное явление, они оказываются втянуты в события внегалактических масштабов.Производство: Франция / Logical Pictures, Rumble Fish ProductionsЖанр: Kороткометражка, фантастикаРежиссер: Сет ИкерманАктеры: Элиза Ласовски, Андерс Хейнриксен, Кристиан Эриксон, Наташа Кэшман, Уолтер Дикерсон, Жоэль Беркманс, Александра Фландрин, Ноэми Стивенс, Марион Левавассёр, Гаранс СильвеПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AC5B667F88F9CB87040C2F6BD24476630650B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521771   (763552) от 04.01.2022
+
+bcalm, Banks - Feelings Pt.2 (2021) [AAC|~283 Kbps] <Lounge, Chill Out, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anemone (3:04)
+02. Hiraeth (2:17)
+03. Bluebird (2:50)
+04. Just Breathe (2:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo FiПродолжительность: 00:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EF433EBD4A864B793FEE96F4F05428E1B599A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521776   (763551) от 04.01.2022
+
+VA - Time to Chill, Vol. 2 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Calma (5:14)
+02. Artenovum - You and I (Mystic Vocal Mix) (5:22)
+03. Marie Therese - Sailors Cry (4:24)
+04. Area 42 - Tryptichon (4:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95D4D5809602727C85AF7C47FCC7E7B9A05A8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521778   (763550) от 04.01.2022
+
+VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shunkan Idou - White Valley (5:07)
+02. Germind - Hiisi (2:43)
+03. Dedast - Outer World (7:42)
+04. I-ONE - Last Man With An Old Robot (9:53)(   Читать дальше...   )Жанр: Psychill, Psybient, Chill Out, DowntempoПродолжительность: 02:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8919E2FDEE26A01E5E92AB0BDFF02CEAD4D1C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521932   (763549) от 04.01.2022
 
 Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 3 (2019) [AAC|~356 Kbps] <Lounge, Chill Out, Downtempo>
@@ -547,176 +718,6 @@ VA - Armada Music Year Mix 2021, Vol. 1 (2021) [AAC|~331 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965F61E59B3C08E5470550DA870921BC0EAC152D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522005   (762027) от 05.01.2022
-
-Lenni-Kalle Taipale Trio - Nothing To Hide (1999) [AAC|~349 Kbps] <Jazz Rock, Contemporary Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Nothing To Hide (4:51)
-1.02. First Peace (7:40)
-1.03. Sami-Imas (5:21)
-1.04. Hääpari (Wedding Couple) (4:18)(   Читать дальше...   )Жанр: Jazz Rock, Contemporary JazzПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAF96C05E109116F06996617A5C023DEDCACF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280343   (761991) от 02.02.2019
-
-Эстер Перель | Право на «лево». Почему люди изменяют и можно ли избежать измен (2019) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему люди изменяют? Что заставляет их заводить вторые семьи, тайные банковские счета, разрабатывать сложные схемы ведения двойной жизни?
-Эстер Перель, практикующий психотерапевт, в течение десяти лет работала с сотнями пар, которые столкнулись с неверностью. Ее книга – это всестороннее исследование желания, возникающего при взгляде на сторону.
-Переплетая реальные (   Читать дальше...   )Жанр: Популярная психологияФормат: M4BПродолжительность: 09:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4376848A3F05D6B2CE886429F5A26C1A91BF5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661279   (761935) от 27.05.2013
-
-Легенда №17 (2013) BDRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761935.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 сентября 1972 года. Монреаль. Хоккейная сборная СССР с разгромным счетом 7:3 победила канадских профессионалов из НХЛ в стартовом матче эпохальной Суперсерии СССР-Канада. Это была не просто игра, это была битва за свою страну, которая перевернула мировое представление о хоккее.Теперь весь мир знал его просто по номеру «17». Валерий Харламов, забивший в том матче (   Читать дальше...   )Жанр: спорт, драма, биографияПеревод: ОтсутствуетСубтитры: * 3GPP Text -  ОтсутствуетПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522108   (761919) от 05.01.2022
-
-Laibach - Laibach Revisited (2020) [AAC|~327 Kbps] <Industrial>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cari amici (2:04)
-02. Zmagoslavje volje (4:48)
-03. Jaruzelski (4:49)
-04. Smrt za smrt (2:10)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 03:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EF587AD95D2AA9CF395819ABBCB8DB963ADBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522009   (761917) от 05.01.2022
-
-Sex Magick Wizards - Your Bliss My Joy (2021) [AAC|~353 Kbps] <Instrumental Jazz-Rock, Fusion>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qliphoth Chokehold (3:05)
-02. Exaltation (4:23)
-03. Hold Your Anger (3:02)
-04. Kheter Ascension (8:21)(   Читать дальше...   )Жанр: Instrumental Jazz-Rock, FusionПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139F57E80BF073558303F3F776CF88813F239CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522096   (761906) от 05.01.2022
-
-VA - Scoping in Twenty Twenty-One (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten Dreams - Mediterranean and Chill (Original Mix) (3:38)
-02. Haive Music - Midnight Milkshake (Original Mix) (8:49)
-03. Morrisound - The Art of Meditation (Original Mix) (10:24)
-04. Memorio - Among (Original Mix) (5:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A1297B2D15B41AAF84880EBB7B75AEFF8817C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

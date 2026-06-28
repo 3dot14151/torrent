@@ -1,3 +1,82 @@
+###  Публикация: 1357728   (972781) от 04.02.2020
+
+Проекты - VideoHive - Horror Logo - 24834085 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Horror Logo - это крутой шаблон AE, в котором ваш логотип отображается в красной жидкости с динамическими переходами камеры. Он очень прост в использовании, все, что вам нужно, это просто перетащить свой логотип. Произведите впечатление на вашу аудиторию с этим современным и динамически анимированным шаблоном.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9884A8CE6D9EEB86F3E1C8F18CB5073CA348548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976738   (968529) от 18.01.2016
+
+Проекты - Pond5 - Fire Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выкуй своё лого при помощи стихии огня.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9F08F2E12AD8EE31B810874B4B51A400AD5BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976544   (968473) от 18.01.2016
+
+Проекты - Pond5 - Magic Logo Animation [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания магического логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6116EC4DE0C83B0F71DC885C7C2D7EE7CD7ECDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977421   (966556) от 20.01.2016
 
 Проекты - BlueFX - 4 Logo Template [AEP]
@@ -607,87 +686,6 @@ Light Flash Neon Energy Logo - Это впечатляющий проект, п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1727F15050644FCCF3391299EFC300B5A1128EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984496   (938107) от 09.02.2016
-
-Проекты - VideoHive - The Film Channel [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет представление логотипа ТВ канала.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928854E9140DD11B48495083822C0143C3DC1E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985170   (935141) от 11.02.2016
-
-Проекты - Motion Array - 3D Metallic Stone Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A502E355FBEEF1A18939B5EA5C87E7DF019093A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985247   (934985) от 11.02.2016
-
-Проекты - VideoHive - Sea Water Logo Intro [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A00F54D3E28E29679EB4797FDB1BC2A5F90BA1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

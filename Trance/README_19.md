@@ -1,3 +1,90 @@
+###  Публикация: 1288518   (695817) от 11.03.2019
+
+VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photographer & Abstract Vision - Zero Gravity (Roman Messer Remix)
+02. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix)
+03. Ayda - Voyager (Original Mix)
+04. Adip Kiyoi feat. Andromeda - Only You (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D6CE5E40F408B79DBB81AA06FFE6FAE025B1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288530   (695815) от 11.03.2019
+
+VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anoikis & Jerom - Never Forget (Original Mix)
+02. Miroslav Vrlik - Illusion (Original Mix)
+03. Gil Zambrano - Siempre (Original Mix)
+04. Slast - Arp (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C3502974F1217933F660378012FA3A8C5539EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133337   (695194) от 12.05.2017
+
+VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alizera - Fairy (Radio Edit)  3:30
+02.  Skyvol - Werewolf's Heart (Radio Cut)  3:55
+03.  Michael Milov - Voice Of An Angel (Radio Cut)  3:37
+04.  Ilya Chupriy - Foggy Morning (Radio Cut)  4:07(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 02:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A0717DDA13DFB056D16C452C2E0DA5C9CED374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221419   (695065) от 24.04.2018
 
 Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
@@ -652,93 +739,6 @@ VA - A State Of Trance Top: 20 March 2019 (Selected By Armin Van Buuren) - (Miam
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76026A2D888FC513063EF256DEB25C9B937DBD4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135750   (677415) от 21.05.2017
-
-VA - Ultra Undeground Festival (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Owl Stone - Breath On Water (Original Mix) 7:07
-02.  Ruslan Shalbekov - Summer Day (Original Mix) 2:35
-03.  Vyacheslav Sketch - Kandalaksha (Vyacheslav Sankov Remix) 6:01
-04.  Vyacheslav Sketch - 5pm (Original Mix) 5:06(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411873DD4576FE83802F8D0040F5EF968410E173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136037   (677157) от 21.05.2017
-
-VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder)(2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixed by Talla 2XLC
-01. Robert Nickson - Heliopause (06:09)
-02. Talla 2XLC - Infinity (extended mix) (03:29)
-03. Alex Morph & Kim Kiona - Coming Home (vocal mix) (05:33)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA2B4BAF9229BBF796802C7B8257B3B329D0239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536467   (675006) от 12.03.2022
-
-VA - Female Vocal Trance (2022) [MP3|320 Kbps] <Trance, VocalTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 S.trings & Sarah Russell - Change The World (3:09)
-02. Myde & Hanna Finsen - My Heart Stood Still (3:19)
-03. Ronski Speed & Elara - I'll Be There (3:35)
-04. Temple One & Katty Heath - In Everything I See (3:15)(   Читать дальше...   )Жанр: Trance, VocalTranceПродолжительность: 04:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417FCA7F0614EB4275ACC2F147B258116940A9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

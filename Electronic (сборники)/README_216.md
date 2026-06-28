@@ -1,3 +1,170 @@
+###  Публикация: 462823   (95604) от 05.03.2012
+
+VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix) [07:20]
+ 02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
+ 03. Orjan Nilsen - Atchoo! (Original) [07:16]
+ 04. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44](   Читать дальше...   )Жанр: Uplifting Trance, Dream Trance, Progressive Trance, Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462350   (95462) от 04.03.2012
+
+VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+002. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+003. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+004. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
+005. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix)
+006. Billy Gillies - Digital Sundown (Paul Todd Remix)
+007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
+008. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
+009. Headstrong feat. Shelley Harland - Helpless 2011 (Aurosonic Euphoric Remix)
+010. Marcos - Hypnotic (Activa Remix)03.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460748   (94999) от 01.03.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Nightstylers feat. Dan Brown - The More I See (Original Mix) (7:20)
+ 2. Mark Eteson - Universal Language (Tritonal Club Mix) (6:35)
+ 3. Pedro Del Mar feat. Emma Lock - Guilty (Pedro Del Mar's ProgTrance Mix) (6:28)
+ 4. Solis & Sean Truby feat. Anthya - Timeless (Protoculture Remix) (7:45)
+ 5. Above & Beyond feat. Zoe Johnston - You Got To Go (Kyau & Albert Remix) (6:47)
+ 6. Sunbird - They Accept Paradise (Original Mix) (6:40)
+ 7. Beat Service feat. Emma Lock - Not Out (Original Proglifting Mix) (8:14)
+ 8. Ronski Speed feat. Renee Stahl - Out Of Control (Club Mix) (7:12)
+ 9. Mat Zo & Arty - Mozart (Original Mix) (7:10)
+ 10. Betsie Larkin & John O'Callaghan - The Dream (Jason van Wyk Remix) (7:16)(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CDF84AD2F291D11B9F53ED457632D854889AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459003   (94835) от 27.02.2012
+
+VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flux Pavilion - Haunt You
+02. Breakage - Fighting Fire (feat Jess Mills)
+03. Dj.automix – Calvin Harris - Feel So Close (Nero Remix)
+04. Karton - Chase It High (Original Mix)
+05. Eva – Body On Mine (Laze & Royal Electro Dubstep Remix)
+06. Freestylers - Cracks (Flux Pavilion remix)
+07. BreakNoise – Re-Think (Arkasia Remix)
+08. Evol Intent Feat Jackie B - Under (Bro Safari Remix)
+09. Spor - Pacifica
+10. Chase & Status - Heavy (vs Dizzee Rascal)(   Читать дальше...   )2012Жанр: DubstepПродолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A424BE65B1C3A19DB55B21DE723919BD9B48BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458761   (94761) от 27.02.2012
+
+VA - Drum and Bass Deafening (2012) [MP3|256~320 кб/с]<Drum and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futurebound - Blind Cobblers Thumb (05:17) [320кб/с, CBR]
+02. Current Value - Grin (06:30) [320кб/с, CBR]
+03. Eboxyde - Empty Shaft (04:04) [320кб/с, CBR]
+04. Audio - Genesis Device (05:44) [320кб/с, CBR]
+05. Ben Sage - Forging On (05:13) [320кб/с, CBR]
+06. Rregula - Shit's Dope (06:21) [320кб/с, CBR]
+07. Fourward - Lucid Dream (05:56) [320кб/с, CBR]
+08. DaVIP - Monster Machine (05:53) [256кб/с, VBR]2012Жанр: Drum and BassПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A51B7F9D0FEAEA4AAE2A68D0A74B077B57BF277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455620   (94335) от 25.02.2012
 
 VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
@@ -726,151 +893,6 @@ VA - Beatport TOP 100 Download February (02.2012) [MP3|320 kbps]<House, Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476EAE8EB0F482AB132118AD79C7A3A649EADE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774018   (71634) от 18.01.2025
-
-VA - KAZAL Records presents Volume1 (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yohhanan - How Can I Help? (Original Mix) (06:56)
-02. Mak Sim - Everest (Original Mix) (04:50)
-03. DJ Kazal - Unbelievable (Extended Mix) (07:34)
-04. Authenticity - Resonance (Extended Mix) (05:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D827FBDE66E28F54DD357DE3D640B2C7A33CE1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775331   (71451) от 26.01.2025
-
-VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Polkovnik - Мелодия Души
-02. Neuron - The Fall
-03. Сергей Грищук - Волшебство Мгновения
-04. Dj Polkovnik - Размышление(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775346   (71449) от 26.01.2025
-
-VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delal Derin - Hard to Forget You
-02. Azimov - Autumn Fairy Tale
-03. Muvi - P a R I S
-04. Delal Derin - If Only(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4610490F2A5280E9325F284F6989210CFEC89F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776376   (71274) от 01.02.2025
-
-VA - Musical kaleidoscope part 24 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Enigmatic Music N°9
-02. Dj Aurm - Mon Amour
-03. Сергей Грищук - Сказка  Наяву
-04. Jumanov - Blamed(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A1B47452153254DEF329B43896C86E40FAB367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776471   (71273) от 01.02.2025
-
-VA - Compilation part 141 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adik - Yummy
-02. Jumanov - Night
-03. Adik - Not Mine
-04. Xezzo - Black Orchid(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04044CD578B9EBAA770EE07ABE8AA20000C63CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

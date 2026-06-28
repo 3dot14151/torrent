@@ -1,3 +1,150 @@
+###  Публикация: 1525431   (129146) от 21.01.2022
+
+VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы являетесь откровенным поклонником Electro House и не одна более менее значимая клубная тусовка не выпадает из вашего поля зрения , то здесь обязательно найдёте для себя не один десяток треков в свою фонотеку.001. Velvet Valley - Kb3k
+002. Peter Paul - Festivalia
+003. Alex Greenhouse - Do You Know
+004. Stan Seba & Bynomic - Miracle(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D345D01C7D24A9FFE669C77026B179880E70EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487361   (129064) от 26.04.2012
+
+VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rae - Another Day (James Talk  Ridney Remix)
+02. J Nitti - Deep Down Feat. Shirley Davis (Luigi Rocca Remix)
+03. Tim Royko  Cosmo Klein - Everlasting Now (DBN Remix)
+04. Ron Carroll  Tony Romera feat. Paschan - So High (Silver Sneakerz Remix)
+05. Whiteside Feat. Heather Wilson - Can't Let Go (Slin Project Сlub Mix)
+06. Easy L. - New Day2012Жанр: Progressive HouseПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943BA2AFC240F26900FB795142750C1DAB40968B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683385   (128391) от 11.12.2023
+
+Jabarov - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulful
+ 02.  Eternal Love
+ 03.  High Pressure
+ 04.  Cosmic Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBAD6043CA2860E9E0D871F7A854887DED0C8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683799   (128259) от 12.12.2023
+
+Faniz - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  E Vuaj
+ 02.  Spain
+ 03.  England
+ 04.  France(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8531F1EEA8F6BD6E032479E2EA5050E56882630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684255   (127996) от 14.12.2023
+
+HilalDeep - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Silent Hill
+ 02.  My Dreams
+ 03.  Gate of Iran
+ 04.  My Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E629AB8FEF2E974256235910CCE2700B7DB18081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684427   (127806) от 15.12.2023
 
 ALSA - Compilation (2023) [MP3|320 Kbps] <Electronic>
@@ -600,151 +747,6 @@ Davit Barqaia - Compilation Version 2 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563DBAE16FB3EBA8F1FB201BE32AFFF56407A2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692446   (122048) от 19.01.2024
-
-VA - Electronic compilation part 43 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - Trust Me
-02. Riltim - Nona
-03. Akmalov - Te Deseo
-04. Riltim - Vintage(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C17AF94752C1FAB4480F7F42241A6581D3DCFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693282   (121882) от 20.01.2024
-
-VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jose Luis Encinas - Summer Tangos [03:40]
-002. Zjay - Blue Vibes [05:07]
-003. Aleyum - The Subtleties Of Life [04:14]
-004. Scandroid Experiment's - Zero Mood [03:36](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 08:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693584   (121739) от 21.01.2024
-
-VA - Record Super Chart 20.01.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. АИГЕЛ - Пыяла (3:30)
-02. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
-03. Dezko - Ascend (3:20)
-04. James Hype feat. Kim Petras - Drums (Turno Remix) (2:59)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BAFDDCD854429085A6A8181797D6469270629E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823192   (121513) от 10.10.2025
-
-VA - VA - Compilation Part 200 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Azimov - Mirage
-02 - Dova Music - Pain
-03 - Davvi - Dream in Color
-04 - Rodle - Still With Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0145F0302F8B42B7823689CCDD31CDD2642B745E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823191   (121511) от 10.10.2025
-
-VA - Compilation Part 199 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Adex - Broken Link
-02 - Kasimoff - Broken My Heart
-03 - Rodle - Hold Me Tonight
-04 - Kasimoff - Cold Nights(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62AD2DDA593901D4BBFF2FEC3C08EFDA61ABC90
 ```
 
 https://mybot314.ru/tekegram_catalog/

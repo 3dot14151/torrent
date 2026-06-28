@@ -1,3 +1,29 @@
+###  Публикация: 1394283   (764354) от 04.07.2020
+
+OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394300   (764277) от 04.07.2020
 
 OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
@@ -478,33 +504,6 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE0EBDFEF4A294077D3404ADBE02F173B03E1866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927191   (529329) от 12.08.2015
-
-OpenMediaVault 2.1 [x86+x64] 2xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529329.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenMediaVault это сетевое хранилище следующего поколения (NAS), решение основанное на Debian Linux. Он содержит услуги, такие как SSH, (S) FTP, SMB / CIFS, DAAP медиа-сервер, Rsync, BitTorrent клиент и многое другое. Благодаря модульной конструкции он может быть расширен с помощью плагинов.
-OpenMediaVault в первую очередь предназначен для использования в домашних (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

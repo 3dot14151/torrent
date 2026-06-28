@@ -1,3 +1,32 @@
+###  Публикация: 1611995   (207417) от 14.02.2023
+
+VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Pop, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Aswad–	Shine
+02.	Sasha–	I Feel Lonely
+03.	Laid Back–	Sunshine Reggae
+04.	Saint & Campbell–	Stop That Train(   Читать дальше...   )Жанр: Reggae, Reggae-Pop, DancehallПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612330   (207289) от 15.02.2023
 
 VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classical>
@@ -718,35 +747,6 @@ Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3D786DC6D40E09802EB6056C0154E2DCD121A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658323   (191534) от 07.09.2023
-
-VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Katy Perry - California Gurls (03:55)
-002. Avicii - Wake Me Up (Radio Edit) (04:06)
-003. PAENDA - Second Summer (02:46)
-004. Luis Fonsi - Despacito (Remix) (03:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD69C97CE2A5D56E3E4DC3C870808B5122FA8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

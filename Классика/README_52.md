@@ -1,3 +1,38 @@
+###  Публикация: 472906   (84574) от 26.03.2012
+
+Иоганн Себастьян Бах - Страсти по Иоанну | Johannes-Passion BWV 245 (1994) [MP3|192 кб/с]<Classic>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84574.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Choral - О Mensch, bewein' dein Sunde gross
+2.	Evangelist - Jesus ging mit seinem Jungern
+3.	Choral - О grosse Lieb
+4.	Evangelist - Auf dass das Wort erfullet wurde
+5.	Choral - Dein Will gescheh, Herr Gott zugjeich
+6.	Evangelist - Die Schar aber und der Oberhauptmann
+7.	Aria (Alt) - Von der Stricker meiner Sunden
+8.	Evangelist - Simon Petrus aber folgete Jesu nach
+9.	Aria (Sopran) - Ich folge dir gleichfalls
+10.	Evanselist - Derselbige Junger war dem Hohenpriester bekannt(   Читать дальше...   )1994Жанр: ClassicПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8F541A39148613CE9E3DAAC2B5B054E397DC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472910   (84558) от 26.03.2012
 
 Иоганн Себастьян Бах - Страсти по Матфею | Matthaus-Passion BWV 244 (1970) [MP3|192 кб/с]<Classic>
@@ -761,35 +796,6 @@ VA - Lovely Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87D777326E48E24AEB9C1B86761F35F54DF347C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718327   (58656) от 24.04.2024
-
-VA - Classical Instrumental Masterworks (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-03. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
-04. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC51652C4ED4081791ED17312C735275B7F2C684
 ```
 
 https://mybot314.ru/tekegram_catalog/

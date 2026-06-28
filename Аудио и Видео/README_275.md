@@ -1,3 +1,168 @@
+###  Публикация: 1348895   (140657) от 29.12.2019
+
+Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520675   (140615) от 29.12.2021
+
+Greta Van Fleet - From The Fires (2017) [AAC|~330 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Safari Song (3:55)
+02. Edge Of Darkness (4:28)
+03. Flower Power (5:13)
+04. A Change Is Gonna Come (3:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600198FE5B0022E8A13462B038025DCB604183B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520677   (140605) от 29.12.2021
+
+Greta Van Fleet - Anthem Of The Peaceful Army (2018) [AAC|~340 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Man (6:06)
+02. The Cold Wind (3:17)
+03. When The Curtain Falls (3:43)
+04. Watching Over (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CFEB181EF0B88FA615E896C80F9B9BCC6C151F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520680   (140562) от 29.12.2021
+
+Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always There (5:22)Жанр: Rock, ScoreПродолжительность: 00:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272606   (140478) от 29.12.2018
+
+Добрый вечер  (2018) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140478.jpg" />
+</div>
+
+
+###  Подробнее
+
+В придорожном отеле сталкиваются бандит и писатель, монахиня и проститутка. У каждого есть план на этот вечер. Спор. Ссора. Секс. Убийство. Кто кого?Производство: РоссияЖанр: Комедия, криминалРежиссер: Фёдор КонстантиновичАктеры: Вильма Кутавичюте, Артём Цуканов, Кристина Казинская, Филипп СавинковПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD3B10C4146C5CAC2FAB8BAC5DD2F2E7E894B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520682   (140474) от 29.12.2021
+
+Greta Van Fleet - The Battle at Garden’s Gate (2021) [AAC|~332 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Above (5:41)
+02. My Way, Soon (4:15)
+03. Broken Bells (5:51)
+04. Built By Nations (3:59)(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66EA1A568FF799EC10B794BA8B1AC030C5828CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970528   (140461) от 30.12.2015
 
 Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip [576p] iPad
@@ -545,177 +710,6 @@ VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280CDBECB95EA92386BF4ABC12717F744AA571A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521043   (138123) от 31.12.2021
-
-VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikaere - What We Lost in the Winter (6:58)
-02. Schulz Audio - Eff Yeah Brutalism (6:51)
-03. Volunteer - Project Alpha (8:01)
-04. Tender H - Under Rain (Groofeo Remix) (5:29)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 03:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968576   (138120) от 31.12.2015
-
-Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Symphonic Prog>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roundabout (8:36)
-02. Cans and Brahms (1:43)
-03. We Have Heaven (1:39)
-04. South Side of the Sky (7:56)(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600456F21BCD987F88FD85BE8BAA97C2C76C6900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521044   (138114) от 31.12.2021
-
-VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Devon, Grammik - Wanderlust (Original Mix) (6:54)
-02. Soul Button, Clawz SG, Monarke - Implicit Bias (Monarke Remix) (7:03)
-03. Clawz SG - Bloom (Extended Mix) (7:00)
-04. Dahu, Soul Button - Sentient (Original Mix) (6:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 02:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CF50D0CE81941FA437F0F48B04E2C261B1D8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521048   (138105) от 31.12.2021
-
-VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ChubaChiki - Jazz Improvisation (Marcus Raute Mallets Mix) (6:29)
-02. kamosoul - Shine (BNinjas Basement Mix) (7:12)
-03. Toni Young - Impossible To Imagine (5:49)
-04. JOFF. - Sunday Picture (5:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521040   (138090) от 31.12.2021
-
-VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tender H - Between Times (Meek Remix) (6:20)
-02. Meek - Clue (7:00)
-03. Meek - Endes (6:32)
-04. Meek - Noted (5:40)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 02:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088478   (138045) от 31.12.2016
-
-Сноуден / Snowden (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он мечтал продолжить семейную традицию и посвятить свою жизнь служению Родине. Он безоговорочно верил в правительство США и поддерживал антитеррористическую программу. На заре его карьеры в спецслужбах никто, даже он сам, не мог бы предположить, что именно он, Эдвард Сноуден, совершит самое крупное разоблачение в мировой истории, обнародовав секретные документы, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, биографияРежиссер: Оливер СтоунАктеры: Джозеф Гордон-Левитт, Шейлин Вудли, Мелисса Лео, Закари Куинто, Том Уилкинсон, Скотт Иствуд, Рис Иванс, Николас Кейдж, Тимоти Олифант, Джеймс БатлерПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9EAEC33344BEFBC491E285FFAB9E44E4ED92CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

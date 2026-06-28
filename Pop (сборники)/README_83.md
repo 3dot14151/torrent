@@ -1,90 +1,3 @@
-###  Публикация: 1160637   (471277) от 26.08.2017
-
-VA - Ukrainian Hits - 33 Tracks (2017) [MP3|320 Kbps] <Pop, Pop rock, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скрябін - Пусти Мене (Lalo Project Remix) (3:33)
-02. Maximus - Леді (3:06)
-03. The HardKiss - Антарктида (3:59)
-04. Фактично Самi - Саша... (3:48)(   Читать дальше...   )Жанр: Pop, Pop Rock, Rock, ...Продолжительность: 02:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F8021126DBBA6A7C5A0D5ED7ECA638B832E868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057808   (471151) от 30.09.2016
-
-VA - Хит Атака 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471151.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mseven - Необыкновенная
-002. Honne - Woman
-003. Трио S Klass - Леди Вамп
-004. Travis Garland - Bodies(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBDD5943ED7881D1AA3000502BB6EFC9695443F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406809   (470998) от 05.09.2020
-
-VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KitschKrieg & Jamule - Unterwegs
-02. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
-03. Capital Bra - Frühstück in Paris (feat. Cro)
-04. 24kgoldn - Mood (feat. Iann Dior)(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939987   (470977) от 23.09.2015
 
 VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Pop>
@@ -775,6 +688,105 @@ Kelly Clarkson - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:115865C38E891740C77FFEC5F5791EC6889CAA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058953   (463891) от 03.10.2016
+
+VA - 80s Euro Disco Collection (2016) [MP3|320 Kbps] <Space Disco, Italo Disco, Eurobeat>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Bodyguard (12 Version) 06:23
+02. Silent Circle - Moonlight Affair (Maxi Version) 06:18
+03. C.C. Catch - I Can Lose My Heart Tonight (Extended Club Remix) 05:53
+04. Grant Miller - (Find My) Tracks In The Snow (12 Version) 05:06(   Читать дальше...   )Жанр: Space Disco, Italo Disco, EurobeatПродолжительность: 02:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387AB2AABB29260D417F8B64EF62734B4E9F7362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549618   (463176) от 20.09.2012
+
+VA - Самый Cвежак Русский Cпецвыпуск 1 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A'Studio - Я искала тебя
+02. Марсель - Иди ко мне
+03. 3XL PRO - Жаркое Лето
+04. Иван Дорн - Так сильно (Люблю я лето)
+05. Дима Билан и Юля Волкова - Любовь-сука
+06. DJ Smash feat. Тимур Родригез - Jump
+07. Стас Пьеха - Старая история
+08. 5sta Family - Вместе Мы
+09. Дмитрий Маликов - Прости любимая, прости
+10. Балаган Лимитед - Кто бы мог подумать(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448FC4B626C67130D40472369C2EF0382CAF4133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549708   (463168) от 20.09.2012
+
+VA - Осенний Сезон Попсы (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Рыбак - Стрела Амура
+002. DJ Smash feat. Тимур Родригез - Jump! (Radio Edit)
+003. ДИСКАЧ-90х - Come Back To USSR
+004. Настя Задорожная - Воздух
+005. Лолита Feat. Quest Pistols - Ты Похудела
+006. Даша Русакова - Капли дождя
+007. Дима Билан и Юля Волкова - Любовь-сука
+008. Наталья Могилевская - Изменница
+009. DJ Jim & Extasy Project feat. Timo - Very Good (Radio Mix)
+010. Soda - Разлука(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0951F7B49D07072294FCEC7801A9EF0DC054A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

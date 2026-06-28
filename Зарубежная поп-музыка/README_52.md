@@ -1,3 +1,32 @@
+###  Публикация: 1571643   (429749) от 23.08.2022
+
+Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R U Feeling Me	3:42
+02. Once In A Lifetime	3:52
+03. In A Hearbeat	3:37
+04. The Night Is Still Young	3:20(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458BD2D7DDF131FD71A3455621792659DC723F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571804   (429664) от 23.08.2022
 
 The Flirts - Made In America (1984) [OGG Vorbis|485 Kbps] <Hi NRG, Synth-pop>
@@ -713,35 +742,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B39D9B378095EDE77F0EE2168A56C91407331F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251691   (415498) от 02.10.2018
-
-Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk, Art Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kam?
-02. Elegantiskai Sninga
-03. The Break-Up Blues
-04. Little Bird's Song(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Folk, Art Pop, Chamber PopПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101099F9F98FC8B8A70FD5B261C7DF6F5D6783AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

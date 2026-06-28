@@ -1,3 +1,265 @@
+###  Публикация: 778284   (806626) от 18.04.2014
+
+Varios - Колокольные звоны Псково-Печорского монастыря (1981) [[FLAC 2.0 24/96|traks(Vinil-Rip)]]<Church bells/Russian Falc>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806626.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сторона 1  19:10
+2. Сторона 2  21:22Жанр: Church bells/Russian FalcПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198063   (806041) от 12.01.2018
+
+Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Easy Listening, Sax>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806041.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1:
+01. 命預けます - Inochi Azukemasu
+02. 圭子の夢は夜ひらく - Keiko no Yume wa Yoru Hiraku
+03. 女のブルース - Onna no Blues(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 00:33:26 + 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DC6852B4513188CDDBBD184EDE37E6E8045831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042696   (803133) от 30.03.2017
+
+Felix Slovacek - Феликс Словачек (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда уходишь • Kdyz Otchazis
+02. Ты озарила мою жизнь • Prozarila Jsi Muj Zivot
+03. Так, как я тебя люблю • Protoze Te Mam Rad
+04. Радость до утра • Radost Az Do Rana(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC28C996ED3D7DC1867ABCC338DA2C793D59903C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010747   (802031) от 25.04.2016
+
+Inside The Music: New Wave (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <new wave>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802031.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Way or Another / Blondie 03:45
+2. My Sharona / Knack 04:56
+3. Destination Unknown / Missing Persons 03:14
+4. Eyes Without a Face / Billy Idol 05:08(   Читать дальше...   )Жанр: new waveПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CF04395C9007A460321D0B22D38B9F6198E358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120592   (801927) от 31.03.2017
+
+VA - RETROспектива, часть XV. Мелодии и песни из кинофильмов IV (1937-1965) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ефим Нейд - Песенка (из к.ф. ''Антон Иванович сердится'')
+02. Даниил Демьянов - Песня о Родине (из к.ф. ''Цирк'')
+03. Николай Рогатин - Песня о Каховке (из к.ф. ''Три товарища'')
+04. Глеб Романов - Песня Раджа (из к.ф. ''Бродяга'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A630B7E99141755C404C61C6BD7EC9978C1935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120932   (801204) от 01.04.2017
+
+VA - Мелодии экрана, 6 серия (1961) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вокальный ансамбль - Дружные ребята (из к/ф «Песня зовёт»)
+02. Аби Зейдер (труба) - Ноктюрн (из к/ф «Озорные повороты»)
+03. Батыр Закиров - Песня (из к/ф «Служба»)
+04. Лили Гегелия - Романс (из к/ф «Заноза»)(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:25:42
+Издатель (лейбл): ВФГ "Мелодия", Рижский завод (USSR)
+Номер по каталогу: Д - 8849-50
+Кодек: FLAC (tracks)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5AD1D070CCD149F1F40C9547AC5231C3580B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121148   (801075) от 01.04.2017
+
+Freddie Mercury - Mr. Bad Guy (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801075.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Let's Turn It On (3:40)
+A2. Made In Heaven (4:07)
+A3. I Was Born To Love You (3:39)
+A4. Foolin' Around (3:30)(   Читать дальше...   )Производство: CBS/Sony - 28AP 3030Жанр: RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B451868567EF8C47C915D57443E5C0D140A860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199003   (800961) от 16.01.2018
+
+Органическая Леди - Белый Город (1993) [DSD2.0|5,64MHz/1bit|image+.cue|МС-Rip] <Techno-Pop, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Роза ветров
+02. Женщина ниоткуда
+03. Наш путь
+04. Звёздный бал(   Читать дальше...   )Жанр: Techno-Pop, SynthpopПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C929F8D586642B3088BBEB05B4F7D31590C7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506326   (799933) от 31.10.2021
+
+U2 - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799933.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Discotheque
+A2 Hold Me, Thrill Me, Kiss Me, Kill Me
+A3 Stay (Far Away, So Close)
+A4 One(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369927D69F9F18DA4081556D83D864D7B84E64F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273390   (799891) от 02.01.2019
 
 Marie Wulfing - Get Out Of The Boat (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, White Gospel>
@@ -484,267 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590F72C164DD7D4A99428A403D3E7D903C7EC39B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274753   (791047) от 10.01.2019
-
-Bryan Ferry - As Time Goes By (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791047.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 As Time Goes By
-A2 The Way You Look Tonight
-A3 Easy Living
-A4 I'm In The Mood For Love(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201570   (790889) от 27.01.2018
-
-Владимир Высоцкий - Vladimir Vissotski (1985) [LPCM 2.0|96/24|Audio-DVD] <Авторская песня>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Он не вернулся из боя (3:19)
-02. Черные бушлаты (3:33)
-03. Как призывный набат (2:46)
-04. Недолюбил (4:49)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87AE37165705FCBC621E7F4800A68ED7D79A4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201963   (789501) от 30.01.2018
-
-George Gershwin – with Todd Duncan and Anne Brown - Porgy And Bess (1939) 4×Shellac [FLAC|Lossless]<Jazz, Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789501.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Alexander Smallens And Anne Brown - Overture And Summertime
-B Anne Brown With Eva Jessye Choir - My Man's Gone Now
-C Todd Duncan With Eva Jessye Choir - I Got Plenty O' Nuttin'
-D Todd Duncan With Eva Jessye Choir - Buzzard Song(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B9E82E3C995C53FED2F8AC41156887BB76CE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202804   (789500) от 30.01.2018
-
-Сергей Курёхин - Популярные Зооэлементы (1998) [FLAC|Lossless|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist Hide Credits
-A	Популярные Зооэлементы
-B1	Духовные Минералы
-Piano – Сергей Курёхин(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F53772CD7D0F267625D8E80793695C7D38AC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511675   (788740) от 21.11.2021
-
-Pink Floyd – A Momentary Lapse Of Reason (Remixed & Updated) (1987) remix 2021 remaster [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Art Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788740.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 октября Sony Music выпустили обновлённую версию альбома PINK FLOYD 1987 года, получившую название "A Momentary Lapse Of Reason - Remixed & Updated". Делюкс-издание вышло на CD и Blu-ray; доступны варианты звука 2.0 и 5.1. Многоканальный микс с блюра и послужил, собственно, основой для моего очередного трансфера))01.Signs of Life [4:23]
-02. Learning to Fly [4:53]
-03. The Dogs of War [6:04]
-04. One Slip [5:11](   Читать дальше...   )Жанр: RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687A96128D1076FF77D4C9EBCBC768A2F2FD9C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276232   (788574) от 15.01.2019
-
-Лариса Долина - Погода В Доме (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788574.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Погода В Доме
-A2 Хочу Быть Любимой
-A3 Просто Танго
-A4 Увижу, Узнаю(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB094A46908BD52C495E2A06464C3BF808767D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276336   (788507) от 15.01.2019
-
-A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.2 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788507.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Move To Memphis (4:17)
-A2. I've Been Losing You (4:27)
-A3. The Living Daylights (4:16)
-A4. Crying In The Rain (4:22)(   Читать дальше...   )Производство: Not On Label - RGM 7030Жанр: New WaveПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365EC4B13142CA1BF1868B2AFD46426DCC9B8AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202075   (788096) от 02.02.2018
-
-Дуговка - 10 - Фестиваль бардовской песни (1999) [FLAC|Lossless|tracks] <Ballad, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Е. Гангаев, О. Селицкая, С. Каплан - Приветствие слету
-02. КСП города Хайфа - Пиратская лирическая
-(Б. Окуджава)
-03.Н. Якимов - Возок(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A26CF19BBEDECF335AAAE346FE0B578BE3BA8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202935   (788095) от 02.02.2018
-
-Александр Слободяник - Фредерик Франсуа Шопен (1977) [WavPack|Lossless|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788095.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	До Мажор. Соч.10. Allegro
-A2	Ля Минор. Соч.10. Allegro
-A3	Ми Мажор. Соч.10. Lento Ma Non Troppo
-A4	До Диез Минор. Соч.10. Presto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23FD37C08CEF21647A635AA3CA2B25FCC79F30E
 ```
 
 https://mybot314.ru/tekegram_catalog/

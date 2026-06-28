@@ -1,3 +1,174 @@
+###  Публикация: 1496275   (831077) от 13.10.2021
+
+VA - Blueberry Café, Vol. 3 (2017) [AAC|~330 Kbps] <Downtempo, House, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Kami - The Eyes of Revelation (Miss Luna Remix) (6:35)
+02. Brass - Urban Minds (6:05)
+03. Bes & Meret - Morgenstund (Tom Leeland Radio Mix) (3:21)
+04. Dani Corbalan - Dangerous (5:28)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DC942622FCD3499987161E5A892CEF974AE5EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496278   (831076) от 13.10.2021
+
+VA - Blueberry Café, Vol. 4 (2019) [AAC|~312 Kbps] <Downtempo, House, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Trend - Groovy Nights (Original Mix) (3:55)
+02. Meital De Razon & Asi Tal, Chappell, Mietal De Razon, Pete Simpson, King Dread James - In Love Again (Original Mix) (5:06)
+03. Andrea Cardillo, Daniele Perrino - I Feel the Sound (Alex & Chris Reprise Mix) (7:29)
+04. Francesco Cofano, Shatti - Let Me Take You (Original Mix) (5:17)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED6221FCD89A5F71E1DD092A28B9F6A014866FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496945   (831075) от 13.10.2021
+
+VA - Electronic Lounge Collection, Vol. 1 (2021) [AAC|~322 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Tide - Keep On (Original Mix) (3:09)
+02. Mirage Of Deep, David Phillips, Aliye Mutlu - Totality (Original Mix) (6:22)
+03. Ingo Herrmann - New World (Original Mix) (2:26)
+04. Database Pluto - Eye Nothing (Original Mix) (3:59)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D235F201C5D40223A91A2A0B34000582D98D39FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380888   (830961) от 04.05.2020
+
+Тайлер Рейк: Операция по спасению / Extraction (2020) WEBRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группировка наёмников берётся освободить из заложников сына сидящего в тюрьме индийского наркобарона. Подростка похитили конкуренты и держат его в столице Бангладеш Дакке — городе, состоящем из трущоб и практически полностью окружённом реками. Ответственное задание поручатся бывшему военному Тайлеру Рейку. Он легко расправляется с вооружённой охраной и быстро освобождает (   Читать дальше...   )Производство: США / AGBO, India Take One Productions, T.G.I.M FilmsЖанр: БоевикРежиссер: Сэм ХаргрейвАктеры: Крис Хемсворт, Голшифте Фарахани, Рудракш Джайсвал, Шивам Вичаре, Пиюш Кхати, Рандип Худа, Панкадж Трипати, Крис Джай Алекс, Адам Бесса, Уэйн БлэрПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full) Английские (Forced, Full)Продолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4C2099B47BAB80FD69A4D106F0AA55EE0418B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497393   (830944) от 13.10.2021
+
+VA - Buddhatronic - the Compilation, Vol. 4 (2019) [AAC|~328 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Angel Eyes (Mystic Ethno Mix) (5:28)
+02. Blériot, Jean Mare - Lonely Beach and Moon (Jean Mare Remix) (5:33)
+03. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (4:28)
+04. Lebensart - Cinematic Landscapes (Mystic Pictures Wellness Cut) (5:12)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9914FDF08F80413B893C8D25EE93CB465D310F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496948   (830943) от 13.10.2021
+
+VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Smokey - Sunset (Original Mix) (3:15)
+02. Tai Tung - Ancient Art (Original Mix) (5:28)
+03. Anemine - Das Wehen vom Meer (Original Mix) (1:38)
+04. Ingo Herrmann - Future Dreams (Original Mix) (2:43)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303DB5F7AF61FBAC0A54C21077AC9D8C11A4E00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498161   (830942) от 13.10.2021
 
 VA - Chilling On Purple Clouds, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -568,180 +739,6 @@ VA - Chilled Trance (2021) [AAC|~337 Kbps] <Chill Out, Downtempo, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F21B565192DBAB9471A1F9525DBA640D379A3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496250   (830843) от 13.10.2021
-
-VA - Global Lounge Masters, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulounge, Miss Platnum - Home (4:13)
-02. Gold Lounge - World Koma (5:02)
-03. Yantra Mantra - The Seventh Sence (3:57)
-04. Openzone Bar, Lex Cameron - Let It Flow (4:09)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757047CF69F0EB8B14CDAC8F18FB11A84AC576CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496953   (830842) от 13.10.2021
-
-VA - Spiritual Spa, Vol. 2 (2021) [AAC|~322 Kbps] <Downtempo, Balearic, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Bach - Dream Catcher (Original Version) (4:10)
-02. Lemongrass, Jane Maximova - Behind the Scenes (5:40)
-03. Sebastian Bach - Wandering (Original Version) (5:01)
-04. Marc Hartman - Afterlife (Original Mix) (5:23)(   Читать дальше...   )Жанр: Downtempo, Balearic, Chill OutПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F109307E725DEA71B9E7477D6BF9FAC5A0C267C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495813   (830841) от 13.10.2021
-
-VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 3 (2021) [AAC|~310 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karen Gibson Roc, Merge Of Equals - Love Each Other (4:27)
-02. Lounge Groove Avenue - Soul In The City (2:52)
-03. Gold Lounge - Vinile (5:33)
-04. Artur Bayramgalin - Sunny Kiss (3:14)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2CBD43B530D7110EFBA9D51944D758B133A479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497189   (830840) от 13.10.2021
-
-VA - Luxury Lounge Sunset, Vol. 2 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worldtraveller - Maui Pie (4:20)
-02. Svendaq - Near The Beach (6:06)
-03. Music Of The Earth - Jazz Skit Lick (Pearldiver Remix) (3:20)
-04. Paul Eerhart - Mambo Queen (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E57014AF138AD38C5E1660180935DF4D4464561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497181   (830839) от 13.10.2021
-
-VA - Smooth Espresso Bar, Vol. 1 (2021) [AAC|~318 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Remembering Those Nights (5:56)
-02. Living Room - Calm Space (5:52)
-03. Pier-O - Dawn (5:12)
-04. Marga Sol - Black Coffee (5:17)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7339A0D42683B78C32176D5DC2669E014DDACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497894   (830838) от 13.10.2021
-
-Röyksopp - Senior (2010) [AAC|~306 Kbps] <Electronic, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ... And the Forest Began to Sing (1:50)
-02. Tricky Two (7:51)
-03. The Alcoholic (5:11)
-04. Senior Living (5:10)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30229CB40315702897D3E8D2E657AF695209575
 ```
 
 https://mybot314.ru/tekegram_catalog/

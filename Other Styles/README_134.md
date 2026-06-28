@@ -1,3 +1,125 @@
+###  Публикация: 842166   (327302) от 19.11.2014
+
+Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragon Age Inquisition Theme [00:02:52]
+02. Escape From The Fade [00:01:14]
+03. The Wrath Of Heaven [00:05:27]
+04. Calling The Inquisition [00:01:59]
+05. Champions Of The Just [00:03:56]
+06. Lord Seeker [00:02:08]
+07. In Hushed Whispers [00:04:49]
+08. Sacrifice [00:01:01]
+09. Alexius [00:02:35]
+10. In Your Heart Shall Burn [00:01:34](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBD32BB9E2F8577CC546E751A680FE02EFE8FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957195   (326721) от 18.11.2015
+
+Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimeanization Part 1
+02. In A Lifetime
+03. Temporary Visions
+04. I'm Searching For A Place Where I Can Hide(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957338   (326707) от 18.11.2015
+
+Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings
+02. Around the World
+03. Waltz of Life
+04. Time(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958000   (325690) от 19.11.2015
+
+Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Humming.... (03:46)
+02. So I Could Find My Way (04:27)
+03. Even In The Shadows (04:15)
+04. The Forge Of The Angels (05:15)(   Читать дальше...   )Производство: Warner Bros.Жанр: New AgeПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B2AF0CBE7BA4B1C119FE3923E84CC8A98A38A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958049   (325632) от 19.11.2015
 
 Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celtic>
@@ -627,122 +749,6 @@ Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37970979CEAEBE2FC90A52C6735885469A3F67BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075567   (320990) от 22.11.2016
-
-Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowden Symphonic (03:30)
-02. Burden Of Truth (02:05)
-03. Opening - Secret Downloading (01:40)
-04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331788   (320841) от 17.10.2019
-
-Preludio Italiano - Toccata (2001) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gioco Italiano (Variazione Praeludium II BWV 847) (3:47)
-02. Sogno Italiano (3:54)
-03. Ludium (4:06)
-04. Toccata Fiorentina (Variazione Toccata) (3:51)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EFE24AE0A5826A6D55606B048AA62D468522B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075344   (320419) от 22.11.2016
-
-Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix) 3:45
-02. Cathar Rhythm 3:17
-03. Mother (Remix) 4:09
-04. Avemano 4:17(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC205D55590D891A6937D639831F5CF95CEEAC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075588   (320109) от 22.11.2016
-
-Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel’s Oboe (The Mission) (02:17)
-02. Deborah’s Theme (C’Era Una Volta In America) (04:28)
-03. Il Buono, Il Brutto, Il Cattivo (Il Buono, Il Brutto, Il Cattivo) (02:43)
-04. Gi? La Testa (Gi? La Testa) (04:19)(   Читать дальше...   )Жанр: Instrumental,classical,soundtrackПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF96C0FBC19BC20C48F08ECBAE4105BF35558C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

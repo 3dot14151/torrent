@@ -1,3 +1,148 @@
+###  Публикация: 1079420   (294248) от 04.12.2016
+
+VA - Beatport Top 100 EDM Songs & DJ Tracks November (2016) [MP3|320 Kbps] <Tech House, Techno, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294248.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Green Velvet, Prok & Fitch - Sheeple (Original Mix) 7:02
+002.Dennis Cruz - Everybody (Original Mix) 6:52
+003.Moby - Why Does My Heart Feel so Bad (Enrico Sangiuliano remix) 7:15
+004.Cari Golden, Reinier Zonneveld - Things We Might Have Said (Original Mix) 7:55(   Читать дальше...   )Жанр: Tech House, Techno, DanceПродолжительность: 11:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15789CC6C226E06408602AF74FDAB72F4E609A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185412   (293742) от 21.11.2017
+
+VA - Full Moon Trance Party (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Marxon - Neuroscience (Madwave Radio Mix)
+002. Simon Ice - Skiner (Original Mix)
+003. The Thrillseekers with Katherine Amy - I Gotta Let You Know
+004. Susana - Unbreakable (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C40A5238B73337A7D0D829B4C6266B9B408F100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262654   (293510) от 16.11.2018
+
+VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Rostej - Call Me Helen (Original Mix)
+002. Alex Brynskich - Rain (Original Mix)
+003. Guitamar - Selva Negra (Original Mix)
+004. Mytron & Ofofo - Medicine Man (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 10:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185335   (293492) от 21.11.2017
+
+VA - Лучшие клубные новинки Vol.4 (2017) [MP3|320 Kbps] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293492.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Maddix & JUNIOR  - Trabanca (Extended Mix)  4:12
+002.  Abstract Vision  - Falcon (Extended Mix)  6:39
+003.  Sam Laxton  - Product Of The Devil  5:03
+004.  Robert Nickson  - Heliopause  7:21(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 14:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CC5823115B80CF37C56D9208FFCA85B4451069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185380   (293488) от 21.11.2017
+
+VA - Deep House Collection Vol.145 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7even (GR) - Anabasis (Original Mix) 5:45
+02. Achilles & One - Alive (Original Mix) 6:03
+03. Achtabahn, Matt Andersen - Ain't No Sunshine (Original Mix) 2:41
+04. Adam Husa - Busking (Original Mix) 9:04(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A2AB3B0C616AADCEDFC6A4D0785DD32E696E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079536   (293446) от 04.12.2016
 
 VA - Euphoric Trance Stars Glory (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
@@ -600,151 +745,6 @@ VA - Panorama Progressive Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E442495C121AC7E7ED2B0C3104CA07967ACF82DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080216   (290411) от 06.12.2016
-
-VA - Flight Times Worlds Music (2016) [MP3|218~320 Kbps] <House, Electro, Hands Up, Bigroom, Funky, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Richard Durand & Fisher - In Your Hands (Bastian Salbart Remix) 6:24
-002. Andrew Lias & Crew 7 feat. Paloma - Club Bizarre (feat. Paloma) (Crew 7 Mix) 4:42
-003. Orjan Nilsen - Dirty Philthy Beautiful (Original Mix) 5:50
-004. Tiesto & Matthew Koma - Wasted (Extended Mix) 4:23(   Читать дальше...   )Жанр: House, Electro, Hands Up, Bigroom, Funky, Club, DanceПродолжительность: 09:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4BB24708463AE7C3BE07047821CF6932A1F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080042   (290407) от 06.12.2016
-
-VA - LUXEmusic: Dance Super Chart Vol.97 (2016) [MP3|256~320 Kbps] <House, Mash Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren vs. ak9 - Ping Pong (Night & Toni Aries Mashup) 3:56
-02. Denis Rublev feat. Alex Kafer & Lera - Я у твоих ног (DJ Prezzplay Cover Mix) 4:16
-03. Eminem vs Tujamo - Without Bounce Me (Fabien Jora Mashup) 3:45
-04. 50 Cent x Anton Liss - Holy Technology (Alex Milano & Yastreb Mashup) 3:39(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAE66F3530F89132A5F25EE55D3D74013FEE0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080172   (290388) от 06.12.2016
-
-VA - Electro Life 43 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Electro Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amphibious Zoo Music - Truth Is No (Dubstep Version)
-02. Arash ft. Snoop Dogg - OMG (Mike Candys Extended Remix)
-03. Banvox - Summer (Getter Remix)
-04. Blasterjaxx - The Silmarillia (Original Mix)(   Читать дальше...   )Жанр: Electro House, Electro Progressive, Dubstep, Deep House, House, TranceПродолжительность: 03:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47214CE6A38C858268CB57E719535CE019B4F377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080007   (290343) от 06.12.2016
-
-VA - Record Super Chart #465 (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DBSTF & Maurice West - Temple (Extended Mix) 4:01
-02. KSHMR & B3nte ft. Badjack - The Spook Returns (Extended Mix) 4:09
-03. Martin Garrix vs. Matisse Sadko - Together 3:40
-04. Clean Bandit feat Sean Paul & Anne-Marie - Rockabye (Denis First Remix) 4:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168385A19448922E7E20000B4ACE5078DF510650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079968   (290235) от 06.12.2016
-
-VA - Sunshine Live - Die 90er Vol.3 (2016) [MP3|~271 Kbps] <Eurodance, Rave, Techno, House, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Unlimited - The Real Thing 3:39
-02. Captain Jack - Soldier Soldier 3:34
-03. DJ Bobo - Freedom 3:54
-04. Dr. Alban - Let The Beat Go On 3:55(   Читать дальше...   )Жанр: Eurodance, Rave, Techno, House, Hard TranceПродолжительность: 03:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F28DC70EC49E8C94A91625B20E5E728EF6F1B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

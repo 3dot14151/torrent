@@ -1,3 +1,55 @@
+###  Публикация: 584553   (305483) от 05.12.2012
+
+Компьютерная графика - Artworks by Digital Artists (02.12.12)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютерная графика - Artworks by Digital Artists (02.12.12)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584987   (305478) от 05.12.2012
+
+Работы художников - Artworks by Karol Bak (2003-2012)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Artworks by Karol Bak (2003-2012)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9962918120AFD8D5A369A4FAF3854294F346762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584986   (305476) от 05.12.2012
 
 Работы художников - Художник Toby Boothman
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3F5739B805529525D9812768075BE191EB7FD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261868   (301164) от 12.11.2018
-
-Обои - Desktop Wallpapers Full HD. Part (318) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3160277822779BE8DCCCE6627563D4BABF5DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261869   (301095) от 12.11.2018
-
-Обои - Desktop Wallpapers Full HD. Part (320) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557EAD4CB418E14E995BB70C5CA639DE73D5D80B
 ```
 
 https://mybot314.ru/tekegram_catalog/

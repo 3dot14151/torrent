@@ -1,3 +1,148 @@
+###  Публикация: 1864818   (1064956) от 12.04.2026
+
+John Farnham - Anthology 1 (Greatest Hits 1986-1997) (1997) Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	– You're The Voice	5:02
+02	– Pressure Down	3:44
+03	– A Touch Of Paradise	4:44
+04	– Reasons	4:26(   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDE6434DB9ADC267589833E6E3DBB17D60B6A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864341   (1064691) от 
+
+Sheryl Crow - Tuesday Night Music Club (1993) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run, Baby, Run [0:04:53.10]
+02. Leaving Las Vegas [0:05:10.00]
+03. Strong Enough [0:03:10.12]
+04. Can’t Cry Anymore [0:03:41.33](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F5429CB2B092CF9837C586E83E71A8CCF9D35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864364   (1064659) от 
+
+VA - Classic Dad Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  R.E.M. - Losing My Religion (4:28)
+02.  Billy Idol - White Wedding (Pt. 1 / Remastered 2002) (4:12)
+03.  Bon Jovi - Wanted Dead Or Alive (5:11)
+04.  Alien Ant Farm - Smooth Criminal (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 02:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F886DB77194535B8ABD479BD83F2ADAAB0FF0AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864368   (1064657) от 
+
+VA - Dads Garage Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Offspring - The Kids Aren't Alright (3:00)
+02.  Creed - One Last Breath (3:59)
+03.  Papa Roach - Last Resort (3:20)
+04.  blink-182 - All The Small Things (2:51)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482A40BBC1AA4073B1FF3FB9ADB36239E6F946F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864260   (1064631) от 
+
+David Gray - Nightjar (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall in Love (04:45)
+ 02. Money (03:47)
+ 03. The Easy Way Out (03:28)
+ 04. Nightjar (05:31)(   Читать дальше...   )Жанр: Rock, Folk Rock, Singer-SongwriterПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B042263968490BB7436565AEBF6D62DCC068DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862808   (1063912) от 01.04.2026
 
 Chez Kane - Reckless (2026) [FLAC|Lossless|WEB-DL|tracks] <AOR>
@@ -600,151 +745,6 @@ VA - So High I've Been (A European Rock Anthology 1967-1973) (2026) 3 x CD, Comp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:808D2588FC46488BD2F1BB40DFC746D0C01E7099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856179   (1058721) от 27.02.2026
-
-VA - Heavy Workout 2026 [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movie Sounds Unlimited - Theme from 300 (To Victory) (2:30)
-02. KnightsBridge - Du Hast (3:54)
-03. Nu Rock City - Last Resort (3:18)
-04. Nu Rock City - What I've Done (3:26)(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D959373A186BDCF70AF4AABD9C9166FFE697A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856248   (1058692) от 27.02.2026
-
-Scorpions - Lonesome Crow (1972) 2026 Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Goin' Mad (2026 Mix)(4:42)
-02. It All Depends (2026 Mix)(3:27)
-03. Leave Me (2026 Mix)(5:02)
-04. In Search Of The Peace Of Mind (2026 Mix)(4:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3204312AB5ED9A8DC0F211816DB1CDE8C927C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856006   (1058583) от 25.02.2026
-
-VA - Radio Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killers - Mr. Brightside (3:43)
-02. Lynyrd Skynyrd - Sweet Home Alabama (4:45)
-03. Kiss - I Was Made For Lovin' You (4:28)
-04. The Police - Message In A Bottle (Remastered 2003) (4:50)(   Читать дальше...   )Жанр: RockПродолжительность: 05:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB559B9EABE5DC7469129C9DB3EF4676ED6BD5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855962   (1058314) от 25.02.2026
-
-VA - 30 legend rocka (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Faith No More - Ashes to Ashes (3:37)
-02.  Talking Heads - Burning Down the House (4:02)
-03.  The Stooges - I Wanna Be Your Dog (3:10)
-04.  T.Love - IV Liceum (2008 Remaster) (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 02:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EDB47F846B4850FE590406EB3482E098F0F587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855963   (1058313) от 25.02.2026
-
-VA - Just In - Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Neighbourhood - Private (3:49)
-02.  The Black Keys - You Got to Lose (3:18)
-03.  Turnstile - BIRDS (2:27)
-04.  Knox - Go for Broke (2:50)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0EF395D4CF690A38CFF88A036998C520A5928F
 ```
 
 https://mybot314.ru/tekegram_catalog/

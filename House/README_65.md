@@ -1,3 +1,182 @@
+###  Публикация: 1834800   (250455) от 04.11.2025
+
+VA - 25 Years Of Anjuna Mixed By Marsh (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:08:38)
+01. Above & Beyond - Counting Down The Days (Marsh Remix (Mixed)) 07:36
+02. Marsh - Estes (Mixed) 04:11
+03. Martin Roth - Beautiful Life (Mixed) 06:02(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1479A433D39511BFBDB460303B1548E1B9E70EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619050   (249784) от 14.03.2023
+
+VA - Miami (2023) [MP3|320 Kbps] <Tech House, Club House, Techno, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Trombetta - Hey, Mr. DJ
+02. ACT Music Producer - Baile de Baila
+03. CHMI - Free
+04. Dirty Martin - Together Forever(   Читать дальше...   )Жанр: Tech House, Club House, Techno, ElectronicaПродолжительность: 03:31:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7351FC6E3AD831986CAEDC4BA621F87917679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619054   (249782) от 14.03.2023
+
+VA - Discoid Clubbing Vol. 3 (2023) [MP3|320 Kbps] <Funky House, Club House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Chenery - Burning (Original Mix)
+02. Block & Crown - Low Rider (Original Mix)
+03. Cherian - Wastin Time (Extended Mix)
+04. Bonetti - Luv Supreme (Original Mix)(   Читать дальше...   )Жанр: Funky House, Club House, Indie Dance, Nu DiscoПродолжительность: 01:29:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC81FD4F63BAE688BC80D6F657877814D30F7C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619226   (249678) от 16.03.2023
+
+VA - UV 250 (Mixed by Paul Thomas) (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Thomas - Colombo (Extended Mix) (07:31)
+02. Trilucid - Cheyenne (Extended Mix) (07:40)
+03. Giorgia Angiuli - FreedHome (Extended Mix) (08:11)
+04. Stereo Underground & SeaLine - Flashes (Jerome Isma-Ae Extended Remix) (07:38)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F7608A79DAF770AF9429BDBC1FD8EB7BCECEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494161   (249170) от 09.05.2012
+
+VA - Balance 021: Nic Fanciulli (2012) [MP3|~245 кб/с (V0)]<Deep House Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249170.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1: Balance (01:13:01) ~246 кб\с
+1. Luca & Bruno – Raindrops Intro
+2. Maya Jane Coles – Something In The Air2012Жанр: Deep House Tech HouseПродолжительность: 02:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437C55BFAEC3CF7748A0F883C512C0BA37B8CCC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493069   (248443) от 07.05.2012
+
+VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasynths (Original Mix) - Marco Bocatto
+02. Jazz in the House (Sax Groove Mix) - Clemens Rumpf & David A. Tobin
+03. For You (Original Mix) - Jesus Dominguez
+04. Dusty Book - Plusculaar
+05. Neonhimmel - Michael Ballus
+06. La Tina (Mio Martini Remix) - Fuseboxers
+07. I'm Hot for You (Original Mix) - Taste of honey
+08. Mold & Gasoline (Sodda Remix) - Bifman & Fra N Kie
+09. Better (Juan Sunshine Mix) - Don Oliver feat. Barbara Tucker
+10. Se Game House - The Breakers2012Жанр: Deep HouseПродолжительность: 06:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD86A539653A92152A05A0734A811221468ED6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 110916   (247548) от 16.06.2023
 
 DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
@@ -571,180 +750,6 @@ VA - Ibiza! - The Sound Of The Summer 2023 (2023) [MP3|320 Kbps] <Dance, Club, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5A99E125E99D6654C94D7CEC873911E9A0B8E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624531   (242584) от 06.04.2023
-
-VA - Spring Break Escalation 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jörg Mrowietz - Do Without (Radio Vocal) [3:12]
-02. Arisia - Cocaina (Original Mix) [3:38]
-03. Aldimar & Nick Aber - Shine 4 You (Original Mix) [3:07]
-04. ACR - The Feeling You're Giving Me (Original Mix) [3:20](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 0252:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1105457BD7DE540F4435DAC2046DF210E29294A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624582   (242481) от 06.04.2023
-
-VA - Ibiza Opening Party 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Groove Squad - Corazon (Original Mix) [3:00]
-02. Afrochuck - Far Away (Extended Mix) [3:28]
-03. Eddy Chrome - In Love (Daydream Extended Mix) [6:25]
-04. Prince Ringo - The Tribe Of Love (Extended Mix) [5:21](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76A922ABE082D82114B2C4D13099C6E9D75FC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624611   (242376) от 07.04.2023
-
-VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House, Synth-pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primal Scream - Loaded (Terry Farley Remix)
-02. The Stone Roses - Fools Gold 95 (Full Length Version)
-03. Candy Flip - Strawberry Fields Forever (Raspberry Ripple Mix)
-04. Manic Street Preachers - The Everlasting (Deadly Avenger's Psalm 315)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 03:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73F3C28B45876FCB75AFE1741AF6D235EFB6471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105487   (242371) от 18.02.2017
-
-VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Myon - Rain (Extended Mix)  5:11
-02.  Phil Martyn - Shapes  3:52
-03.  Namatjira - Illuminar  4:59
-04.  Yuji Ono - Real Dark (Original Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69FD8009CA9E9BD9245CB98B8067D54951975E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458237   (242329) от 28.03.2021
-
-VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lawrence - Afterglow (Fitness Version 128 Bpm) (04:15)
-02. D'Mixmasters - 911 (Fitness Version 128 Bpm) (04:00)
-03. Kyria - Midnight Sky (Fitness Version 128 Bpm) (04:15)
-04. DJ Space'c - Goosebumps (Fitness Version 128 Bpm) (03:30)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5BAB3C68B5F2A225C59DCD9EEA5D4DEE005BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105692   (242271) от 18.02.2017
-
-VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archi Nova - At A Depth 03:25
-02. Geogor Dansis - Re 04:21
-03. Lashch - Other 09:33
-04. Mizkan - Perfect Future 06:47(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62047EADB4CA15C84AD0323EF9B5B48881986313
 ```
 
 https://mybot314.ru/tekegram_catalog/

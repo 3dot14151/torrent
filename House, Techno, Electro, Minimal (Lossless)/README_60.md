@@ -1,3 +1,203 @@
+###  Публикация: 577942   (169467) от 11.12.2019
+
+Scooter - Music For A Big Night Out (2012) [FLAC|Lossless|image + .cue] <House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Moon (1:44)
+02. I'm A Raver, Baby (3:14)
+03. Army of Hardcore (2:58)
+04. 4 AM (3:18)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9C2A5E46F9C977D7759528378155CC1A6D3193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672253   (169242) от 28.10.2023
+
+Yotam Avni - Summer of Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shame Shame Shame [00:01:52]
+02. Some Jews Are Better Than Others [00:06:51]
+03. Voices Feat. Karen Vogt [00:02:50]
+04. No Democracy For You [00:06:12](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45077E18268324F894943AB4285120B3F859FDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202098   (169017) от 12.12.2019
+
+Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantumplation (Grouch Mix) (09:02)
+ 02. Quantumplation (Knobs Mix) (08:23)
+ 03. Quantumplation (Krumelur Mix) (08:11)
+ 04. Quantumplation (Kliment Mix) (08:17)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Psytrance/Minimal/PsytechПродолжительность: 09:43:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896F3DBE8902AF467AB60BEA8F6D0DF4844F48BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672629   (168046) от 29.10.2023
+
+Kölsch - I Talk To Water (2023) [FLAC|Lossless|WEB-DL|tracks + .cue] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD4AEEDD709146B4C1147D5F122E6AA1B96F1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597092   (167564) от 13.12.2022
+
+Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer - Begin Again
+02. Ben Bohmer - Beyond Beliefs
+04. Ben Bohmer ft Lau.ra - Erase
+05. Ben Bohmer ft PBSR - Revelation(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281A016006562CB5337DE3287E8C75EB82BE8B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431678   (166984) от 14.12.2020
+
+Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Distance Between Us (Jody Wisternoff Mix) [07:02]
+2. Distance Between Us (Streetlife DJs Mix) [07:13]
+3. Distance Between Us (Original Mix) [09:45]
+4. Distance Between Us (Gill Norris Mix) [11:48](   Читать дальше...   )Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4FA3C58809532FBDE26F492D96EB0A79A015AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516274   (166961) от 10.12.2021
+
+Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Walker (3:10)
+ 02. The Black Bookshelf (3:43)
+ 03. Overload (feat Luciana Villanova) (5:08)
+ 04. Forgotten (3:54)(   Читать дальше...   )Жанр: Tech House, Techno, Minimal, AmbientПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511386E27D28934D9BBA23799C784A61D6D08349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516192   (166845) от 10.12.2021
 
 VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -536,206 +736,6 @@ The Timewriter - This Is The Timewriter (2022) [FLAC|Lossless|WEB-DL|tracks] <ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57B2FAD6F487AE79062D91E7271FFD08BCA0FE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675880   (158987) от 12.11.2023
-
-Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fck Sigrid Kárzer (8:31)Жанр: TechnoПродолжительность: 00:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F132CC4B3C619E29AFE139ACDE2ED1F6A9E1B799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600230   (158942) от 26.12.2022
-
-VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. Dub Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Microlot -  Sensory Cortex  (6:29)
-02.  Dexter Curtin, Marcus Jahn -  Own Breeding (Alexander Bogdanov Remix)  (6:47)
-03.  Dott. Santafeo -  Basileo Regolo  (6:20)
-04.  Mick Whitehouse -  Dotti  (5:08)(   Читать дальше...   )Жанр: Deep House, Tech House. Dub Techno, MinimalПродолжительность: 03:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49318A8B39D8F40CDBF75FED3103DEEE3D246DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390616   (157284) от 18.12.2021
-
-Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Em (feat. Eve)
-02. Space Junk
-03. Menage A Trois
-04. Circus Freaks (feat. Jim Jones & Cam'ron)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194638   (155974) от 25.12.2017
-
-VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Techno, Leftfield, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peet - Fear Of Andarana (06:37)
- 02. Niko Mayer - Anunnaki (08:04)
- 03. Simon Shackleton - We All Shine On (06:51)
- 04. Stas Drive Pres. Quattar - Arjuna (05:16)(   Читать дальше...   )Тип издания: CD, Mixed •Жанр: Ambient, Downtempo, Techno, Leftfield, House •Продолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433995   (154879) от 22.12.2020
-
-Michael Cassette - Temporarity (2020) 10th Anniversary Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Nu Disco, Synthwave, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Name Is Michael Cassette (3:29)
- 02. Shadow’s Movement (3:54)
- 03. Crockett's Theme (3:39)
- 04. Through The Windows (3:31)(   Читать дальше...   )Жанр: EDM, Progressive House, Nu Disco, Synthwave, RetrowaveПродолжительность: 03:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75C79DBFAF008687EBE36898FF4247DF933D2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270996   (154527) от 21.12.2018
-
-S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Rat (02:56)
- 02. S.t.O Groove (03:33)
- 03. Terra (03:30)
- 04. No Stromo (06:31)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D49E734E3CEB215FCB0F1417E5B7FBD3879BD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347113   (154374) от 22.12.2019
-
-SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 003-001 (06:26)
- 02. 003-002 (06:33)
- 03. 003-003 (06:27)
- 04. 003-004 (06:05)Жанр: Electro, ExperimentalПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB835CBB683202E18561130C200137BE81AB8492
 ```
 
 https://mybot314.ru/tekegram_catalog/

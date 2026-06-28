@@ -1,3 +1,55 @@
+###  Публикация: 845974   (558607) от 03.08.2015
+
+Football Manager 2015 Cut-Out Facepack Graphic Megapack (2014) [Multi] (6.3) Mod
+
+>>Win Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Графический пак-реплейсер, который включает в себя фото игроков и персонала в стиле Cut-Out.Тип издания: Неофициальный | Графическая модификацияРазработчик: Dr. Fess, FMFan, sortitoutsi, Kremmen
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADF2A8CE7BDFBEE8E5A5F34015BCCCA17C84342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845975   (558602) от 03.08.2015
+
+Football Manager 2015 Metallic Logos Graphic Megapack (2014) [Multi] (5.3) Mod
+
+>>Win Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Графический пак-реплейсер, который включает в себя логотипы клубов, сборных и соревнований в стиле Metallic.Тип издания: Неофициальный | Графическая модификацияРазработчик: Dr. Fess, FMFan, sortitoutsi, Kremmen
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD0F4E60EA45B598E83A6248177312AC7EF7BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833102   (558524) от 03.08.2015
 
 Football Manager 2015 Graphic Megapack (2014) [Multi] (6.3/3.0/5.3) Mod [Cut-Out Facepack, SS Kits, Metallic Logos]
@@ -630,58 +682,6 @@ Wreckage - финальная часть истории, которая бере
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B99B2F6D7BEAD2EF4F4FF191AE46D492F45F049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488605   (246666) от 04.05.2012
-
-S.T.A.L.K.E.R. A.P.T. Mod | Epsilion Group
-
->>Win Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Косметический мод для S.T.A.L.K.E.R. Тень Чернобыля. Меняющий цвета игры. Также данный мод добавляет оружие , машины и многое другое. Дополнительно об особенностях читайте нижеТип издания: Косметический модЖанр: Action , RPGЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA1848CC6FE403F5C89729EE3C801C8589FFD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833368   (246323) от 02.11.2025
-
-Fallout: New Vegas: Fate of Wanderer - Tale of Two Wastelands Edition (2025) [Ru] (2.0.1.1) Repack/Mod EL-MODS
-
->>Win Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fate of Wanderer – это полностью переработанная версия одноимённой модификации для Fallout: New Vegas, основанная на Tale of Two Wastelands. Она объединяет миры Fallout 3 и New Vegas, предлагая игрокам уникальный взгляд на знакомую вселенную. Модификация позволяет игрокам начать игру в столичной Пустоши или в пустошах Мохаве. Что бы вы не выбрали - вы получите незабываемый (   Читать дальше...   )Тип издания: Repack/ModЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B596F57F40B7C235A39335B2753E0A4C72B42EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

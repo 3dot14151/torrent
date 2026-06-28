@@ -1,3 +1,55 @@
+###  Публикация: 552867   (435691) от 01.10.2012
+
+[Рисованая графика]Artworks by Валерия Барыкина
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника иллюстратора Валерия Барыкина.Разрешение файлов: 298х750~886х676.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4409B4AAB15B453A91B2220FD235E55FEC068F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323603   (435660) от 04.09.2019
+
+Desktop Wallpapers Full HD. Part (510) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06ADCF20E096EC670ECC0DE98B55867FFAC6AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323613   (435654) от 04.09.2019
 
 Ultra HD 3840x2160 Wallpaper Pack 399 [JPG, PNG]
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5BA8ED1B518007AC84CE933DB5BED4223BAD0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946093   (429295) от 12.10.2015
-
-Обои - Beautiful Autumn HD Wallpapers Set 6 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние обои, шестая часть известного пака.Формат: JPGРазрешение файлов: 1920x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68EE53D32B4C91A8554F5DA59C4B17A54CC6BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946118   (429172) от 12.10.2015
-
-Картинки - Wallpaper Macro Selection Set4 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртая часть картинок в стиле макро съёмки.
-Подборка TRECA & MOXOMOR akaФормат: JPGРазрешение файлов: 1920х1080 - 6144х4201
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BEDCA9701070E4E36FB26A05541A89169298E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

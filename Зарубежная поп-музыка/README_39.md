@@ -1,3 +1,32 @@
+###  Публикация: 915086   (595197) от 04.07.2015
+
+n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Chillwave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill All These Machines (04:27)
+02. Endless Night (03:46)
+03. Dreamer (03:28)
+04. Another Love (03:58)(   Читать дальше...   )Жанр: Indie Pop Folktronica, ChillwaveПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90803976D2464EF7E4782A6CCE9D5EE825F3731F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299727   (594969) от 04.05.2019
 
 VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -716,35 +745,6 @@ Betty Who - Take Me When You Go (2015) Deluxe Version [MP3|320 кб/с]<Synthpop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC8AC6520CC7E1B3C71C03F2BFAC7D79ADF3E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551769   (588992) от 18.05.2022
-
-VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Bowie Classix (Mixed By Lucien Vrolijk)
-02. Elton John & Alessandro Safina - Your Song (DMC Extended 2020) (Remixed By Lucien Vrolijk)
-03. Rick Astley - Never Gonna Give You Up (DMC Bass Remix) (Remixed By Lucien Vrolijk)
-04. Various - 3 Decades Of Popmusic (Part 3) (Mixed By Arjan Van Der Paauw)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:18:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB1863BCF0EDAC6397E9A2E9AF0DC02CCB17FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

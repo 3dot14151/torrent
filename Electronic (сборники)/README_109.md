@@ -1,3 +1,156 @@
+###  Публикация: 1038491   (606831) от 28.07.2016
+
+VA - The Best - In Music We Trust Vol.4 (2016) [MP3|320 Kbps] <House, Progressive, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. VINAI & Olly James -  Lit 2:25
+002. Zerocool -  Hit Me (Original Mix) 4:01
+003. SCHALA -  Labyrinth (Radio Edit) 3:39
+004. Dizygote -  Only White (Extended) 4:23(   Читать дальше...   )Жанр: House, Progressive, Club HouseПродолжительность: 07:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0077C81A7CBA33FE2786214D577532464FEC08DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546550   (605939) от 24.04.2022
+
+VA - Vocal Trance: Spring Positive Mix (2022) [MP3|320 Kbps] <Trance, Club, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные мелодии, отличная аранжировка, именитые гости, прогрессивные ритмы, дух беззаботности и позитивного настроения. Эти все составляющие присутствуют в сборнике "Vocal Trance: Spring Positive Mix" треки которого пришли к нам прямиком из кузницы европейской Trance музыки.001. Aurosonic - Onyx
+002. Caroline Harrison - There Was A Time
+003. Dj-Elven & D-Myo - Follow The Light
+004. Jay Hatfield - Time to Run Away(   Читать дальше...   )Жанр: Trance, Club, Dance, VocalПродолжительность: 08:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9757CB7BD7B2ECA23A2F3EA6A185069C44B8D204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526033   (605787) от 22.07.2012
+
+VA - Sexy Trance #42 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Bond feat. Emel - Amaze (Fady & Mina Remix) [09:08]
+ 02. Leonid Gnip - Apocalypse (Original Mix) [09:50]
+ 03. Miroslav Vrlik - Charisma (Original Mix) [06:51]
+ 04. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix) [07:11]
+ 05. Luigi Lusini - Chocolate (Thomas Schwartz & Luigi Lusini Mix) [07:30]
+ 06. Myk Bee - Cloud City (Original Mix) [08:59]
+ 07. Matt Darey & Kate Louise Smith - Crown Of Thorns (Aurosonic Progressive Mix) [06:47]
+ 08. Kyau & Albert - Falling Anywhere (Sunn Jellie Remix) [06:20]
+ 09. Khomha - I Miss You (Original Mix) [07:22]
+ 10. Mobil - In Loving Memory (Original Mix) [08:03](   Читать дальше...   )Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B36BE944EBD8CA11A6E7F38886CE5BE267F18D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147868   (605617) от 04.07.2017
+
+VA - Masterpieces Vol.1 The Wonderful World of Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo - Cafe Internacional (Jumairah Skyscrapers Mix)
+02. Cinematic - Typhoon (Phunky Waves Mix)
+03. Stereo Gringos - Arte Moderna (Lounge Doctor Mix)
+04. In Credo - Siesta del Sol (Laid Back Summer Cut)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413A6E773DF3E21D5A25DE02AE82F23267123F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525983   (605429) от 22.07.2012
+
+Armin van Buuren - Greatest Hits (2011) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren - Greatest Hits (2011)
+Год: 2011
+Жанр: Trance
+Продолжительность: 02:38:52Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:  (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17A25FF01030E9532AC82F6878BE26D6A52FBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913355   (605116) от 29.06.2015
 
 VA - Beatport Top 100 (27.06.2015) [MP3|160-320 кб/с]<House, Dubstep, Minimal, House, Drum and Bass, Trap, Techno, Hardstyle RAW>
@@ -603,151 +756,6 @@ VA - Omniversum: Techno Electronics Mix (2019) [MP3|320 Kbps] <Techno, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA40FDB9BB24A792D658A9DC792B3F98BE15750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297893   (602675) от 25.04.2019
-
-VA - Republic Open Hearts: Sublime Trance (2019) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adwell And Norex - Storm
-002. Inviron - Romance (Original Mix)
-003. A And E Project - The Birth Of Galaxy
-004. Mazeev - Brain Explosion (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998F4A7857D3FD59B81C9E4A88E0787D61E5AF46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297908   (602668) от 25.04.2019
-
-VA - Trance Collection Vol.76 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eric Senn feat. Cassandra Grey - Misconception (Extended Mix) 7:31
-002. Myk Bee - Just Try (Extended Mix) 6:43
-003. Wonder Element - Ventra (Omniks Remix) 6:15
-004. Stoneface & Terminal feat. Ava Kay - Free Time (Dan Stone Extended Remix) 6:11(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 10:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE68C1F6BB6F47A7007E562D24B1FAC3A89C3655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297896   (602661) от 25.04.2019
-
-VA - Record Super Chart 583 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rag'n'Bone Man - Giant 3:48
-02. Gaullin - Moonlight 2:53
-03. Filatov & Karas - Au Au 2:54
-04. Mabel - Don't Call Me Up (R3hab Remix) 2:33(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB7919F4290CCBC022D6051DD4ACF806B93DF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297890   (602657) от 25.04.2019
-
-VA - Absolute Chillout (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602657.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmique Beat Ensemble - Little Princess
-002. Zima Beach Project - Blood And Flames
-003. White Groove - Transito (Original Mix)
-004. Total System - All Is Not Lost(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A359ABF4A2AE72FF9BC3DF43F3E6F222BBF82A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149050   (602560) от 09.07.2017
-
-VA - Chill Mastercuts Balearic (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602560.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pindaric Spleen - Reciprocal Inhibition
-002. Bernd Filz - So Cool
-003. Puch - 3mptiness
-004. Sombra Modos - Botavara(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 08:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4DA7B1B5BB64B77C6CC69E6F6F14452FC73967
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1365769   (929019) от 08.03.2020
+
+Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saga (5:46)
+02. Barbarella Reloaded (4:13)
+03. Love In Rimini (4:24)
+04. Fancy Lady (4:06)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4F15D5239E7516CA06068AA59A5E96F1C70DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365768   (929011) от 08.03.2020
+
+Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetron (Marathon Mix) (7:12)
+02. Swept Away (Extended Remix) (5:24)
+03. Electric Eyes (Extended Version) (6:29)
+04. Funky Times (Maxi Version) (7:12)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 03:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE30A2987067CB7F344AA8CF82A1A29B3EEB68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365770   (929010) от 08.03.2020
+
+Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swept Away (3:40)
+02. Cloning The Droid (4:43)
+03. Cosmic Juice (5:25)
+04. Micro Disco (6:08)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4690A23E652CB887929691D8B35B9B9000C46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097176   (915730) от 26.01.2017
+
+Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicious Circle [4:55]
+ 02. Heaven Give Me Words [5:11]
+ 03. Your Wildlife [6:32]
+ 04. Only One Word [5:51](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364840D17E9124535650FEBD04BD8D99D31D6B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289452   (915160) от 02.02.2011
 
 Owl City - Ocean Eyes Deluxe Edition-2CD (2009) [FLAC|Lossless]<synthpop, Electronic>
@@ -637,122 +753,6 @@ Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Space
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374607   (872832) от 10.04.2020
-
-Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To The Battle Line (5:38)
-02. Artix Space (4:41)
-03. Power Invasion (5:55)
-04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998139   (866114) от 21.03.2016
-
-a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (Kygo Remix) (3:45)
-02. The Sun Always Shines On TV (Future Funk Squad's 'Radiant 4K' Remix) (5:38)
-03. Cry Wolf (Jellybean Mix) (5:14)
-04. Touchy! (House Mix) (5:21)(   Читать дальше...   )Жанр: Pop Rock, Synthpop, New WaveПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B413912F035724FABEB7E508D1E719B3B8CC1F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375651   (865490) от 14.04.2020
-
-VA - I Love Synthes12''er Dance Vol. 1-3 (2002-2004) Limited Edition, Remastered [APE|Lossless|image + .cue] <Syntheser Dance, Italo-Disco, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koto - Japanese War Game (7:53)
-02. Samoa Park - Tubular Bells & Foreign Affair (6:50)
-03. Kano - Ikeya Seki (5:44)
-04. Faxe - Time For Changes (5:24)(   Читать дальше...   )Жанр: Syntheser Dance, Italo-Disco, SynthpopПродолжительность: 03:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB5C56E0C2114EED694AC02EBAE72FBACDDF7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375744   (863603) от 15.04.2020
-
-NeoSpace - Revelation Tour (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Spacesynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation Tour (6:13)
-02. Neogalactic Travels (5:49)
-03. New World Order (5:01)
-04. Lost Civilization (6:08)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE529B01A76C0033B2A889B87F303D0184F46407
 ```
 
 https://mybot314.ru/tekegram_catalog/

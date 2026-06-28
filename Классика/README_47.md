@@ -1,3 +1,32 @@
+###  Публикация: 1666300   (175804) от 09.10.2023
+
+Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL|tracks] <neoclassical/crossover/art-rock/ethno/progressive>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Конквистадор [00:02:51]
+02. Беатриче [00:02:54]
+03. В моих садах цветы [00:03:18]
+04. Она [00:04:33](   Читать дальше...   )Жанр: neoclassical, crossover, art-rock, ethno, progressiveПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595899   (174467) от 07.12.2022
 
 Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
@@ -709,35 +738,6 @@ Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739745   (143847) от 29.12.2013
-
-Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergolese (2013) [FLAC 2.0|24/88.2|WEB-DL]<Avant-Garde Jazz, Classical Crossover>
-
->>Классика
->>Классика (HD Audio)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogne pena cchiù spietata (5:58)
-02. Amen / Fac Ut Portem (11:20)
-03. Sinfonia for violoncello (10:03)
-04. Chi disse ca la femmena (4:43)(   Читать дальше...   )Жанр: Avant-Garde Jazz, Classical CrossoverПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
 ```
 
 https://mybot314.ru/tekegram_catalog/

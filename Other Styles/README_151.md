@@ -1,3 +1,137 @@
+###  Публикация: 1834391   (249476) от 03.11.2025
+
+Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Of Your Smile
+02. Born Free
+03. Harlem Nocturne
+04. Laura(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C627E411B4E9A16EDB09D0C72D8CF052DED921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494097   (249236) от 09.05.2012
+
+Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumental / Blues>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249236.jpg" />
+</div>
+
+
+###  Подробнее
+
+1993Жанр: Instrumental / BluesПродолжительность: 00:46:09
+01. Again
+ 02. Blue Moon
+ 03. Mona Lisa
+ 04. Symphony
+ 05. The Things We Did Last Summer
+ 06. It Might As Well Be Spring
+ 07. Love In The Sand
+ 08. Guility
+ 09. Now Is The Hour(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CF1B7A34F678AFF61D597E38F40CF3FFE7B573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494113   (249210) от 09.05.2012
+
+Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, Neoclassical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hall Lagan Klar! (05:54)
+02. Den Bergtagna (06:15)
+03. Tichborne's Elegy (05:05)
+04. The Dying Christian to his Soul (04:26)
+05. Der Mensch ist bald vergessen (04:25)
+06. I am the Pillar (05:19)
+07. Min Sangmo (04:38)
+08. Epitaph on a Army of Mercenaries (05:11)
+09. God appears, and God is Light (04:56)
+10. Epigram CLXIII (05:16)(   Читать дальше...   )2005-2010Жанр: Neofolk, Martial Industrial, NeoclassicalПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492536   (248943) от 08.05.2012
+
+Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|128-320 кб/с]<Jazz / Vocal jazz / Blues>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Al Bowlly - Twentieth Century Blues [03:30]
+Andrews Sisters - Beat Me Daddy, Eight to the Bar [02:51]
+Annette Hanshaw - Daddy, Won't You Please Come Home [02:58]
+Artie Shaw & His New Music - Nightmare [02:49]
+Benny Goodman - The Devil And The Deep Blue Sea [02:49]
+Benny Goodman & His Orchestra & Martha Tilton - Bei mir bist du schön [02:31]
+Billie Holiday - God Bless The Child [03:01]
+Billie Holiday - Night and Day [02:58]
+Billie Holiday & Her Orchestra - Night and Day [02:58]
+Billy Grammer - Gotta Travel On [02:30](   Читать дальше...   )1920-1960Жанр: Jazz / Vocal jazz / BluesПродолжительность: 12:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490996   (248289) от 06.05.2012
 
 Разделитель / The Divide - Jean Pierre Taieb (2011) [MP3|320 кб/с] <Score>
@@ -646,122 +780,6 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D641B65ED503D43F073D2773567ED30E66B54FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635133   (242049) от 24.05.2023
-
-Marty Stuart And His Fabulous Superlatives - Altitude (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Byrd Space Train (Scene 1) (2:18)
-02. Country Star (3:06)
-03. Sitting Alone (2:54)
-04. A Friend Of Mine (3:48)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92320F8EABA778252C89B05695EBBEE75311CD57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108554   (242016) от 25.02.2017
-
-John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sable Lake (00:05:51)
-02. Gentle Smile (00:06:41)
-03. De-Stress (00:04:57)
-04. Dusk (00:05:55)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C39A855FA21504E42CEF9614DD562271975DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624964   (241449) от 11.04.2023
-
-Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Altamar, Punales [04:47]
-02. Inerte [03:58]
-03. La Senda de Enfrente [02:44]
-04. No Sabe Perder [04:54](   Читать дальше...   )Жанр: Native American, Rock, WorldПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D5B0AE4946DD078D2115D7AE8318B769F8E595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119559   (241208) от 29.03.2017
-
-VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|320 Kbps] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christophe Goze – Take a Breath – Main
- 02. Yves Touati – Celtic Dream
- 03. Adam Fielding – Going Home
- 04. Christophe Lebled – Flying Clouds – Main(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
 ```
 
 https://mybot314.ru/tekegram_catalog/

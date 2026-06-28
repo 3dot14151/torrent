@@ -1,3 +1,174 @@
+###  Публикация: 860670   (192206) от 01.11.2022
+
+Эрих Мария Ремарк | На западном фронте без перемен (2006) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их вырвали из привычной жизни... Их швырнули в кровавую грязь войны... Когда-то они были юношами, учившимися жить и мыслить. Теперь они - пушечное мясо. Солдаты. И учатся они - выживать и не думать. Тысячи и тысячи навеки лягут на полях Первой мировой. Тысячи и тысячи вернувшихся еще пожалеют, что не легли вместе с убитыми. Но пока что - на Западном фронте все еще (   Читать дальше...   )Жанр: РоманФормат: M4BПродолжительность: 8:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8326DE66330197AEF3AD069A514D93F75D941C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426712   (186015) от 25.11.2020
+
+Би-2 - Бог проклятых (2020) [AAC|~323 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бог проклятых (3:18)
+02. Бог проклятых (prod. тима ищет свет) (Лиза Громова version) (3:57)
+03. Бог Проклятых (Midnight Faces Version) (3:17)
+04. Бог проклятых (Jukebox Trio) (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264DEA4D895F9334F78B14E3CA4B1B734115FF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426558   (185904) от 25.11.2020
+
+VA - Золотые застольные песни (2006) [AAC|~300 Kbps] <Pop, Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Группа "Золотая стрела" - Любо, братцы, любо (5:35)
+1.02. Группа "Черная кошка" - Мой костер (2:43)
+1.03. Группа "Эшелон" - Черный ворон (4:05)
+1.04. Группа "Калитка" - Тонкая рябина (3:28)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 08:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DF58023FCB787CF07B27404BA5DFEB73B433D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426833   (185478) от 26.11.2020
+
+Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TWELVE (2:32)
+02. SLIME (2:39)
+03. FREAK (2:47)
+04. TASTY (2:24)(   Читать дальше...   )Жанр: Electronic, Grime, ExperimentalПродолжительность: 00:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC42C887050A03F79BD64AED348613768136C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426890   (185416) от 26.11.2020
+
+Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps] <Jazz, Funk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Steppin’ (12" Version) (5:53)
+1.02. Easier Said Than Done (7" Version) (3:46)
+1.03. Night Birds (7" Version) (4:23)
+1.04. Dark Is The Night (Extended Version) (6:27)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 03:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA4F7FE5FF27210FDAC22CE404EF209A2F598D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426817   (185392) от 26.11.2020
+
+BTS - BE (2020) [AAC|~318 Kbps] <kpop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Goes On (3:27)
+02. Fly To My Room (3:42)
+03. Blue & Grey (4:15)
+04. Skit (3:00)(   Читать дальше...   )Жанр: kpopПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89601B3E332E28EF7DAE0135E5B561F6C4E4EEC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426822   (185278) от 26.11.2020
 
 Крематорий - Hits Hotel (2019) [AAC|~355 Kbps] <Rock>
@@ -568,180 +739,6 @@ Marc Hartman - Changes (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BEA17FBC07DF6B142614E847AFD8E918EB05340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427802   (182505) от 29.11.2020
-
-VA - Slow Down: Ibiza Grooves (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - Falling Apart (5:09)
-02. Marco Moli - French Love Poem (5:08)
-03. Marco Moli - Just A Fool (3:18)
-04. Marc Hartman - Under My Skin (5:21)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE619F6FB42B919B911C4629A1C5596DB1BA67D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427661   (182500) от 29.11.2020
-
-Marc Hartman - Emission of Love (2016) [AAC|~348 Kbps] <Chillout, Trip-hop, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peope of Beijing (4:35)
-02. Become the Sky (4:44)
-03. Late Late Summer (6:10)
-04. I Can't Stop (5:14)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8092ECA5FB36DAAFAE8A019963023B730F163C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427792   (182483) от 29.11.2020
-
-Marc Hartman - The 5th Element (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Closer to My Heart (4:18)
-02. Voices Inside (5:22)
-03. Bright Like the Night (4:58)
-04. Wait for Me (5:32)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788BDC1ECDEB8BDC1EF267479E01E13EA9A364D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427674   (182474) от 29.11.2020
-
-Marc Hartman - Music of the Third Kind (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Fall in Love (4:42)
-02. Into the Stone (4:16)
-03. Hearsay (5:24)
-04. Angels in the Sky (5:15)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B7F5F3B09118DE35BA15D770B190024C74C0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427623   (182393) от 29.11.2020
-
-VA - Pop Ambient 2021 (2020) [AAC|~304 Kbps] <Electro, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank Gloss - Of A Vessel (4:31)
-02. Yui Onodera - Cromo 5 (3:33)
-03. Thore Pfeiffer - Grape (3:29)
-04. Morgen Wurde - Mittsommer (5:23)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDAAC263177780405272BF11C59AC7CA27C6B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427698   (182320) от 29.11.2020
-
-Marc Hartman - 4 Seasons to Chill (2017) [AAC|~340 Kbps] <Lounge, Ambient, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glow (4:24)
-02. My Morning Sun (3:49)
-03. My Offences (4:03)
-04. Marc Hartman, Airily - Endless Summer (Shining Sun) (4:01)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E24698DC4C33EEC81AC7CB70AC829EF344F2AD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1728227   (54133) от 06.06.2024
+
+VA - DJ Hits 33 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr.Alban - This Time I'm Free
+02. Ace Of Base - Lucky Love
+03. Clock - Everybody
+04. Imperio - Veni Vidi Vici(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02489115F64C4A9C6980C37608063D632A138D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729486   (53660) от 11.06.2024
 
 Adriano Celentano Compilation - Anni '60 (2024) [MP3|320 Kbps] <Pop Rock>
@@ -715,35 +744,6 @@ VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBCDA33D72B9D210ABF4EAA677283BE9A526AA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749886   (43358) от 16.09.2024
-
-VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puma - Do It Right
-02. Loverman - Touch My Body
-03. U96 feat Dea-Li - Electric Love
-04. Robin Cook - Reagge In The Night(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
 ```
 
 https://mybot314.ru/tekegram_catalog/

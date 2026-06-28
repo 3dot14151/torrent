@@ -1,3 +1,57 @@
+###  Публикация: 1797112   (66584) от 24.05.2025
+
+Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 5766 x 5800 - 5834 x 5828
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797708   (66583) от 24.05.2025
+
+Текстуры - MiksKS - Experimental Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные разнообразные текстуры.
+Разработчик: MiksKS
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797962   (66582) от 24.05.2025
 
 Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
@@ -615,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85BC2CE2882ECE671A8F20CCEB4AED548612133A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803239   (65880) от 22.06.2025
-
-Текстуры - CCpreset - Envato - 40 White Textures HQ - JBC9VTS [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 40 белых текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112AB9CF1DD4D732A05A3A8D91B901F5FFA07C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803425   (65877) от 22.06.2025
-
-Текстуры - TexturesStore - Envato - 30 Knitted Background Textures - 8RFFUJA [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 30 вязаных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

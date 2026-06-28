@@ -1,3 +1,119 @@
+###  Публикация: 1105638   (876549) от 17.02.2017
+
+Wychazel - In Search of Lemuria (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hidden World
+02. Sands of Time
+03. The Crystal Path
+04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622372BAF9DCC34049FD50CF0A1BAF1455CA4733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105244   (876411) от 17.02.2017
+
+J.S. Epperson - Solfeggio Suite (2011) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 174 Hz Earthing (Schumann Resonance) 04:40
+2. 396 Hz Release 12:55
+3. 417 Hz Undo 08:24
+4. 528 Hz DNA Repair 13:55(   Читать дальше...   )Жанр: New AgeПродолжительность: 1:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE40C1AE1BC7609DD8FEC19046B89F7F95E639B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377353   (876362) от 08.04.2020
+
+Enigma - Alchemist (2008) [FLAC|Lossless|image + .cue] <New Age, Abstract>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From East To West (4:12)
+02. Sitting on the Moon (4:32)
+03. Fata Morgana (2:57)
+04. The Look of Today (3:54)(   Читать дальше...   )Жанр: New Age, AbstractПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658F07003EED42B27A0A43329F1DF3D33865055C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997435   (875584) от 16.03.2016
+
+Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Folk, Dark Folk, Experimental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875584.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Lose Yourself Forever Is Eternal Happiness
+2. You Can't Remain Here
+3. Detachment
+4. The Purified Eye of the Soul Is Placed In the Circle of Eternal Sun(   Читать дальше...   )Жанр: Folk, Dark Folk, ExperimentalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783854   (874193) от 09.04.2020
 
 Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
@@ -630,119 +746,6 @@ Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC04237BB36FC10358CF8122B980C1570A03F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374298   (870514) от 11.04.2020
-
-Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. By Heart	04:06
-2. Valentine	03:41
-3. Starbright	02:38
-4. The Gift	04:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7E4FDDED433170E7F3B7ECB812DF80AE81C265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300208   (870410) от 27.02.2011
-
-Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk RockПродолжительность: 20:10:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998289   (869820) от 19.03.2016
-
-Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 3 CD [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Had A Heart (Fever Ray)
-02. Battle Field
-03. The Eye Of Odin
-04. Of Fathers And Sons(   Читать дальше...   )Жанр: Score |Продолжительность: 03:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107019   (869674) от 21.02.2017
-
-Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enamor
-02. Lost Love
-03. La Guitarra De Oro
-04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

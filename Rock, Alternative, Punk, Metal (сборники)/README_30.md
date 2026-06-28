@@ -1,3 +1,180 @@
+###  Публикация: 1318416   (494824) от 06.08.2019
+
+VA - Phoenix Rising (2019) [MP3|320 Kbps] <Metal, Power, Death>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shook Ones - You Missed A Button
+002. Dawnwalker - Horus
+003. Helevorn - Goodbye, Hope
+004. Lana Blac - In The Darkness(   Читать дальше...   )Жанр: Metal, Power, DeathПродолжительность: 10:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798BB66C7A0D5AB3EB1D2FB9624EFDD50231D920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318324   (494299) от 06.08.2019
+
+Scorpions - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Hard'n'Heavy, Rock, Hard Rock>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossfire
+02. Sly
+03. Big City Nights
+04. Rhythm Of Love(   Читать дальше...   )Жанр: Hard'n'Heavy, Rock, Hard RockПродолжительность: 02:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938439D40FED3BC8A3ED0511480BED58EC5B1D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243432   (489976) от 28.08.2018
+
+VA - And The Angels Sing (2018) [MP3|320 Kbps] <Rock and Roll, Classic Rock, Rock Jazz>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489976.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Golden Gate Quartet - Joshua Fit The Battle Of Jerich
+002. Natalie Cole -  Almost Like Being In Love
+003. Eartha Kitt - A Woman Wouldn't Be A Woman
+004. John Travolta - Greased Lightning(   Читать дальше...   )Жанр: Rock and Roll, Classic Rock, Rock JazzПродолжительность: 11:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97400FA7DD98D949DA704AB6825477CBA85B3C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243412   (489814) от 28.08.2018
+
+VA - Hits of My Soul Vol. 39 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Linkin Park - Castle Of Glass (03:27)
+02. Imagine Dragons - Battle Cry (04:34)
+03. Battle Beast - Beyond The Burning Skies (04:40)
+04. Filter - What Do You Say (03:48)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8F74CE930854E06CA8F0DB1520C449C438934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405102   (487284) от 28.08.2020
+
+VA - Silent Mutiny: Alternative Punk Rock (2020) [MP3|320 Kbps] <Punk Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Codename Colin - Losing Touch
+002. Braincoats - These Hospital Halls
+003. Hawaiian6 - Skull And Bones
+004. Mikey Erg - Mother Nature's Son(   Читать дальше...   )Жанр: Punk Rock, Alternative RockПродолжительность: 07:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDBD10DA0729C6DF23F5EE91ACA1B5E3FF5DD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158785   (485921) от 19.08.2017
+
+Axel Rudi Pell - Ballads Vol.1 (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All The Rest Of My Life  8:05
+02.  Ashes From The Oath  9:39
+03.  Forever Angel (Acoustic)  4:32
+04.  Your Life (Not Close Enough To Paradise)  5:08(   Читать дальше...   )Жанр: RockПродолжительность: 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAF499316AA8C82965DA2D68FEE39CDF1C33904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158814   (485808) от 19.08.2017
 
 Axel Rudi Pell - Ballads Vol.2 (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
@@ -574,186 +751,6 @@ VA - Tears Of The Dragon (2020) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2302E88340A010A9A7932D90BC57F0ECEB808CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161704   (465516) от 29.08.2017
-
-VA - Metal World Digest (2017) [MP3|320 Kbps] <Metall, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tankard - Rapid Fire (A Tyrant's Elegy) 05:49
-002. Burning Witches - We Eat Your Children 03:02
-003. Cormorant - Sentinel 15:52
-004. War-saw - Bleed Them Out 04:02(   Читать дальше...   )Жанр: Metall, Hard RockПродолжительность: 16:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D6F450D012F05E9D5AF6BCDE277E38F9698776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057112   (465331) от 09.09.2018
-
-UFO - The Very Best (2016) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Roll Her
-02. Belladonna
-03. Let It Roll
-04. High Flyer(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098EF56444EBA2C8F579C4DFE2B085B29F014661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941031   (464055) от 26.09.2015
-
-The Beatles - Good Songs (2015) [MP3|128 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464055.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. I Saw Her Standing There (1963)
-002. Misery (1963)
-003. Anna (Go To Him) (1963)
-004. Chains (1963)(   Читать дальше...   )Жанр: RockПродолжительность: 09:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6A21520C2E8420BCFC386989996F80EE119647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239865   (464014) от 29.09.2010
-
-Андрей Макаревич - Коллекция легендарных песен (2010) [MP3|320 kbps]<Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лет 30 тому назад (4:00)
-02. Из-за угла (5:03)
-03. Вдалеке от высоких холмов (3:10)
-04. Было не с нами (4:23)
-05. Новая опера (3:01)
-06. Нам, пожалуй, пора (4:08)
-07. Моя любовь (4:36)
-08. Птички и мошки (2:36)
-09. Ангел # 2 (4:10)
-10. Разговор на фоне бесконечной ночи (4:33)(   Читать дальше...   )Жанр: Русский рокПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059122   (461634) от 04.10.2016
-
-VA - Classic Rock (2016) 3CD Box Set [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461634.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-001. Sweet Home Alabama - Lynyrd Skynyrd (04:43)
-002. The Boys Are Back In Town - Thin Lizzy (04:26)
-003. All Right Now - Free (05:33)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060D8BFDD4EDD3FFAAC77887E00EC24D74E56AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059473   (461543) от 04.10.2016
-
-VA - ЭТО - РОК Unlimited Hits (2016) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Курнаев - В пульсе сердца
-02. Белки на Акации и Доза Радости - В чайном трипе
-03. Монти Механик - Фотоаппарат
-04. Беспризорники feat. Crazy Mama - Ибрагим(   Читать дальше...   )Жанр: RockПродолжительность: 04:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFC397FE814DE17E1992B6B21CCB05CD538636D
 ```
 
 https://mybot314.ru/tekegram_catalog/

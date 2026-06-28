@@ -1,3 +1,32 @@
+###  Публикация: 988675   (918996) от 21.02.2016
+
+Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Rock, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918996.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) 2008 - Don't Forget - 192Кб/с - 00:38:10
+2) 2009 - Here We Go Again - 320Кб/с - 00:46:57
+3) 2011 - Unbroken - 320Кб/с - 00:52:45
+4) 2014 - Demi - 320Кб/с - 01:15:38(   Читать дальше...   )Жанр: Pop, Pop-Rock, R'n'BПродолжительность: 04:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA83BECCF195798AE7F735737CD7BFA3E91550CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988987   (918959) от 21.02.2016
 
 Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
@@ -720,35 +749,6 @@ VA - Best Songs of 2021 So Far [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:397BE043E978DB1B049BBD18986278146913DC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994576   (889782) от 08.03.2016
-
-Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American English
-02. In Some Other World
-03. Ready Or Not
-04. Call It Destiny(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AEF5C30E13EB81C82949CD29690F989764C5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

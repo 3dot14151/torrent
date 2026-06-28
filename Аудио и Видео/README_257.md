@@ -1,3 +1,177 @@
+###  Публикация: 1430684   (169850) от 11.12.2020
+
+Владимир Высоцкий - Оригинал первый (апрель 1972 года) (2020) [AAC|~172 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Певец у микрофона (4:14)
+02. На маскараде (2:44)
+03. Марш аквалангистов (1:41)
+04. Оловянные солдатики. Детская песня (2:08)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430708   (169845) от 11.12.2020
+
+Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 2] (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Ну о чём с тобою говорить!..» (1:14)
+02. «Эй, шофёр, вези - Бутырский хутор…» (1:17)
+03. «До нашей эры соблюдалось чувство меры…» (1:30)
+04. «То была не интрижка…» (1:23)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430693   (169820) от 11.12.2020
+
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 1] (2020) [AAC|~181 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кругом пятьсот (МАЗы) (4:06)
+02. Песня канатоходца (3:37)
+03. Увижу восход! (Чёрные бушлаты) (4:05)
+04. Песня про телевизор (3:58)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60035249F427957830AAA0B734A88779D11F0F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430702   (169816) от 11.12.2020
+
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 1] (2020) [AAC|~184 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Письмо на выставку (2:23)
+02. Письмо в деревню (2:22)
+03. Бал-маскарад (1:31)
+04. Песня завистника (1:40)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A58803936ADA17AC5135B1DEDEB083ED8BF66A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430796   (169808) от 11.12.2020
+
+Taylor Swift - evermore (2020) [AAC|~284 Kbps] <Pop, Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. willow (3:35)
+02. champagne problems (4:04)
+03. gold rush (3:05)
+04. ‘tis the damn season (3:50)(   Читать дальше...   )Жанр: Pop, AlternativeПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3A6F65C672E91B09E7C263E157940B5B590D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430706   (169801) от 11.12.2020
+
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 3] (2020) [AAC|~191 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Один музыкант объяснил мне пространно…» (1:51)
+02. Письмо (2:38)
+03. «Давно смолкли залпы орудий…» (2:09)
+04. После чемпионата мира по футболу. Разговор с женой (1:24)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4847C494DA2892B6459F67E87310F62418534AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430682   (169793) от 11.12.2020
 
 Владимир Высоцкий - Оригинал первый (26 февраля - апрель 1972 года) (2020) [AAC|~181 Kbps] <Acoustic, Chanson, Ballad>
@@ -569,177 +743,6 @@ VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:595039CD20ED16FDC2E739B5F29679D60EA569CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515275   (169666) от 07.12.2021
-
-VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barby - Angel Droid (9:32)
-02. Sixsense - Wherever You Are (4:17)
-03. The Big Port - Another World (4:40)
-04. TrapaleX - BimBam (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1498448C828D9C8BF460124AB7D4B54AF836142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404230   (169664) от 11.12.2020
-
-Ярослав Гжендович | Гелий-3 (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169664.jpg" />
-</div>
-
-
-###  Подробнее
-
-2058 год. Это мир, в котором омнифоны заменили собой любые социальные связи, где ролики из МегаНета покончили с медиаресурcами и культурой, а место журналистов заняли ивентщики, обыкновенные люди, которые снимают все вокруг в надежде заполучить эффектную и скандальную запись. Это мир, в котором любой полет на самолете намеренно превращен в настоящий ад, в котором (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 13:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C54073E6332A5F613E8E3ECE94C59BE11582B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515431   (169654) от 07.12.2021
-
-VA - Best of Chill Jazz 3 (2019) [AAC|~350 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Guessing Game (4:17)
-02. Konstantin Klashtorni - Let's Chill (5:29)
-03. Chillaxing Jazz Kollektion - Key of Sea (5:18)
-04. Love Suggestions - Life Is Love (4:44)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A589009F4A72890C82BD0F321679CF39D8CCC2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515271   (169653) от 07.12.2021
-
-VA - My Time | My Music (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azeotrop - Chilly Beach (5:44)
-02. Mind Conventions - Irrefragable (5:58)
-03. gesolreut - Switching Things Up (6:02)
-04. Asking Altotas - Sowing Time (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A194673B914A0B0B918069E1885CD49830E146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515435   (169647) от 07.12.2021
-
-VA - Best of Chill Jazz 5 (2020) [AAC|~346 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - I Can Only Imagine (4:55)
-02. Chillaxing Jazz Kollektion - Mornin' (4:30)
-03. Chillaxonic - So Far, But so Near (4:32)
-04. Love Suggestions - Feel This Moment (4:25)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A231D45D750D4036B4E8F4DCBA8373C2B66524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515320   (169643) от 07.12.2021
-
-VA - Winter Magic | Chillout Edition (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bio Logical Theory - Another Stratosphere (5:41)
-02. Lafoliedamour - Lollygagging (5:40)
-03. Miethe - Revealing (5:33)
-04. Helfau Reload - Off the Hook (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD736F5AED26407ECE4FA563E2AA0580E488B2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1359990   (961886) от 14.02.2020
+
+Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie, Singer-Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Drag (03:34)
+02. And It's Still Alright (03:55)
+03. All Or Nothing (05:01)
+04. Expecting To Lose (03:54)(   Читать дальше...   )Жанр: Folk, Indie, Singer-SongwriterПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3219F64F072A793B45AC5851BCA649E9CC80D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360048   (961885) от 14.02.2020
+
+Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961885.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:38| 01. You Are One of My Guests
+|03:46| 02. Arrival
+|02:26| 03. Regret is a Disease
+|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864449   (961826) от 24.01.2016
+
+Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Indie, Alternative Rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Paws (04:26)
+02. King and Lionheart (04:35)
+03. Numb Bears (02:45)
+04. Sloom (04:42)(   Читать дальше...   )Жанр: Indie, Alternative Rock, FolkПродолжительность: 03:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360045   (961806) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961806.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360243   (961792) от 14.02.2020
 
 Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -632,122 +748,6 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82138E1C5C0AED4B0D13FD69AE4FE6252A015ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361320   (955810) от 19.02.2020
-
-Andrew Lockington - The Kindness of Strangers / Реальная любовь в Нью-Йорке (Complete Motion Picture Score) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955810.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:21| 01. Awake
-|02:08| 02. Awake (Alternate Version)
-|00:21| 03. Hospital
-|00:54| 04. The Chair / New York(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C157CEFAFE70203CA54BA3219542C7E06F7110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361024   (955629) от 19.02.2020
-
-Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classical, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (5:19)
-02. Love to the Piano (4:22)
-03. Feeling (4:48)
-04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361026   (955601) от 19.02.2020
-
-Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:50)
-02. Voulez-vous (4:35)
-03. Super Trouper (4:34)
-04. Money, Money, Money (3:10)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980852   (954559) от 30.01.2016
-
-Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)] <New Age, Folk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight Days A Week 02:14
-02. A Hard Day's Night 02:28
-03. Hello Goodbye 03:04
-04. In My Life 03:02(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524D3F72F0A4F4E40F7E9B3F4CCD98707A71E89B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 894328   (57566) от 05.05.2024
+
+Boney M - Hit Story (2010) 4CD Set Sony Music [FLAC|Lossless]<Disco / Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57566.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Best Of The Seventies
+CD2 - The Best Of The Eighties
+CD3 - The Most Beautiful Ballads. The Most Beautiful Christmas Songs
+CD4 - The Best 12 Inch VersionsЖанр: Disco / PopПродолжительность: 05:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B23993111CD18A8C01BC14A85233CA50F99B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721536   (57191) от 08.05.2024
+
+Bisquit - The Ultimate Singles Collection (2003) Limited Edition, Unofficial Release, 2024, ESonCD [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zoo Zoo (Maxi Version)
+2. Zoo Zoo (Instrumental)
+3. Roller Boogie
+4. Roller Boogie (Instrumental)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119A2DB1A06FC3AA041A60CEAB08C170C5ECAE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723193   (56450) от 15.05.2024
+
+VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Hooker - Come Back Home (Extended Vocal) (6:13)
+02. Xenon - Symphony (Versione Dance) (5:36)
+03. Band of Jocks - Let's All Dance (Italian Version) (5:02)
+04. Ronnie Jones - Richman (Extended Mix) (5:39)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEF44918444D2B54248307AF07800525EADCB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724584   (55938) от 20.05.2024
+
+VA - Fulltime Production Disco Classic, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selection - Madly (Extended) (7:16)
+02. Ago - You Make Me Do It (Extended Mix) (5:47)
+03. Rainbow Team - Dreaming (Ftm 31701) (4:12)
+04. Kano - Can't Hold Back (Ftm 31703) (4:50)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A083306DF2ADFBE3C0742E4B3C27991605FAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724588   (55917) от 20.05.2024
 
 VA - Disco Club Hits & Secret Tracks Of The 80's And 90's (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
@@ -621,122 +737,6 @@ Cerrone - Discoset 1 (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A0A0A1E7D61E0510E9BFAADD2B472709F5C1CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754586   (40661) от 11.10.2024
-
-Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Schlager, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan (New) (3:05)
-02. Moskau (New) (4:15)
-03. Hadschi Halef Omar (New) (3:50)
-04. Loreley (New) (3:56)(   Читать дальше...   )Жанр: Disco, Schlager, PopПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A11A1578B23C769D3E9E2237212A91FE393F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756483   (39669) от 21.10.2024
-
-Peter Griffin - Step By Step (1981) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beware Of Love
-02. Fly, Home Is In The Sky
-03. Get It
-04. I've Lost My Way(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8D75DB455350D2FABD6D7A834F1EA5ED6DF272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756484   (39664) от 21.10.2024
-
-Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil's Reception
-02. Spiderman (Long Version)
-03. Hurricane
-04. I'll Be Your Fireman (Long Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3477393D8CBB29EB582F31A3B5A7F199424E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761795   (36498) от 22.11.2024
-
-Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mary’s Boy Child / Oh My Lord (5:11)
-02. When a Child Is Born (3:21)
-03. White Christmas (3:24)
-04. Feliz Navidad (2:23)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 ```
 
 https://mybot314.ru/tekegram_catalog/

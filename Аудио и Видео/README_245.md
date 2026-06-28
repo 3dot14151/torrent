@@ -1,3 +1,177 @@
+###  Публикация: 1513202   (225965) от 28.11.2021
+
+VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Demure - Bellabony (6:44)
+02. Julian Nates - Origami (7:21)
+03. Agustin Pietrocola - Dementor (7:30)
+04. Mooh - Connected (7:03)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDF39B130C84DBB0787581DC31443A09F649345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513209   (225957) от 28.11.2021
+
+VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Síntese - Meridians (5:35)
+02. Eliphas - Eliphas (7:51)
+03. Morego - Swoon (5:05)
+04. Blue Bliss - Fairlight (4:40)(   Читать дальше...   )Жанр: PsyChill, PsybientПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD75DEE950A75DB736D333E44A080CE0E1819E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513270   (225950) от 28.11.2021
+
+VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Add-us - Hissing (7:50)
+02. Airbas - Winking Stars (7:44)
+03. Coherence (ES) - Venus (7:47)
+04. Farbenklang - Ametrix (8:42)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA13DD27BB692132E179B41995512FD8569A4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513292   (225944) от 28.11.2021
+
+VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kokko Vit - Auxesia (4:24)
+02. Martin Biller - Callisto Calling (6:10)
+03. Mind & Mind - Intro Hz (5:04)
+04. PARTY IN THE DARK - September (5:42)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 05:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58241409D409F9FE711915CBBC0B02B8AB93394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424772   (225913) от 18.11.2020
+
+Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) [AAC|~336 Kbps] <Pop, Jazz, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmanuelle (2:47)
+02. Alia Souza (2:20)
+03. Rock The Boat (2:27)
+04. Goodbye My Love, Goodbye (3:16)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70C09C1ACC80690EE879E4FDE94D4F436B84A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513206   (225912) от 28.11.2021
+
+VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TerraTech, Digital Abstract, Yebah - Lehaim (10:03)
+02. Parus - June (8:34)
+03. Chronophonia, 4Elements - The Fifth Element (6:27)
+04. Greenix - Async Feelings (5:46)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1350B841322150D506490E3F83D57040F1A82D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513262   (225896) от 28.11.2021
 
 VA - Dark Melodies, Vol. 1 (2020) [AAC|~324 Kbps] <Progressive House, Techno>
@@ -541,180 +715,6 @@ VA - This Is Soulful House 2 (2019) [AAC|~331 Kbps] <Soulful House, Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B93F5DDD21DE4C5B23A35A3183A6F2018619854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513465   (224185) от 29.11.2021
-
-VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troels Hammer, Clara Valente - Ai Meu Bem (4:29)
-02. Max Essa - Orange Trail (5:07)
-03. Aleceo, Sergi Kampanella - Clouds (6:06)
-04. Peter Visti, Lukas Visti - Cantamos de la Guitarra (2:52)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A5FD3A7BAABE7FBF81331F278B0E81C5A51B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513466   (224175) от 29.11.2021
-
-VA - Music for Mindfulness, vol. 3 (2019) [AAC|~317 Kbps] <Downtempo, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troels Hammer, Clara Valente - Amar Perdi (3:27)
-02. The Swan and The Lake - Herlev (3:04)
-03. Jacob Gurevitsch - In Search Of Lost Time (3:20)
-04. Ambala, Santino Surfers - Slow River (5:09)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EAA17B8923E3D431C157E104E9E880E6B90A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513476   (224163) от 29.11.2021
-
-VA - Music for Mindfulness, vol. 6 (2021) [AAC|~317 Kbps] <Downtempo, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenneth Bager, Voice Of Art, Troels Hammer - Nine Days Of Silence (3:13)
-02. Pfundheller - Lets Play A Lullabye (5:01)
-03. Jacob Gurevitsch - Song For Sol (4:54)
-04. Reinhard Vanbergen - Juliens Journey (3:39)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E372C6DFAEB1A6CADC803A7B8761817462D42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513464   (224157) от 29.11.2021
-
-VA - Music for Mindfulness, vol. 1 (2017) [AAC|~308 Kbps] <Downtempo, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cantoma - Early Till Late (4:46)
-02. Troels Hammer - View of Wisdom (3:22)
-03. Nordsø & Theill, Caroline Franceska - Good Morning (6:05)
-04. The Swan and The Lake - Clouds over Østerbro (4:42)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FE9B405F1BF7EA9498FC6C10E36FB3AFAB3FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513477   (224147) от 29.11.2021
-
-VA - Luxury Kingsize Lounge, Vol. 4 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Butterfly (5:37)
-02. Artur Bayramgalin - Breath of Spring (3:48)
-03. Esteban N. Garcia - Street Walk (6:03)
-04. Climatic - Solo parole (5:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A38DB453F8A3A83169D8A1ABB47065671D2F819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513521   (224137) от 29.11.2021
-
-VA - This Is Soulful House 3 (2021) [AAC|~316 Kbps] <Soulful House, Deep House, Funky House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lehmanns Brothers - I Wanna Be (Micky More & Andy Tee Extended Vocal) (5:45)
-02. Francesco Pucciarelli - Ain't No Stoppin' Us Now (Extended Mix) (5:02)
-03. Alan Scaffardi - I Loose Control (Ricky Birickyno Classic Remix) (6:28)
-04. D-Like, Bodyles, D'Andy, Simona Bencini - One Night Lady (Classic House Mix) (6:13)(   Читать дальше...   )Жанр: Soulful House, Deep House, Funky HouseПродолжительность: 02:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889FD2CDE2EE701CAB8C6C898B1E0E0D18127D48
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1296410   (611850) от 17.04.2019
+
+VA - Die neue Schlagerparade (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611850.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Olaf Henning - Sternenhimmel (Album Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3203611E548756FFAF198AF11EA0FFB5F0EF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296530   (611849) от 17.04.2019
 
 VA - Happy Easter Dance 3 (2019) [MP3|320 Kbps] <Dance, Clubce>
@@ -718,35 +747,6 @@ Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85DC4B7E621AE7EA43D0E24A06F99824FCA2AC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297563   (603590) от 23.04.2019
-
-VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Barbie Young - Duppy Huppy (Happy Mix)
-002. Divina - Free 4 Love (Extended Dance Version)
-003. Alvin - Shocking Fever (Long Edit)
-004. Zippers - Buffalo Bill (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
 ```
 
 https://mybot314.ru/tekegram_catalog/

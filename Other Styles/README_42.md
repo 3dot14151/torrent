@@ -1,3 +1,119 @@
+###  Публикация: 1198499   (806178) от 12.01.2018
+
+Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Season 7 (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806178.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Titles (1:54)
+ 2. Dragonstone (5:06)
+ 3. Shall We Begin? (1:24)
+ 4. The Queen's Justice (1:22)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B4F7FB27668A82DEA609C3CD27E15EE07C6625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009832   (805994) от 23.04.2016
+
+Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bend in the River (feat- Josie Quick)    04:23
+02. Distant Horseman (feat- Josie Quick)    05:05
+03. Turn and Walk Away    04:00
+04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119771   (805742) от 29.03.2017
+
+Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okinawa Battlefield (03:59)
+02. I could Have Killed Him (02:20)
+03. A Calling (02:42)
+04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119754   (805741) от 29.03.2017
+
+Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks So For Pushing Record Button [00:04:15]
+02. Deep Inside [00:06:16]
+03. Don't look at him [00:04:32]
+04. Forest Soul [00:05:34](   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010059   (805670) от 23.04.2016
 
 Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, New Age, Folk>
@@ -628,122 +744,6 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54071F9EC1A3D68F0285239369D663A9BE0694D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119772   (803268) от 30.03.2017
-
-Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okinawa Battlefield (03:59)
-02. I could Have Killed Him (02:20)
-03. A Calling (02:42)
-04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199039   (802813) от 14.01.2018
-
-David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breathe (10:50)
-02.  Lightdancer (10:12)
-03.  Deep Blue (9:53)
-04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199178   (802713) от 14.01.2018
-
-Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sa Nah Piteva (6:48)
-02. Gayatri Mantra (6:45)
-03. Om Namah Shivaya (8:48)
-04. Mandu Samanavarcasa (6:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198731   (802711) от 14.01.2018
-
-Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dislodged (4:03)
- 02.  Distant (2:36)
- 03. Absent (2:28)
- 04. Healing (1:58)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
 ```
 
 https://mybot314.ru/tekegram_catalog/

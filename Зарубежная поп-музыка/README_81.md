@@ -1,3 +1,32 @@
+###  Публикация: 1272170   (145705) от 26.12.2018
+
+VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145705.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Dadju - Jaloux
+02. DJ Snake - Taki Taki
+03. Imagine Dragons - Natural(   Читать дальше...   )Жанр: Pop, Folk, Indie, DancehallПродолжительность: 06:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348219   (145231) от 27.12.2019
 
 Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
@@ -715,35 +744,6 @@ Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679558   (135200) от 26.11.2023
-
-VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Secchi presents Oscar - Children  Voyage
-02.  740 Boyz - Party Over Here
-03.  Unlimited Nation - Move Your Body
-04.  Edison - The Whistle(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35840338C8844828AD01BF48C4FD6B83C910EFBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

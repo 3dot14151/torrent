@@ -1,3 +1,29 @@
+###  Публикация: 1263875   (284353) от 21.11.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (196) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326E790B803347AE237CC00275EE26E8B48ED3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335766   (284266) от 04.11.2019
 
 Desktop Wallpapers Full HD. Part (522) [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12DBD35F109592D6129F6D87372EC2128090F4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188310   (275630) от 01.12.2017
-
-Обои - Обои на рабочий стол. Зима №004 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка зимних обоев для рабочего столаФормат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AE13E7B1ADF8845CF636121D6823996642CAEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

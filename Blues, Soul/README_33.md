@@ -1,3 +1,32 @@
+###  Публикация: 1333872   (301359) от 26.10.2019
+
+Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Winds In February
+02. Fame Will Eat The Soul
+03. Dark Night Of The Soul
+04. In Search Of Grace(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2358949B3A4D7532D6F771B24B74C84A2860E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078720   (300527) от 01.12.2016
 
 Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reggae>
@@ -716,35 +745,6 @@ Andres Roots - Winter (2016) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A332CF410DDE3083D8E6386746AA22C5D08AAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081562   (283017) от 10.12.2016
-
-Marc Broussard - S.O.S. 2: Save Our Soul: Soul on a Mission (2016) [MP3|320 Kbps] <R&B , Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cry to Me (2:37)
-02.  Do Right Woman (3:14)
-03.  Baby Workout (2:49)
-04.  Twistin' the Night Away (2:43)(   Читать дальше...   )Жанр: R&B , SoulПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61CD267A4271B3881542215A685EC13459CA3DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

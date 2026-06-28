@@ -1,3 +1,32 @@
+###  Публикация: 963900   (285465) от 09.12.2015
+
+Melanie Martinez - Cry Baby (2015) Deluxe Edition [OGG|473-549 кб/с]<Alternative Indie Pop, Electropop, Dark Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Baby
+02. Dollhouse
+03. Sippy Cup
+04. Carousel(   Читать дальше...   )Жанр: Alternative Indie Pop, Electropop, Dark WaveПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492E98A4388C04949BCF55D4586DABDA49F5AF06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335867   (284583) от 04.11.2019
 
 Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chanson>
@@ -720,35 +749,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E42321BF648EC7BB2847B3B6785E436BB255315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188016   (275977) от 01.12.2017
-
-Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Satellites
-2. 9 to 5
-3. Ms Pepper
-4. Bambi(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEC0BC116A6E11FC4C430FF8D020326F6DFE58B
 ```
 
 https://mybot314.ru/tekegram_catalog/

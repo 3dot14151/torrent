@@ -1,3 +1,90 @@
+###  Публикация: 1187082   (282547) от 27.11.2017
+
+Roman Messer - Ambition (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Ambition (feat Vito Fognini - original mix)
+02. Roman Messer - For You (feat Clare Stagg -  original mix)
+03. Roman Messer & DJ Xquizit - Empire Of Our Own (feat Osito - original mix)
+04. Roman Messer & Ruslan Radriges - At World's End (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8E3145CCE6EB64EA992FFB9330289FE9E321A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964590   (280785) от 12.12.2015
+
+VA - Pure Bliss Vocals: Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaimo K - Love Will Never Leave (Radio Edit) (02:55)
+02. Beat Service - An Autumn Tale (Kaimo K Radio Edit) (04:21)
+03. Meredith Call - Bring Me Back Around (Radio Edit) (03:34)
+04. Sue McLaren - Never Ever After (Radio Edit) (03:36)(   Читать дальше...   )Производство: RNM BundlesЖанр: Trance, Vocal TranceПродолжительность: 01:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA498E316BDA7879D2D21A2FDB04B268B99E5458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187333   (280775) от 28.11.2017
+
+VA - Trance Cloud II (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantom - Condition Of Soul (Original Mix)
+02. Artem Kitsenko - Eternally (Original Mix)
+03. Phantom - Condition Of Soul (Radio Edit)
+04. Maxyaka - Prejudices Of (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF563BBD3348D5B8F4474ABE8536814196CD1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187476   (280771) от 28.11.2017
 
 Masters Of Balance - The Album (2012) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ Stargazers - Crystalize (The Best Of) (2019) [MP3|320 Kbps] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79239C344E66BD80ABCE93CB1DC59F833338BA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188844   (273680) от 03.12.2017
-
-VA - Anjunabeats The Yearbook (2017) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Lions & Jason Ross, Paul Meany - Higher Love (Original Mix)
-02. Above & Beyond - Balearic Balls (Original Mix)
-03. Fatum vs. Judah - Love On A Real Train (Tangerine Dream Cover Extended Mix)
-04. Andrew Bayer & ilan Bluestone - Destiny (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7242FA8EDD7D41BA2F94E0032BA09D2B273DA95F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188781   (273601) от 03.12.2017
-
-VA - Techno Club Vol.53 - (Mixed by Talla 2XLC & Markus Schulz) (2017) [MP3|~250-253 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Giuseppe Ottaviani - Lumina
-02 Cold Blue - Speed Of Life
-03 Talla 2XLC - It Makes Me Wonder (Steve Allen Remix)
-04 Peter Martijn Wijnia Pres. Majesta - Not The End (Niko Zografos Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494F70F7EE19D65815DB3BB63E6332CE05DED73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189084   (272536) от 04.12.2017
-
-VA - Practikompilation Vol. 1 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nowell - Polar Lei (Original Mix)
-02. Sunlight Project - Sunny Chords (Original Mix)
-03. Cosa - Ederra (Original Mix)
-04. Lidstroem - Slack (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AAFD2CE853EBFE6D3BEE9AF71A468689417F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

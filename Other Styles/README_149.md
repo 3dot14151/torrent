@@ -1,3 +1,136 @@
+###  Публикация: 1838559   (260727) от 23.11.2025
+
+Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Workin' Man Blues (5:17)
+ 02. Silver Wings (5:58)
+ 03. Tonight The Bottle Let Me Down (2:48)
+ 04. Today I Started Loving You Again (3:24)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3C8BB74A800A74453DA2E5FF364DCC310C330C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504462   (260580) от 02.06.2012
+
+VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 And The Heavens Shall Tremble
+2 The Eternal Conflict
+3 New Tristram
+4 Demon Hunter
+5 Black Soulstone
+6 Azmodan
+7 Witch Doctor
+8 Tamoe Highlands
+9 I Am Justice
+10 Barbarian(   Читать дальше...   )2012Жанр: OSTПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503800   (260148) от 31.05.2012
+
+No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, Art Rock, Abstract, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Revange on Seattle (06:02)
+02. Time Travel in Texas (04:50)
+03. All the Blue Changes (06:10)
+04. Pretty Genius (03:58)
+05. Lighthouse (08:15)
+06. Beaten by Love (03:57)
+07. Wherever There Is Light (05:08)
+08. Mixtaped (09:27)
+09. Things Change (08:24)Жанр: Progressive Rock, Ambient, Art Rock, Abstract, ExperimentalПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504065   (259841) от 31.05.2012
+
+Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Panflute, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day's Beginning
+02. Night Song
+03. In The Midst Of The Path
+04. The Caller
+05. Dancing Under The Moon
+06. Ghost Dance
+07. Buffalo Trail
+08. Spot Song
+09. The Last Of The Mohicans
+10. Return Jornet(   Читать дальше...   )Жанр: Native American, Panflute, Instrumental, New AgeПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743D14347AD3E09C04738C19586263EAA04D521E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503192   (259626) от 30.05.2012
 
 VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Lossless]<OST/Rock>
@@ -706,128 +839,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11EBBC4038093744405F8DA499C34916557B1AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498635   (255778) от 19.05.2012
-
-Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Set Free (04:34)
-02. Yoo Doo Right (07:13)
-03. Where Did You Sleeep Last Night (03:44)
-04. Like Roling Stone (06:31)
-05. Love Lies (07:11)
-06. Oh My Love (03:27)
-07. Voodoo Chile (03:48)
-08. Heart And Soul (04:03)
-09. Persuasion (06:34)
-10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624627   (255378) от 09.04.2023
-
-VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Vasquez - Vientos del Sur [03:04]
-02. Atahualpa - The Lonely Shepherd [04:50]
-03. Atahualpa - Pan Flute [03:12]
-04. Mato Grosso - Buffalo Trail [06:08](   Читать дальше...   )Жанр: Native American, New Age, InstrumentalПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626330   (255076) от 17.04.2023
-
-David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath Of the Universe (12:46)
-02. Parallel World (5:52)
-03. Island Of Stars (8:21)
-04. Red Sun (4:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3467A1789EE25D745276CDC89EA076EE9EFDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175676   (254762) от 26.04.2023
-
-VA - Инструментальная музыка - Лучшие мировые хиты. (7 томов) (1997) 14 CD [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R. Clayderman - The Phantom of the Opera (04:26)
-02. F. Goya - Romance De Amour (03:17)
-03. Ocarina - Moonlight Reaggae (04:34)
-04. E. Morricone - Chi Mai (05:05)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 17:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF85689DDE560C8E4AE06B25A0BD9E889C62D540
 ```
 
 https://mybot314.ru/tekegram_catalog/

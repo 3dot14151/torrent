@@ -1,3 +1,198 @@
+###  Публикация: 833914   (382328) от 23.10.2014
+
+VideoHive - Particle Impacts - 87589 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. Более 20 мест для видео и текста.
+Требуются плагины. Превью и видеоурок - в раздаче.
+
+От автора проекта: Trapcode Particular v2 required. (Optical Flares is prerendered but additional file is included for those who have the plug ins and want to modify it.)(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5839E5AAE4BEE4D0408917F62403F8E879B6B660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833880   (382323) от 23.10.2014
+
+VideoHive - Fashion Promo - 95063 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. 7 мест для видео и более 10 для текста.
+Легко настроить. Пререндеренная версия включена, для неё плагины не требуются. Футажи от Digital Juice.
+Превью и видеоурок - в раздаче.
+(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F5E1F4CD586CA84CD29F4F896FDD5BF9BBBA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833899   (382195) от 23.10.2014
+
+VideoHive - Fashion Promo 2 - 105206 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для презентации. 11 мест для видео и более 15 для текста.
+Легко настроить. Пререндеренная версия включена, для неё плагины не требуются. Футажи от Digital Juice.
+Превью, видеоурок и муз. трек - в раздаче.
+(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE87E17C17E74DE6E6231C694823BAA8D18818B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068238   (381957) от 31.10.2016
+
+VideoHive - Popular Phones Mock-up Kit - 13642951 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Popular Phones Mock-up Kit - презентационный набор из 15 видео-макетов популярных сотовых телефонов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AFCFDF1DFBB59C0573D0DDB40456281B7EC4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326920   (380506) от 22.09.2019
+
+VideoHive - News - Package - 19761693 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380506.jpg" />
+</div>
+
+
+###  Подробнее
+
+"News - Package" - пакет для оформления виртуальной новостной студии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54DF3B486EA6A025D678C89BC42733383B0FBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834303   (380387) от 24.10.2014
+
+VideoHive - Renaissance - 111382 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для начала фильма или презентации логотипа в стиле "триллер". Плагины не требуются. Превью и видеоурок - в раздаче.
+
+От автора проекта: Proudly presenting this short and cinematic video, based on typography and on an epic renaissance style. It’s a sure choice for DVD menus, impressive titles and any kind of intro you can think about.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7BE5760DEC72EE11A828B42216B2FAB6AB30C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 834222   (380087) от 24.10.2014
+
+VideoHive - AE CS3 Useful Particle project - 27660 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с разлетающимися частицами для презентации вашей компании. Плагины не требуются. Превью и файл помощи - в раздаче.
+
+От автора проекта: So Native resolution is HD 1080 (1920?1080). Video Clip runs for 26 sec. Everything is fully editable from animation to colors, text, Shapes, length, anything you want to change, you can. Project is well organized with coloured (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05A9A5C6C446606394634AE1C16AD24B6DE2076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 834108   (380076) от 24.10.2014
 
 VideoHive - Showtime (fashion) - 8628186 [AEP]
@@ -496,191 +691,6 @@ Broadcast TV Graphic Package - пакет графических элемент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AFF2E1B0DD09058CADBEC36A0555E6ADF271E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069444   (373042) от 04.11.2016
-
-Проекты - VideoHive - 2020 Mobile Phones Technology - 1758721 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373042.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Mobile Phones Technology - презентация инновационных мобильных технологий будущего.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B3401A5F0B537F3323F0B9DEC0449ACC619189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069448   (372698) от 04.11.2016
-
-Проекты - VideoHive - News Plus - Complete Broadcast Package - 13696387 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372698.jpg" />
-</div>
-
-
-###  Подробнее
-
-News Plus - Complete Broadcast Package - пакет графики для новостных и других вещательных каналов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844F1F8CD265E1CEE561920D912485C53EB02A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327625   (371873) от 26.09.2019
-
-VideoHive - Photographer Portfolio - 20571400 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photographer Portfolio - это динамичный, стильный и профессиональный проект, который превосходно подойдет для демонстрации портфолио.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4449B37D44A217300B5F3FDCA27E4EE4BA93CC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327728   (371871) от 26.09.2019
-
-VideoHive - Animated Party Flyers 2.0 - 24684641 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для различных презентаций. Отлично подойдет для каналов в Instagram, Twitter и пр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4132F14E32788FE7F6CFB57547DF5922C5C265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327559   (371866) от 26.09.2019
-
-VideoHive - 4TV Broadcast Package - 5869372 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный и профессиональный проект на основе стильной типографики, наполненный новыми идеями. Использован современный дизайн из треугольников для фона и современный минималистичный стиль для текстов. Этот уникальный и стильный дизайн может быть использован для официальных каналов, для интернет-рекламы, независимо от вашей сферы деятельности.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF877F89D55A2300598D910F1FD719CD0A467BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835497   (371052) от 28.10.2014
-
-VideoHive - Eclipse V2 - CS3 Project File - 82525 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Славное солнечное затмение из цикла "Любовь неземная". Две версии: пререндеренная и требующая плагин Red Giant Knoll Light Factory.
-Превью и файл инструкции - в раздаче.
-
-От автора проекта: Glorious solar eclipse for you to use as your opening and/or closing sequence.(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D05A5A18014DC435A2E775E57C0592BA496AF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327763   (369602) от 27.09.2019
-
-VideoHive - Information News - 24463894 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для оформления новостного канала.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F4FF8074B08839A0BC00AF9D8DCE100DD4AC05
 ```
 
 https://mybot314.ru/tekegram_catalog/

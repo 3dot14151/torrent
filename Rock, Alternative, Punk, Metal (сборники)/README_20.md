@@ -1,3 +1,178 @@
+###  Публикация: 1525724   (739036) от 22.01.2022
+
+VA - All New Rock (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaman's Harvest - Pretty People (3:12)
+002. Simple Minds - Act of Love (3:59)
+003. Skillet - Destiny (4:02)
+004. Slash, Myles Kennedy And The Conspirators - Call Off The Dogs (3:15)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 05:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC12A3C01EBCEEDB67E919FBCE0C5C2E6E0EAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526205   (738123) от 25.01.2022
+
+VA - Music For You vol. 22 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Accept - The Undertaker (05:38)
+ 002. Accept - Too Mean To Die (04:21)
+ 003. Acid Mammoth - Ivory Towers (06:18)
+ 004. ADS - Nights Wolf (05:22)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 08:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C469DC038F31DA64BAC1DCC81A7DE5808306C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787851   (736062) от 18.05.2014
+
+50 Cent & Linkin Park - Hustlers Ambition One Step Closer (2008) [MP3|256 кб/с]<Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hustlers Ambition & One Step Closer
+02.Hustlers Ambition & One Step Closer (HTR mix)
+03.HAOSC
+04.Hustlers Ambition & One Step Closer (Extreme mix)
+05.Hustlers Ambition & One Step Closer (full version)Жанр: AlternativeПродолжительность: 00:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9784AC290FDA46E16F6ECBCA08BAE6100C1FE034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527927   (735288) от 31.01.2022
+
+VA - Best Rock Ballads (2021) [MP3|320 Kbps] <Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rolling Stones - Out Of Tears (05:31)
+ 02. Queen - The Show Muts Go On (04:25)
+ 03. Dio - All The Fools Sailed Away (07:13)
+ 04. Roxette - It Must Have Been Love (04:20)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 02:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11820BDC814C97B907DC7B0E58D0A899B75140F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398736   (735254) от 27.07.2020
+
+VA - Morphine Bride (2020) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alluvion - Preemptive Ascension
+002. Daniel Gren - Opening B
+003. Stages In Faith - Out Of Turn
+004. Hawkwind - Flesh Fondue(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 13:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039C3E06CBC7AD0FC50A0AFCE7EE5A88D85D28D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528750   (733988) от 03.02.2022
+
+VA - Feel-Good Classic Rock (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey - Don't Stop Believin'
+02. Van Halen - Jump (2015 Remaster)
+03. Black Sabbath - Paranoid (2012 - Remaster)
+04. Def Leppard - Pour Some Sugar On Me(   Читать дальше...   )Жанр: RockПродолжительность: 06:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D435671E62F2CECBA1C7531C6BB77E3D57EB7473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528716   (733968) от 03.02.2022
 
 VA - 100 Greatest '70s Rock Songs (2022) [MP3|320 Kbps] <Rock>
@@ -574,180 +749,6 @@ VA - Vynil Rock Classic Mania (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91497423C5EC5D634127C5A5A105C2408BE2EBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531851   (718549) от 17.02.2022
-
-VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booker T. & The MG's - Green Onions (02:55)
-02. Pink Floyd - Alan's Psychedelic Breakfast (2011 Remastered Version) (13:00)
-03. The Spencer Davis Group - Gimme Some Lovin' (Single Mix) (02:58)
-04. Al Kooper - Stop (04:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4026176BA57AD15B46996780C3BEF91166FC0310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024406   (718144) от 08.06.2016
-
-VA - VA - Alternative Spring by Evaluator Pt.2 (2016) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everlyn - Second Best
-02. Synthetic - Hollow
-03. Broach - Monster In Your Mind
-04. Fear Of Domination  - Primordial(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E684F8F93DE9DC91593AC62EFADAE5EB2174AE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218969   (717514) от 12.04.2018
-
-VA - Sacred Killer: Metal Compilation (2018) [MP3|320 Kbps] <Black, Death, Brutal Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ellende - Am Sterbebett Der Zeit
-002. ANA - Ana
-003. Burning Shadows - Day of Darkness
-004. Soijl - Death Do Us Part(   Читать дальше...   )Жанр: Black, Death, Brutal MetalПродолжительность: 12:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01B50D06A6D02687549194D34BC7280F7B246FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285858   (716565) от 28.02.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 8) (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тінь Сонця feat. Христина Панасюк - Останні Ночі Без Тебе (4:34)
-02. Morphine Suffering - Я Не Вірю (3:55)
-03. Pins - Діти, Що Біжать До Нас (3:56)
-04. Brutto - Середні Віки (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC596F988AE23B0672122075F5CC83F1622127FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219200   (715733) от 13.04.2018
-
-VA - Torment Inside (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715733.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phobia - Torment Inside
-002. Rhapsody Of Fire - Rain Of A Thousand Flames
-003. Burning Witches - Save Me (Acoustic Version) (Bonus Track)
-004. Masterplan - Take Me Home(   Читать дальше...   )Жанр: Heavy, Power, Death MetallПродолжительность: 11:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC35C2A34CFE408B858D947711E1CE474A7FC7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532265   (714744) от 19.02.2022
-
-VA - The Digital Hourglass (2022) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционно в эти числа года западная музыкальная сфера выпускает большое количество новых альбомов. Не будут исключением из этого правила и рок-музыканты, работы которых заслуживающие внимания представлены в музыкальном тематическом сборнике"The Digital Hourglass".001. Jxdn - Pills
-002. Nephila - Alla Galaxers Centrum
-003. Animal Facts - Monkeys
-004. The Lounge Society - Cain's Heresy(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E1EA9B9F2AA268EB869BEA3B8E6603678EE80F
 ```
 
 https://mybot314.ru/tekegram_catalog/

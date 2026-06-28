@@ -1,3 +1,32 @@
+###  Публикация: 712966   (403176) от 19.10.2013
+
+Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell (Part 2) 1989
+02. King Of The Beach 2000
+03. Auberge 1991
+04. Josephine 1985(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169272   (403061) от 27.09.2017
 
 VA - Big Box Store Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
@@ -725,35 +754,6 @@ The Heavy Horses - Murder Ballads & Other Love Songs (2012) [MP3|320 Kbps] <Coun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8179856F11F09565BB3F6C0E775A04B9F7004B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952421   (355860) от 01.11.2015
-
-VA - In the Name of the Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Malley - Feel All Right Feel All Wrong (4:09)
-02. Shay Dillon - Holdin' On (4:01)
-03. Riff Raff-N-Blue - Can't Stop (5:38)
-04. Robert Farrell - Gtr (6:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F037161CA1F0C0D6751B9BE0490C7ABDBAEC4A10
 ```
 
 https://mybot314.ru/tekegram_catalog/

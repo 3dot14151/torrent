@@ -1,3 +1,160 @@
+###  Публикация: 828185   (438142) от 07.10.2014
+
+DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Allex Okuhama - Missing You (Original Mix)
+2. Eurythmics - Sweet Dreams (Tribeat Remix)
+3. Katerine - Ayo Technology (Milen & Vasco C Remix)
+4. ATB - The Summer (Ice & Dmitriy Rs Remix)(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C341098C56E80B3467B06D2FC25233A559B137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554351   (437295) от 01.10.2012
+
+VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+002. Progressiver - Searching For The Truth (Original Mix)
+003. Reminder - On The Beach (Stoneface & Terminal Remix)
+004. Sean Tyas & Horny Sanchez - Rebox (Original Mix)
+005. Space RockerZ pres. Pulse & Sphere - Rush Hour (Original Mix)
+006. Susana Rex Mundi - All Time Low (Original Mix)
+007. The Blizzard & Yuri Kane feat. Relyk - Everything About You (Original Mix)
+008. Richard Durand - Stand Again (Original Mix)
+009. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
+010. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Maison & Dragen Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751B01B5A246EE8DBF6BBC50039946520270CC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063194   (437262) от 15.10.2016
+
+VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <House, EDM, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Groove Armada - Superstylin' (Riva Starr Edit)
+002. Kolsch - Grey (Original Mix)
+003. Leandro Da Silva - I Love House Music (Club Mix)
+004. Raumakustik - Dem A Pree (Patrick Topping Remix)(   Читать дальше...   )Жанр: House, EDM, Deep HouseПродолжительность: 10:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C582C599D15E78884DD1B96A96A163086F7EE615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164997   (437239) от 11.09.2017
+
+VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold T - Summertime Sadness
+02. E-motive - Street Waves
+03. Gt 55 - Red Color (Gray Clouds Mix)
+04. Miper - Hide(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90A90E3780D7231BC76AF9DB55CE99615F96AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554978   (436551) от 01.10.2012
+
+VA - Sexy Trance #47 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nic Chagall & Duderstadt feat. Relyk - Alone With You
+002. Luke Bond feat. Emel - Amaze
+003. Lunar Motion - Aozora (Benjani Remix)
+004. Orjan Nilsen - Atchoo! (Original Mix)
+005. N&R Project - Before Daybreak (Original Mix)
+006. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+007. Maor Levi feat. Ashley Tomberlin - Chasing Love (Maor Levi Club mix)
+008. Leonid Gnip - City On Clouds (Original Mix)
+009. Matt Bowdidge - Crossing North (Original Mix)
+010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8131E71E355A98D8B0E8AF3D26BBEEEAF413EBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945330   (435993) от 09.10.2015
 
 VA - Trance Desire Volume 56 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -612,148 +769,6 @@ VA - Electro Жесть v.33 (2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB7D41DEE4634C27F63DA987CBB4A8E803EC1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410886   (431235) от 23.09.2020
-
-VA - Ремиксы от MGDC FM Vol 7 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Я забираю твою подругу (Eddie G & Sasha First Radio Edit) (2:28)
-02. Barinova - Самый-самый (Eddie G Radio Edit) (3:10)
-03. Dabro - Юность (Lavrushkin & Sasha First Radio Edit) (3:27)
-04. DAVA feat Seryoga - Чёрный Бумер (Eddie G & Sasha First Radio Remix) (2:51)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F938EDDC2437948263D73C5E781459E581CFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064094   (430365) от 18.10.2016
-
-VA - Late Night Worries: Luxury Lounge and Chill Out Series Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airily - Harmonize
-02. Mark Oakland - No One Else Will Do
-03. Van - Waiting For A Taxi
-04. Newton - Media France(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A404F5D10EA3245F4BB9C30C0A8BCF0EAD30770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063855   (430363) от 18.10.2016
-
-VA - Beatport Techno September (2016) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of Frequency - Gate (Oscar Mulero Remix)Жанр: TechnoПродолжительность: 05:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631913E3613090E1EB94B067C591776F92F4B44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063839   (430357) от 18.10.2016
-
-VA - Progressive Trap House: October Mix (2016) [MP3|320 Kbps] <Progressive House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simon Sim's & Tymers - I Feel You (Extended Mix) (feat. Luny)
-002. The Aston Shuffle - Make A Wrong Thing Right (Dom Dolla Remix)
-003. Afrojack & Fais - Used To Have It All
-004. Ibiza Bitches - Be Happy (Radio Version)(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3988CE8FB580F07F62E5E33F804EC735EB523996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165768   (430295) от 14.09.2017
-
-VA - Music for Your Car Vol.6 (2017) [MP3|256-320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Decibels – The Road
-02. Kygo & Selena Gomez – It Ain’t Me
-03. Tujamo – Make U Love Me (Diplate & Hang Mos Radio mix)
-04. DLMT & Ellis – How Does It Feel (ft. AWR)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D60D79D40FEE20A54E77D7DA39D02CC63E0C906
 ```
 
 https://mybot314.ru/tekegram_catalog/

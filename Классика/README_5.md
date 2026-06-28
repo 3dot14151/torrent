@@ -1,3 +1,32 @@
+###  Публикация: 1362230   (948117) от 24.02.2020
+
+Craig Armstrong - Sun On You (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun On You (1:34)
+02. If You Should Fall (3:34)
+03. Restart (3:16)
+04. Marelle (3:20)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8B27EB17C740C54604133438DB96B7E50008F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090096   (947217) от 06.01.2017
 
 Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu [FLAC|Lossless|image + .cue] <Вокал>
@@ -719,35 +748,6 @@ CD1Жанр: ClassicalПродолжительность: 01:12:32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF90990D559A3EE313020A2067E051931C258190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368684   (908972) от 20.03.2020
-
-Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano, Orchestra>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamland (2:41)
- 02. Forever Song (3:28)
- 03. Wishing (2:09)
- 04. Heartbeats (3:57)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Piano, OrchestraПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44AAEE4B20C2A7F650EB48F2A819B8418F725DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

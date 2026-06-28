@@ -1,3 +1,90 @@
+###  Публикация: 1234227   (572491) от 04.07.2018
+
+Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar
+02. Taiyo
+03. Brassy Sunrise
+04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554891   (570249) от 03.06.2022
+
+Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Enigmatic, Pop Rock, Synth Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light the Stars [00:02:59]
+02. Return to Innocence [00:03:07]
+03. I Will Never Let You Go [00:03:18]
+04. Reach Your Heart [00:02:58](   Читать дальше...   )Жанр: Enigmatic, Pop Rock, Synth PopПродолжительность: 8 CD, 02:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554691   (568748) от 04.06.2022
+
+Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Summer In Your Heart (radio version)
+02 Summer In Your Heart (rock house - radio mix)
+03 Summer In Your Heart (oceanal blue house mix)
+04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555559   (568733) от 04.06.2022
 
 Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
@@ -658,93 +745,6 @@ Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C929554BA44F798B7B1ACC7EE938408DCA7B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156310   (527646) от 07.08.2017
-
-Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im Gleichgewicht von Mond und Erde (06:15)
-02. Surrounded By Love (06:48)
-03. Sailing Boat (06:50)
-04. Darjeeling (First Flush) (06:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24719EB7DFE6CA77F3803D25EC2BDB945E2E4D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053229   (526077) от 17.09.2016
-
-Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America the Beautiful [00:02:45]
-02. Battle Hymn of the Republic [00:02:22]
-03. When Johnny Comes Marching Home [00:01:59]
-04. My Country 'Tis of Thee [00:02:11](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954553CF6FF7A11247668C604B5D445B2AD92F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053009   (525966) от 17.09.2016
-
-Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight From The City (06:31)
-02. A Song For Europa (02:34)
-03. The Drowned World (02:21)
-04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

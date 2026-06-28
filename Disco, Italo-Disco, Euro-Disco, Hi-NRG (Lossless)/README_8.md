@@ -1,3 +1,119 @@
+###  Публикация: 1388317   (786867) от 05.06.2020
+
+VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps - That's Where the Happy People Go (7:54)
+02. Kc & The Sunshine Band - Get Down Tonight (5:17)
+03. The Spinners - Are You Ready for Love (Single Version) (3:44)
+04. Ecstasy, Passion & Pain - Touch and Go (7'' Version) (4:19)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EA76BC9F2A9D29A5ABB44974870B3789673E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388387   (786843) от 05.06.2020
+
+Joy - Party Megamix (20 Hits Non-Stop) (2015) Dance Version, RM. [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm in Love (Dance Version) (3:56)
+ 02. Magic Eyes (Dance Version) (2:40)
+ 03. Fire in the Night (Dance Version) (3:00)
+ 04. Countdown of Love (Dance Version) (3:16)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D16189231F82971EDB5AC48BCA28E87620414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204920   (784057) от 08.02.2018
+
+Systems In Blue - Out Of The Blue (2008) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr.No (3:32)
+02. Heaven & Hell (3:37)
+03. Back To Life (3:28)
+04. Gambler (3:57)(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCB8A24295C9340FE3963839AEFFB1B24A8CCCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205425   (783472) от 10.02.2018
+
+Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkytown (07:50)
+02. All Night Dancing (08:21)
+03. Rock It (05:42)
+04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206635   (782100) от 14.02.2018
 
 Systems In Blue - Melange Bleu (The 3rd Album) (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
@@ -623,119 +739,6 @@ Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DB3138379D8F5CE6CDE40825290FFBA250FEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529168   (733087) от 05.02.2022
-
-Savage - Love And Rain (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every second of my life (Ouverture) 0:41
-02. Don't say you leave me 3:02
-03. I love you 3:17
-04. Italodisco 3:07(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F98883B76FD7B53C7E4342ECDD217A62B2C764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323333   (729355) от 18.04.2011
-
-V.A. - The Best Projects Of Axel Breitung (ex. Silent Circle) (2004) [FLAC|Lossless]<Pop, Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, EurodiscoПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399908   (725081) от 02.08.2020
-
-Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Fantasy (3:59)
-02. Dance With Me (4:51)
-03. Fools Cry (4:07)
-04. Calling Out For Love (4:02)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C96F3B8493C782A2D7E4B06EDF3FFE7984D738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399911   (725072) от 02.08.2020
-
-Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Tonight (Extended Version) (4:37)
-02. Electric Heartbeat (6:36)
-03. Computer Girl (5:34)
-04. Disco Delirio (5:25)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

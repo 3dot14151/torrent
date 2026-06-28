@@ -1,3 +1,177 @@
+###  Публикация: 1500357   (234756) от 13.10.2021
+
+VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Deep Sunday Bliss (4:42)
+02. Marc Hartman - Like The Sunset (5:17)
+03. Maurid - Amazonia Sunrise (5:37)
+04. Matthew Daniel, Linda Muriel - Soul Personified (4:34)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541202   (234755) от 03.04.2022
+
+Caro Emerald - The Shocking Miss Emerald (Acoustic Sessions) (2013) [AAC|~301 Kbps] <Jazz, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Belong To You (Acoustic) (2:30)
+02. Coming Back As A Man (Acoustic) (3:40)
+03. Completely (Acoustic) (2:27)
+04. Paris (Acoustic) (4:05)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBCBE5BE88CFE3EAC4506D7CAFD0C14E5FEA8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498521   (234746) от 13.10.2021
+
+VA - Fireplace Chill, Vol. 5 (2020) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jens Buchert - Dreamgirl (Original Mix) (4:01)
+02. Counterweight - Close to You (Original Mix) (4:03)
+03. Sandrah - Andas på nytt (Original Mix) (3:40)
+04. Five Seasons - Le Soleil (Original Mix) (4:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EB42F4B86108771ACF6788A48528D797E2215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541198   (234738) от 03.04.2022
+
+Caro Emerald - Deleted Scenes From the Cutting Room Floor (The Remixes) (2012) [AAC|~322 Kbps] <Jazz, Electro, Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back It Up (Kraak & Smaak Remix) (5:03)
+02. Back It Up (Herr Styler Remix) (4:29)
+03. Back It Up (Terry Toner & David Labeij Remix) (6:47)
+04. Back It Up (Hitmeister D Remix) (4:30)(   Читать дальше...   )Жанр: Jazz, Electro, SwingПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1017519AEA65D351C928CDEBFAD838222A5ABC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541197   (234714) от 03.04.2022
+
+Caro Emerald - Deleted Scenes From the Cutting Room Floor (Deluxe Edition) (2011) [AAC|~300 Kbps] <Hip Hop, Jazz, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Man (3:51)
+02. Just One Dance (4:01)
+03. Riviera Life (3:29)
+04. Back It Up (3:53)(   Читать дальше...   )Жанр: Hip Hop, Jazz, PopПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F68058881FC3BAD3398B64983A30E1E5D296D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541204   (234690) от 03.04.2022
+
+Caro Emerald - Deleted Scenes From The Cutting Room Floor (Acoustic Sessions) (2016) [AAC|~313 Kbps] <Jazz, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riviera Life (Acoustic version) (2:54)
+02. Dr. Wanna Do (Acoustic version) (3:13)
+03. A Night Like This (Acoustic version) (3:42)
+04. Just One Dance (Acoustic version) (3:40)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC575C734465473C89D35C3E136E5F256F2A6F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541209   (234679) от 03.04.2022
 
 VA - Erotic Lounge (2015) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
@@ -571,180 +745,6 @@ VA - Lounge Remixes, Vol. 2 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3527D9AB49898497E7C04C7465AA1B91508A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495318   (234146) от 13.10.2021
-
-Ночные Снайперы - 1993, vol.1 (2021) [AAC|~316 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. иду одна (2:22)
-02. гости мои (2:32)
-03. лето (2:36)
-04. по твоей земле (3:25)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73D16AF6F8B534B2C5381239E7E1E5E2283CE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498718   (234134) от 13.10.2021
-
-VA - Vanlife Chill, Vol. 7 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tapelapse - San Andreas (2:46)
-02. Bodean - Innocent Morning (4:50)
-03. Gigi El Amoroso - The Telephone Call (Original Mix) (3:22)
-04. Miper, Klangschwester - Last Kiss (Original Mix) (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93D76F1094648CB1029A230E1650C25B3084E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496986   (234125) от 13.10.2021
-
-VA - The Best Lounge and Chillout Covers (2021) [AAC|~316 Kbps] <Lounge, Chillout, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarpie And The Candymen - Are You Gonna Go My Way (3:24)
-02. P. A. Jeron, Nadia Straccia - Money's Too Tight (To Mention) (5:20)
-03. Papik, Sarah Jane Morris - Hello It's Me (3:39)
-04. Lo Greco Bros, Mariva Cory - Why Can't We Live Together (4:50)(   Читать дальше...   )Жанр: Lounge, Chillout, JazzПродолжительность: 01:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1183C47DC9A899DBA4BCE62B428226B6E7993DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496562   (234116) от 13.10.2021
-
-VA - Smooth Jazz n Chill 5 (2020) [AAC|~347 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kayla Waters - Full Bloom (4:10)
-02. Nick Colionne - Let's Get Serious (4:07)
-03. Catie Waters - Moonlight (4:18)
-04. Cindy Bradley - Stockholm Summer (4:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B926C5D80A031915F9850D2435FCC4100347BA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496558   (234104) от 13.10.2021
-
-VA - Smooth Jazz n Chill 3 (2018) [AAC|~310 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Bowman - Soul Dream (5:03)
-02. Cindy Bradley - You Don't Know What Love Is (7:00)
-03. Oli Silk - Seasons Change (4:02)
-04. Julian Vaughn - All to Myself (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4FA69C3DE9EA5D66E4F6F6305DD16515808458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501683   (234098) от 13.10.2021
-
-VA - Electronic Clouds, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Mike - Sai (Original Mix) (2:25)
-02. Seven Heaven - I'm Here (Original Mix) (3:33)
-03. Red Sea Grooves - Freezone (Original Mix) (4:22)
-04. Blue Castle - Days in Love (Original Mix) (3:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCF47E0FC5766A4D6BAA480B871A8813E5F64E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

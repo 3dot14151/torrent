@@ -1,3 +1,36 @@
+###  Публикация: 514686   (656946) от 25.06.2012
+
+Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2CD [APE|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Quartet #3 In E Minor, Op. 87 - 1. Adagio; Allegro [13:17]
+02. Double Quartet #3 In E Minor, Op. 87 - 2. Andante Con Variazioni [08:38]
+03. Double Quartet #3 In E Minor, Op. 87 - 3. Scherzo: Allegro [06:59]
+04. Double Quartet #3 In E Minor, Op. 87 - 4. Finale: Allegro Molto [07:15]
+05. Double Quartet #4 In G Minor, Op. 136 - 1. Allegro [07:23]
+06. Double Quartet #4 In G Minor, Op. 136 - 2. Larghetto [05:34]
+07. Double Quartet #4 In G Minor, Op. 136 - 3. Scherzo: Moderato; Trio [06:47]
+08. Double Quartet #4 In G Minor, Op. 136 - 4. Finale: Vivace [05:59]Жанр: ClassicalФормат: 2CDПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C773C88EBC291296164289326B653E2DFF977CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514832   (656937) от 25.06.2012
 
 Franz Ignaz Beck - Symphonies: Nicolas Ward & Northern Chamber Orchestra (1996) [FLAC|Lossless]<Classical, Symphony>
@@ -747,35 +780,6 @@ Pieter Wispelwey, Florilegium - Vivaldi: Vivaldi Concerti (1997) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC3E6F032A24FC0613798504551BD8B7683ED3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033814   (635818) от 12.07.2016
-
-Gustav Leonhardt, Alan Curtis, Helmut Hucke, Collegium Aureum - C.P.E. Bach: Concerti Wq 46, 23 & 165 (1990) [FLAC|Lossless|tracks] <Classical, Concertos>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Double Concerto for 2 harpsichords, 2 horns, strings & continuo
-in F major, H. 408, Wq. 46
-01.  Concerto doppio F major H410 (Wq46) - Allegro    09:57
-02.  Concerto F major H410 (Wq46) - Largo    07:22(   Читать дальше...   )Жанр: Classical, ConcertosПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6532017673E436B4EF36ED1B77E1DFF29B08CE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

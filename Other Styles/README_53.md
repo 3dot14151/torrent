@@ -1,3 +1,119 @@
+###  Публикация: 1014351   (776494) от 07.05.2016
+
+Orbis Mundi - Adia (2000) [FLAC|Lossless|tracks] <New Age, Folk Rock, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Violin    03:29
+02. Olushegun    03:43
+03. Orbis Mundi    03:54
+04. Theme from Orbis Mundi    03:32(   Читать дальше...   )Жанр: New Age, Folk Rock, Modern ClassicalПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37661A547F453042E57E1395BD7A02B304CEE2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014389   (776486) от 07.05.2016
+
+Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me    03:38
+02. Silver Lights    04:42
+03. Philadelphia    04:34
+04. Reflection Of The Soul    03:41(   Читать дальше...   )Жанр: New Age, Downtempo, Chill OutПродолжительность: 00:01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023EAF47CA71B3DDD4A5A82F8F426F35ADF22367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014354   (776481) от 07.05.2016
+
+Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If (2:52)
+02. Song From Secret Garden (2:59)
+03. Make It With You (3:21)
+04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212057   (776430) от 10.03.2018
+
+Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пробуждения Жабъа (2:02)
+02. Жабъ и Крот (2:39)
+03. На Битву (3:55)
+04. Уж Следит За Хомяком (2:57)(   Читать дальше...   )Жанр: folk,metal,rockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501FCE0AE24F73DD6691F51DC5E4AE2635A8AA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014420   (776414) от 07.05.2016
 
 Cyndi Lauper - Detour (2016) [FLAC|Lossless|WEB-DL|tracks] <Country, Country Blues, Folk>
@@ -627,122 +743,6 @@ David Wright & Carys - Prophecy (2017) [MP3|320 Kbps] <Electronic, Ambient, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D744E7F1FAF8D367331B897C3E40C9309DA0BF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124926   (773395) от 13.04.2017
-
-Kenio Fuke - Relaxing Melodies of Nature (2011) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for Kiara (4:41)
- 02. Summer's Love (4:59)
- 03. Espheras (4:29)
- 04. Infinite Love (4:50)(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C338FA7B906E7A434A63C15EF93B529C084779E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124843   (773390) от 13.04.2017
-
-Ewan Dobson - 12 String Guitar (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic guitar, Fingerstyle, Folk>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Potion (3:08)
-02. Disk Read Error (4:21)
-03. Dancing With Her (3:17)
-04. Doctor Pepper Jam (3:50)(   Читать дальше...   )Жанр: Acoustic guitar, Fingerstyle, FolkПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8F764B1727710D99652C8EF3D7C33D6C7E0F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213024   (773224) от 15.03.2018
-
-Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mantra (5:25)
-2. Beautiful Solitute (3:24)
-3. Tokyo Morning (5:19)
-4. Flight Over India (4:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213013   (773092) от 15.03.2018
-
-Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soon Its Gonna Rain (from The Fantasticks)
-02. Dream, Dream, Dream
-03. Moonlight in Vermont
-04. Moon River (From Breakfast at Tiffanys)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

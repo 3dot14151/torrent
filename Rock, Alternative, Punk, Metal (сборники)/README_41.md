@@ -1,3 +1,177 @@
+###  Публикация: 1641841   (210443) от 26.06.2023
+
+VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Murphy - It Won't Stop Raining
+02. Deb Ryder - Bad Bad Dream
+03. Blue Touch - Trouble
+04. Connie Lush - Crying Won't Help You(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F03DB2E33644A9B4FA77E2E1A3CDEDE334B4D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604562   (210056) от 14.01.2023
+
+VA - 90s Ballads (2023) [MP3|320 Kbps] <Alternative, Ballad, Soft Rock, Vocal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Ordinary World
+02. Seal - Kiss from a Rose
+03. a-ha - Crying in the Rain
+04. En Vogue - Giving Him Something He Can Feel(   Читать дальше...   )Жанр: Alternative, Ballad, Soft Rock, VocalПродолжительность: 01:56:04 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FBAD48B502460965D2D98D380F800C62B1DCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603972   (209794) от 17.01.2023
+
+VA - We Will Rock You (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209794.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lou Reed - I'm Waiting For The Man [04:44]
+002. The Beatles - Happiness Is A Warm Gun [02:44]
+003. Led Zeppelin - Immigrant Song [02:26]
+004. Queen - We Will Rock You [02:02](   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AA515E374E1BB33AC1441D453AEDA8CAF38955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645907   (209168) от 12.07.2023
+
+Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Eighteen (Guitar Riff) [00:28]
+02. Layla (Guitar Riff) [00:27]
+03. Frankenstein (Guitar Riff) [00:51]
+04. American Woman (Guitar Riff) [00:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7B5D91BD53C30B30CC7C2118219B93FFE7D314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575465   (208282) от 12.09.2022
+
+Dire Straits & Mark Knopfler - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень атмосферный, спокойный и приятный рок. Альбомами слушать Dire Straits трудно, так как много тоски и тягомотины. Поэтому целостность альбомов не стал сохранять и выбрал самые лучшие песни. В сборник так же вошло сольное творчество Mark Knopfler. Весь материал взят с ремастированных американских CD изданий. В них звук самый грамотный. Приятного прослушивания. (   Читать дальше...   )01. Dire Straits - So Far Away
+02. Dire Straits - Money For Nothing
+03. Dire Straits - Walk Of Life
+04. Dire Straits - Your Latest Trick(   Читать дальше...   )Жанр: RockПродолжительность: 03:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD9DED6C23340A79CA841DA61E7E36759831466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650842   (207225) от 03.08.2023
+
+VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlanta Rhythm Section - So Into You (6:55)
+02. Al Stewart - Time Passages (6:43)
+03. Fleetwood Mac - Everywhere - 2017 Remaster (5:49)
+04. TOTO - Rosanna (5:31)(   Читать дальше...   )Жанр: RockПродолжительность: 04:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E208381CC1DE2951280044BA2F778CD50CED97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579678   (207117) от 28.09.2022
 
 VA - Русский Рок 3 (2022) [MP3|320 Kbps] <Rock>
@@ -568,180 +742,6 @@ VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7430C186182E820B7AA5266F0653166054671738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651408   (194719) от 06.08.2023
-
-ДДТ (DDT) - This Is ДДТ (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это всё (7:54)
-02. Метель (7:32)
-03. Пасха (6:02)
-04. Расстреляли рассветами (5:53)(   Читать дальше...   )Жанр: RockПродолжительность: 03:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C184CF5D2E8F7E3B50668239090D1CCDB4EB36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414928   (193465) от 30.08.2023
-
-Deep Purple - Machine Head (1972) Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Highway Star (06:07)
-02-Maybe I'm A Leo (04:53)
-03-Pictures Of Home (05:05)
-04-Never Before (04:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755B919261509F40BFF06B108B6159983156CEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586951   (193228) от 29.10.2022
-
-VA - Rock & Blues Part 9 (2022) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragan Krle Jovanovic - Under My Bed
-02. Sonny Black and the Dukes - Blues Walkin' By My Side
-03. Jovan Lole Savic -  I Have This Life
-04. Daniel Castro - I'll Play the Blues for You(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AED8C347EF59387E7C16B8218241C88F6283411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655840   (193000) от 02.09.2023
-
-VA - Death And The Labyrinth (folk metal) (2023) 2CD [MP3|320 Kbps] <Metal, Pagan Metal, Folk Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amon Amarth - Guardians Of Asgaard [04:23]
-02. Obscurity - V Legion [04:48]
-03. Wulfgar - Circle of Runes [04:10]
-04. Eluveitie - Luxtos [03:55](   Читать дальше...   )Жанр: Metal, Pagan Metal, Folk MetalПродолжительность: 15:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C453D5854BF75D2FE77B67AC5952C99AF1D6015F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587421   (192362) от 01.11.2022
-
-Colin James - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Carried Away
-02. I Will Remain
-03. Find My Home
-04. You Were Never Mine(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D9962B2F784828301606A59C5EF433CDBD0609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370643   (192021) от 05.09.2023
-
-Freddie Mercury - 100% Freddie Mercury (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddie Mercury - The Great Pretender
-02. Freddie Mercury; Montserrat Caballe - How Can I Go On
-03. Freddie Mercury - I Was Born to Love You
-04. Freddie Mercury - Living On My Own (No More Brothers Radio Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 02:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3E339B0C7B6D65C5DCC11455E129008111FE99
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 19013   (1027979) от 04.03.2021
+
+The Best of Paul Mauriat 10 CD
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027979.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01 BEGIN THE BEGUINE '90
+02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452519   (1027705) от 06.03.2021
+
+Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, Nordic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synkverv (4:51)
+02. Kvitravn (6:18)
+03. Skugge (6:38)
+04. Grá (3:32)(   Читать дальше...   )Производство: Sony Music, Columbia, Fimbulljóð Productions – 19439724702Жанр: Folk, Ambient, Nordic Folk, Dark FolkПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB676E7919376F6373E0F53F6FB8EA3FF017919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452789   (1027363) от 08.03.2021
+
+Romantic Piano Music Masters - Спокойное фортепиано: Инструментальные баллады, Женский день (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спокойное фортепиано (2:35)
+02. Как ты (2:41)
+03. Жажда (2:51)
+04. Вальс ветра (2:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453672   (1026734) от 12.03.2021
 
 Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossless|tracks] <Score>
@@ -661,93 +748,6 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459161   (1023305) от 01.04.2021
-
-Анастасия Бардина - GRAN-d SURPRISE (2006) [MP3|320 Kbps] <Guitar, Acoustic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечера в парках Парижа (5:29)
-02. Фанданго (6:26)
-03. Соната для скрипки-соло №1 (6:47)
-04. Вальс 'Мечта' (2:05)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459157   (1023284) от 01.04.2021
-
-Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia (2:47)
-02. Solamente una vez (3:07)
-03. La Playa (3:58)
-04. Quando, quando, quando (2:33)(   Читать дальше...   )Жанр: Flamenco, Easy ListeningПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461373   (1021789) от 10.04.2021
-
-Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving-Kindness (Metta) (feat. Chloe Pourmorady)
-02. Compassion (Karuna) (feat. Estrella Morente)
-03. Vicarious Joy (Mudita) (feat. Deva Premal)
-04. Equanimity (Upekkha) (feat. Uyanga Bold)Жанр: World, MeditativeПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
 ```
 
 https://mybot314.ru/tekegram_catalog/

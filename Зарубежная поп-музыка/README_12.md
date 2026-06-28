@@ -1,3 +1,32 @@
+###  Публикация: 875609   (855842) от 07.03.2015
+
+VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
+01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
+02. Sia - Elactic Heart  (4:17)
+03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7ED97EC01C48CF9863ABE24A2AE8D91F6B56C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000935   (855638) от 27.03.2016
 
 Awa Ly - Five and a Feather (2016) [MP3|256 кб/с] <Pop, R&B, Soul>
@@ -720,35 +749,6 @@ Le Voir - Dualities (2016) [MP3|320 кб/с] <80's Retro Pop, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49247427E8ABDED75FA4AC57F630EC29F9ED50FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003995   (841794) от 04.04.2016
-
-Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bette Davis Eyes (03:43)
-02. Cry Like A Baby (03:05)
-03. Don't Fall In Love With A Dreamer (03:41)
-04. It Hurts So Bad (03:00)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD8CDD559816729D95F505F6D732B2A2A35D343
 ```
 
 https://mybot314.ru/tekegram_catalog/

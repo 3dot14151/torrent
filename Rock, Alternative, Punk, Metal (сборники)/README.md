@@ -1,4 +1,147 @@
 https://t.me/izofen
+###  Публикация: 1878148   (1074653) от 
+
+VA - Сказочный том III (2008-2026) [MP3|192 Kbps] <Folk rock, Post punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074653.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Спектор Газа - 12 Километров Ада
+002. MystTerra - Minha Jangada
+003. Автобайкер - А Море Пело Нам
+004. Бунт в Тишине - Адская Машина(   Читать дальше...   )Жанр: Folk rock, Post punkПродолжительность: 06:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B1F27450EEC25B45DBE39F2E132CAEB4EA9564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878157   (1074652) от 
+
+VA - Сказочный том IV (2026) [MP3|192 Kbps] <Folk rock, Post punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GroTTesque & Mama Russia  - Дирижабль Левиафан
+02. TATITERA - Мы Теперь Уходим Понемногу
+03. Мизантроп - Тени Танцуют
+04. Ferriza - Горыныч(   Читать дальше...   )Жанр: Folk rock, Post punkПродолжительность: 06:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B02F00A33BF43F7B0B5DB1CB73D36FD0BDDE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877941   (1074224) от 23.06.2026
+
+VA - Сборняк ништяк vol. 1 (2026) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BRUTALLIZM - К-700 (04:40)
+ 002. Nottoys - Ливонский орден идет (05:31)
+ 003. Alex Crokx & 9 часов до рассвета - Точка невозврата (03:35)
+ 004. Багратион - Мюнхенский сговор (05:07)(   Читать дальше...   )Жанр: MetalПродолжительность: 03:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE01A02C41DA654DF9B7A1DC5A733C31442B0983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877547   (1074104) от 21.06.2026
+
+VA - REDISCOVER 2010s: Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074104.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Breaking Benjamin - Angels Fall (3:48)
+002. Theory Of A Deadman - Rx (Medicate)Жанр: RockПродолжительность: 08:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4119464EF0311683CEC96F917E476EEACC6C12AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877360   (1073978) от 
+
+VA - Украинский рок Part Four (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073978.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Hardkiss - Журавлі (02:49)
+ 002. Riffmaster - Тихо прийшов, тихо пішов (05:11)
+ 003. Тік - Без тебе (03:39)
+ 004. Фіолет - Кохана (03:43)(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC27541D707409F097DFC9B6EA5C2E06D0CAE6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876604   (1073372) от 16.06.2026
 
 Scarlette Laine - Favorites Collection (2026) [MP3|320 Kbps] <Assorted Ballads, Soul Blues, Emotional Blues>
@@ -601,151 +744,6 @@ Daniele Gazzarin - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Country, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B7EFD00C017B5D2F33477C27A8268141290F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864671   (1065099) от 
-
-Sabaton - REDISCOVER Sabaton (2026) [MP3|320 Kbps] <Power Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Templars (4:54)
-02. The Unkillable Soldier (4:11)
-03. Father (4:38)
-04. Steel Commanders (3:51)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 03:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8826C3210F8557A2F2ABE0623B16BAD887933E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864783   (1065074) от 
-
-VA - Украинский рок (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BaWN - Хороший громадянин (02:46)
- 02. Electrobirds - Вітер, неси (05:17)
- 03. Epolets - Уревнощах (02:55)
- 04. Ikigai - Життя так сильно било (03:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB05EECE4B5667DDB4656003E6E652A40774579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865004   (1064869) от 13.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Without Miracles
-02 - The Last Bite
-03 - The Two Halves
-04 - Whiskey and Broken Wings(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EA7FFBFB5D92A36CFBCE6457FEC7BE2AC5BC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864588   (1064794) от 
-
-Daniele Gazzarin - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Don’t Have Your Faith
-02 - All This Will Be Heaven, All This Will Be Hell
-03 - You Are My Sky
-04 - Ice Without God(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA6B87DA253B52E1DE7CFFC8E566B3AF5252A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864551   (1064792) от 
-
-Clawfinger - Compilation (1993-2026) [MP3|320 Kbps] <Nu metal, Alternative metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Greatest Fears ❂ Deafer Dumber Blinder 2014
-02. Blame ❂ Zeros & Heroes 2003
-03. Confrontation ❂ A Whole Lot Of Nothing 2001
-04. Catch Me ❂ Deaf Dumb Blind 1993(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 04:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84527F0373BB15F2AF1ACD6B3750BE0F4BE93904
 ```
 
 https://mybot314.ru/tekegram_catalog/

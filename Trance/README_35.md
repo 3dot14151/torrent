@@ -1,3 +1,90 @@
+###  Публикация: 1329205   (356420) от 03.10.2019
+
+VA - Black Hole presents Best Of Vocal Trance Vol.1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darude & Audioventura feat. JVMIE - Hide (Original Mix)
+02. Sunscreem & Greg Downey - Perfect Motion (Original Mix)
+03. Mauro Picotto feat. Sygma & Barny Scott - Don't Let Me Go (Prana) (Original Mix)
+04. Bobina feat. Christina Novelli - Saviour (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2C3DCC017B233317AC777064C64D03A6B0C3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329184   (356413) от 03.10.2019
+
+VA - Vocal Trance Euphoria (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metta & Glyde - Network In Heaven (Original Mix)
+02. Aurosonic And Ana Criado - Ask Me Anything (Suncatcher & Exolight Remix)
+03. Stine Grove - This World Is Full Of Goodbyes 2018 (Original Mix)
+04. Alan Morris And Neev Kennedy - Lifeline (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78294FD0CE883EFF39F865BEA035FB465B1B26F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256648   (354556) от 22.10.2018
+
+VA - DJ Sakin Pres. Club Trance Future Edition Vol.3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra V. - It Does Not Make (Original Mix)
+02. DJ Sakin & DJ Wag - What Is This Place (DJ Sakin Club Mix)
+03. DJ X-Wing - Magnetic Dreams (Club Mix)
+04. Sync Diversity & Karl Schaap - Game of Trance (Skypath Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A164532EA9AFE1AC44E51983E18477F084A7FD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329386   (354431) от 04.10.2019
 
 VA - Uplifting Trance Only (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,90 +745,6 @@ Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89265B8BD7AF9F5119CB5873E562D3F611751D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578545   (345833) от 23.09.2022
-
-VA - Black Hole Trance Music 09-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emma Hewitt & Markus Schulz - INTO MY ARMS (Extended Mix) [6:12]
-02. BT - Paper Chairs (Alex Sonata & TheRio Extended Remix) [6:39]
-03. Richard Durand & Susana - I Matter to You (XiJaro & Pitch Extended Remix) [8:10]
-04. Dennis Sheperd & Brandon Le - Intouchable (Extended Mix) [7:22](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AC2DB5581D61342D47712EED86506F1530D1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256866   (345807) от 26.10.2018
-
-DJ Бинокль - Progressive Trance Vol.2 (2003) [MP3|256 Kbps] <Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Miguel Bose-Sereno (Wally Lopez Weekend Remix)
-02.SSL-Follow Me (Wally Lopez & Dr Kucho Mix)
-03.Las Vegas- Gamblers Beautiful Night (DJ Antoine vs. Mad Mark's Dub)
-04.DJ Chus & David Penn-Burning Paris (Original Stereo Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B7C8679BE3D9ACE09BFE3D0879B32158BEDC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330078   (345742) от 08.10.2019
-
-Sion Rae - Everlast (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Everlast (Extended Mix) [06:19]Жанр: Trance, UpliftingПродолжительность: 00:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0BE3E3DDD82C4D4CD8F820BB330EEB636F9469
 ```
 
 https://mybot314.ru/tekegram_catalog/

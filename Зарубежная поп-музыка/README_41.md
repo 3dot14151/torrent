@@ -1,3 +1,32 @@
+###  Публикация: 1554232   (575776) от 31.05.2022
+
+Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Good Morning
+03. Strange Animal
+04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527460   (574739) от 27.07.2012
 
 Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
@@ -751,41 +780,6 @@ Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529677   (564925) от 01.08.2012
-
-Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 35 be burbuliuku
-02. Ispildyk mano norus
-03. Olialia pupytes
-04. Svajoniu krautuvele
-05. Fight for your right
-06. Meile akla
-07. Sacharos
-08. Buk salia
-09. Eikim kartu
-10. Musu fiesta(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40547345E0327E296443516AB1C011AF718D292
 ```
 
 https://mybot314.ru/tekegram_catalog/

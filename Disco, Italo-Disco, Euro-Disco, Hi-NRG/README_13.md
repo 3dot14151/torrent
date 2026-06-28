@@ -1,3 +1,61 @@
+###  Публикация: 1128984   (726447) от 26.04.2017
+
+VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy Marton - People From Ibiza (4:17)
+02. Rofo - You've Got To Move It On (4:11)
+03. Savage - Don't Cry Tonight (3:58)
+04. Carmelo La Bionda - I Love You (3:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F69F5267C0D80A5BA5CD9264F4D91DDE2B419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129106   (724500) от 27.04.2017
+
+Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music Play (3:36)
+02. Sweet Somebody (4:45)
+03. Someone Waiting Home (4:37)
+04. Give Me Tonight (6:10)(   Читать дальше...   )Жанр: Electronic, Freestyle, DiscoПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872E881E89D739233DD7427AF69C44FA63802D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284992   (724477) от 24.02.2019
 
 Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
@@ -685,64 +743,6 @@ La Velle - Right Now (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DEA663AA5260F6336AA85783ADBB09B461E3997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286591   (711019) от 03.03.2019
-
-VA - ZYX Italo Disco Collection 26 (3 CD) (2018) [MP3|320 Kbps] <Italo-Disco, Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711019.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Den Harrow - Tell Me Why (Extended Version) 8:04
-02. Danny Keith - I Feel Right (Day Version) 7:52
-03. Tension - My Dream (Vocal Version) 5:46(   Читать дальше...   )Жанр: Italo-Disco, Disco, Euro-Disco, Synth-PopПродолжительность: 03:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAE3E974B7A0D7E5DF25442E8F1C28B30B9CC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131107   (710525) от 04.05.2017
-
-Pink Project - 2 Albums (1982-1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный "Диско" проект от итальянских исполнителей: Stefano Pulga (диджей и композитор, клавишник, продюсер), гитариста Luciano Ninzatti, клавишника-программиста Matteo Bonsanto и звукорежиссера Massimo Noe.01. Scratchin' Superstition (5:28)
-02. Stand By Every Breath (5:16)
-03. Duel (5:04)
-04. Hypnotized (5:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B452DE6E36EEA3C90D4CA87562214D1753C134
 ```
 
 https://mybot314.ru/tekegram_catalog/

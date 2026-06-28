@@ -1,3 +1,90 @@
+###  Публикация: 999662   (705206) от 06.03.2019
+
+Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising Nature, Databloem, Silentes [FLAC|Lossless|tracks+.cue] <Experimental, Ambient, Drone, Glitch, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Shades (08:01)
+ 02. Outside Is Light (07:42)
+ 03. Vocation In Motion (07:02)
+ 04. Wind Harps And Human Shadows (09:38)(   Читать дальше...   )Тип издания: CDЖанр: Experimental, Ambient, Glitch, Drone, Field Recording, Abstract •Продолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220792   (700651) от 21.04.2018
+
+Willits + Sakamoto (Christopher Willits & Ryuichi Sakamoto) - Ancient Future (2012) Ghostly International [FLAC|Lossless|tracks+.cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reticent Reminiscence (05:04)
+ 02. Abandoned Silence (04:31)
+ 03. I Don't Want To Understand (07:11)
+ 04. Levitation (04:26)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D4503CC338973975214563B7A2D4651E0958D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288357   (697779) от 10.03.2019
+
+Moss Covered Technology - Southern Points (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	A Shared Sudden Sun 	4:45
+2 	West Of Seatown 	6:54
+3 	Coastal Light 	6:16
+4 	To Protect You 	5:08(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD829C29D014B0CC1D88FA4B50FEA4CEA668F332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221219   (696801) от 23.04.2018
 
 Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient>
@@ -657,93 +744,6 @@ Arbre Noir - Collection 5 Releases (2000-2006) Polymorph Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DC640FCFC0CB7D94374A9B4F16DFA3C8C52C43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293219   (639195) от 02.04.2019
-
-Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Room (12:30)
- 02. Rainfall (12:00)
- 03. Agora (12:09)
- 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228585   (635944) от 01.06.2018
-
-Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 変わり目 (1:42)
-02. Yoku Yatta (12:40)
-03. 到着 (4:10)
-04. コントロールを取り戻す (2:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB07EB1225187B26610A30AF9DA55506E88611FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228814   (634116) от 02.06.2018
-
-Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning (01:29)
-02. Wind Journey 1 (05:29)
-03. Blue Moon (03:32)
-04. Dream Lines (05:21)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C443B67E41581A7A10956AF2B128367C9FC72EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

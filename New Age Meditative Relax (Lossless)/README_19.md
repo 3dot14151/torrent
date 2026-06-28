@@ -1,3 +1,90 @@
+###  Публикация: 1405939   (479130) от 01.09.2020
+
+David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding On Wings Of Mercy
+02. Skyward
+03. Flutterings From The Autumn Trees
+04. Beyond The Intimate(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244934   (477967) от 03.09.2018
+
+Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ishq (8:09)
+02. Tumi Bhaja Re Mana (8:07)
+03. Sattva (7:06)
+04. Shivoham (9:42)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406562   (474910) от 03.09.2020
+
+Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America (3:31)
+ 02. The Sound of Silence (3:24)
+ 03. Mrs. Robinson (3:29)
+ 04. El Condor Pasa (If I Could) (3:18)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566577   (474325) от 02.08.2022
 
 Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + .cue] <Native American>
@@ -658,93 +745,6 @@ VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164902   (434663) от 12.09.2017
-
-Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanzen (3:29)
-02. Jamphel Yeshi (4:02)
-03. Benjamin (4:13)
-04. Sommerzeit (3:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B229932EF88A73E945D15179BF6D00B7E6EA5383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063385   (432379) от 17.10.2016
-
-Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forbidden Dance (4:01)
-02 - Tragic Dream (3:59)
-03 - Black Wedding (3:53)
-04 - Mischief (2:09)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0CE0CC760C523610346F54074B02B68FB7F57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249806   (431049) от 25.09.2018
-
-Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Through 06:07
-02. Seasons of the Heart 04:20
-03. Echo of Desire 08:35
-04. Always a Dream 04:46(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85F6CCD2EE092CC0F5CF1421628FB92C9F7AD89
 ```
 
 https://mybot314.ru/tekegram_catalog/

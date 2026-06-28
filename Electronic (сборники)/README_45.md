@@ -1,3 +1,148 @@
+###  Публикация: 1005208   (834831) от 08.04.2016
+
+VA - Heavens Waiting: Chillout Session (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chillwalker - Heaven's Waiting (Vocal Mix)
+002. Slow Rhythms - Waiting for the Dawn
+003. Lady White - Let Me Try (Ripping Mix)
+004. Steen Thottrup - Save a Little Prayer - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9918FE9A1262BD33A4BAD6118DC20A2C729C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005288   (834721) от 08.04.2016
+
+VA - We Love Club Weapons Vol.2 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Massive - Ready to Rock (Radio Edit) 03:32
+02. Gino Montesano - Sunglasses At Night (Edit) 03:32
+03. Strobe - Angel (Strobe Mix) 05:54
+04. Weigold - Spread Love (Patrick Hofmann Remix) (Feat. Anna S.) 05:05(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AC7E807D2467583109BDA991430C48B9070A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004750   (834705) от 08.04.2016
+
+VA - Hypnotized By Electro Dance Dream Vol.3 (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrit Kurtaim, Matthew Brown - Remember Me (ft Kitty Blond) 05:35
+02. Chris Nasty - Silence Never Comes (ft Ners) 06:10
+03. Gubellini, Pain - The World Never Sleeps (ft MC Fixout) (Symo Remix) 06:23
+04. 4 Faces - I Need It (ft Marcus Pearson) (Clubby Dub) 06:35(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A1C423C763B8CE6654194F385285FB0A1F9540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004980   (834703) от 08.04.2016
+
+VA - DJ Dance Liga - Club Electro House (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834703.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Betatesters - Drop That (EDM Cardio Mix) 03:24
+002. Moombah Jack - Fuego (Pump It Up Mix) 03:50
+003. Miami Dance DJ Absinth - Shake That Ass (Ultimate Dance Workout Version) 03:32
+004. American Groove Junkies - Reach You (House Lounge Mix) 04:44(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 11:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F33F2313B28AA2BA1FC54DDA63FD4F6AACCD778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004782   (834575) от 08.04.2016
+
+VA - Falling in Love with Lounge Music 100 Sexy Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aqua Mundi - Sweet Suggestions [05:32]
+002. B.Infinite - First Contact [07:42]
+003. Bonsugi - Guitars and Bad Girls [05:54]
+004. The Soul Elephant - Nobody [05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F0F5023B7AFF9F6D66588E0166DD6B3ECEE0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005123   (834557) от 08.04.2016
 
 VA - Bass Killer 4 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Drum and Bass>
@@ -601,151 +746,6 @@ VA - Bigroom Club Hits 2K16 (2016) [MP3|320 кб/с] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B776FDC10B8A03FC821A78A2640900387DC560D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005896   (831071) от 10.04.2016
-
-VA - Minimal Pump The Beat (2016) [MP3|320 кб/с] <Minimal Techno, Minimal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zareh Kan - Biss Bass
-02. Paul Schmitz - Eutis
-03. Zareh Kan, Stephen Advance - We Are Just Kids (Fritz Fridulin Remix)
-04. Decavell - Linpinpin(   Читать дальше...   )Жанр: Minimal Techno, Minimal HouseПродолжительность: 04:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D724C4030340880250B6F9013E73F3F79750BC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005887   (830920) от 10.04.2016
-
-VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krewella - We Go Down (Darren Styles Remix) (05:00)
-02. Nicky Romero - Symphonica (Bare Remix) (03:54)
-03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
-04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005814   (830919) от 10.04.2016
-
-VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830919.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deep City - Maybe Rice - Deep Fashion Mix
-002. Vladi Strecker - De la Fuente (Springtime Mix)
-003. Area Code 51 - Teldrassil
-004. Cinematic - Brown Sugar (E-Wave Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419A7EA7D70D879C3B5F7DE0D149D848C01702DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005466   (830917) от 10.04.2016
-
-VA - Happy Hardcore Top 20 (2016) [MP3|320 кб/с] <Hardcore, Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Paul - Rainbow In The Sky (DJ Pauls Forze Mix) 02:51
-02. Party Animals - Have You Ever Been Mellow 03:08
-03. Flamman & Abraxas Ft. MC Rem - Good To Go (Radio Mix) 03:35
-04. DJ Paul Elstak - The Promised Land  (Promised Radio Mix) 03:44(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C613C235D4D4A701D0A2ABB8741A3853B480DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380631   (830849) от 04.05.2020
-
-VA - Deep Tech House Session (2020) [MP3|320 Kbps] <Deep, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Schneider & Haze - Si Balla
-002. Sparrox - Good Time (Original Mix)
-003. DJ Pp & Thousand Nights - Follow The Sun (Original Mix)
-004. Dreamweaver - Life Is The Limit(   Читать дальше...   )Жанр: Deep, Tech HouseПродолжительность: 10:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FACA99C31B790601C084B129C446DB7002EF931
 ```
 
 https://mybot314.ru/tekegram_catalog/

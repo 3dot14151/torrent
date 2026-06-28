@@ -1,3 +1,206 @@
+###  Публикация: 1468308   (1017244) от 07.05.2021
+
+Markus Schulz - Global DJ Broadcast In Bloom (All-Vocal Trance Mix) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer & Tinlicker featuring Felix Raphael - Run Away
+02. djimboh - Be Brave
+03. Fatum featuring Trove - Out of Space
+04. BT, Au5 & Mangal Suvarnan - The Light is Always On (Le Youth Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF9866CC6ED6F2E921286F36884980C084507E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468297   (1017230) от 07.05.2021
+
+FUTURE HOUSE CLOUD - Best Remixes of Popular Songs 2021 (Bass Boosted Car Music Mix) (2021-05-04) [MP3|320 Kbps] <Future House, Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LANNÉ & Giorgio Gee & Scott Rill - Lady
+02. Svniivan & Blaikz & Micano - Blinding Lights
+03. Blaze U & Toxic Joy ft. Nora Rose - Dance With Somebody
+04. RAIDH & Lexio ft. Lunis - Call Me Maybe(   Читать дальше...   )Жанр: Future House, DanceПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2438C5EC6DE12F1F2B0125935651A382430C7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469038   (1016586) от 11.05.2021
+
+SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tiësto & The Chainsmokers - Split (Only U)
+2. Tiësto & Oliver Heldens - Wombass
+3. Tiësto - The Business
+4. Tiësto & Sevenn - BOOM(   Читать дальше...   )Жанр: Big Room, Future House, DanceПродолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3DE620DCCC05D7B72F5E6DEFAA49A161754460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469043   (1016572) от 11.05.2021
+
+Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Böhmer & Panama - Weightless
+02. Noidor & Whoriskey - Embrace
+03. Jean Vayat & Evelynka - Your Rain (Moonwalk Remix)
+04. Innellea - Haveli(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45202C425CCB948EACE9D967DFF22D8B105C83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473057   (1013867) от 28.05.2021
+
+Laidback Luke - Tomorrowland Friendship Mix (2021-05-20) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleu Clair & Ootoro - Beat Like This
+02. ID - ID
+03. Laidback Luke & TUJAMO - S.A.X. w/Diplo & SIDEPIECE - On My Mind
+04. DJ Huguito - Tsunami w/ID - ID(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D8EC0DED0F9BF6C368B1AE7488023DEDAC3159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477801   (1010496) от 18.06.2021
+
+Korolova - AFTR:HRS SESSIONS 06 (2021-06-10) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alar & Korolova Feat. Yann Menge - Symphony(Dub mix)
+02. Thomas Gandey, Rafael Cerato & Antony Toga  - Freedom (Morttagua Remix)
+03. Jan Blomqvist, Alar & Korolova - Time Again
+04. Tinlicker - Past Life(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4C73B27144A3808326A14EFC55C5729A64DAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478453   (1010359) от 19.06.2021
+
+Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Fancy Inc ft. Roland Clark - ID
+02. Meca - Chains
+03. Sofi Tukker - Drinkee (Vintage Culture & John Summit Remix)
+04. Vintage Culture & Ferreck Dawn - ID(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E6D34D674BA407DB3BB7CB10B92CDB00EE9992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478634   (1010200) от 20.06.2021
 
 Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -542,209 +745,6 @@ Tiesto - Tomorrowland Friendship Mix (2021-08-12) [MP3|320 Kbps] <Electro Pop, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319B0D638445F92CD4C1C868FED4EE95510C935A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490406   (917514) от 21.08.2021
-
-Tiesto - Club Life 750 (Top 50 Fan Favorites) (2021-08-13) [MP3|192 Kbps] <Electro Pop, Trance, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Lake ft. Emma Hewitt – Carry Me Away
-02. Sander van Doorn & Martin Garrix & DVBBS ft. Aleesia – Gold Skies
-03. Tiësto – Ten Seconds Before Sunrise
-04. Afrojack & Shermanology – Can’t Stop Me (Kryder & Tom Staar Remix)(   Читать дальше...   )Жанр: Electro Pop, Trance, Big RoomПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520BC37CEB315392D449FBC816A6BD7374049366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490607   (917356) от 21.08.2021
-
-Cosmic Gate - Live @ New York City Sunset Set (2021-08-18) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faithless feat. Suli Break & Jazzie B - Innadadance (Meduza Remix)
-02. Adriatique - Trance Lessons
-03. Dezza - Lost In You (Falling In Love) (Estiva Remix)
-04. The Temper Trap - Sweet Disposition (Estiva Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 01:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50E8984F3064274334780B438E78ADC5053A540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465279   (901828) от 01.03.2016
-
-Armin van Buuren - A State of Trance 551 - 750 (2012-2016) [MP3|128 ~ 320 кб/с]<Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
-02. Rank 1 & Jochen Miller feat. Sarah Bettens – Wild And Perfect Day (Cosmic Gate Remix)
-03. Tune Of The Week: Alexander Popov – When The Sun (Eximinds Remix)
-04. Eximinds – August (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 677:39:50 (по 2 часа -/+ 5 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB478D486F45B63AD9F42B3D28637BE877EA95DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493132   (895618) от 03.09.2021
-
-Paul van Dyk - Live @ Main Stage, Exit Festival, Serbia (2021-07-10) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Andreas Kraemer - Adagio For Strings (PvD Intro Edit)
-02. Fuenka - Callisto
-03. Carl Cox - Family Guy (Jon Rundell Remix)
-04. Spektre vs. Max Graham vs. Joel Gershom - Together vs. One Hundred vs. Equinox (Paul van Dyk Mashup)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27A678D5335750D8960F99B94405A108C02D58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370710   (895201) от 28.03.2020
-
-Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chicane feat. Maire Brennan of Clannad - Saltwater
-02.Energy 52 - Cafe Del Mar (Three N One 2002 Update)
-03.Holden and Thompson - Nothing (93 Returning Mix)
-04.Underworld - Dark And Long(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940325B129C68D411257F4B80ED1DF5EE5AB65A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493580   (894223) от 04.09.2021
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar Chicago, United States 2021-08-14) (2021-09-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID
-02. Estiva - Metamorphoses
-03. Jerome Isma-Ae & Alastor - Timelapse
-04. LTN - When it Rains(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3769142D923094B8AB3963ADBED119C72FB189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101818   (892893) от 08.02.2017
-
-Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) Aurosonic & Sue McLaren - Captured By Gravity (Intro Mix)
-2) Raz Nitzan feat. Jess Morgan - Not Like Everyone (Aurosonic progressive mix)
-3) Arctic Lake - Limits (Aurosonic progressive mix)
-4) Headstrong & Aurosonic ft. Stine Grove - I Wont Fall (original mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D469822F56D6128826CF9627DCE42A2D3056FE5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

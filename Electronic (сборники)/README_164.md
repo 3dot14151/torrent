@@ -1,3 +1,148 @@
+###  Публикация: 952179   (351786) от 03.11.2015
+
+Наугольник - Галлюцинатор (2015) [MP3|320 кб/с]<Electronic Rock, Psyhedelic, Dark Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Эмеральда
+02 - Паранойя
+03 - Там, где нас нет
+04 - Алиса(   Читать дальше...   )Жанр: Electronic Rock, Psyhedelic, Dark ElectroПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADA8814E8CCD93CE4B77A3C0E0864FB54146CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952973   (351692) от 03.11.2015
+
+VA - Lazy Sundays Vol. 2 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. fynn - here is my soul (junge junge remix) [05:09]
+ 2. datastix - invisible love [08:20]
+ 3. miss luna - not the same old day (deep vox mix) feat. q derhino[06:46]
+ 4. roberto pedoto - oh girl [06:07](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A030E4D0394A2DA5730226A7500F09E5FDAA0B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952962   (351677) от 03.11.2015
+
+VA - Driving Hits - Autumn Edition (2015) [MP3|320 кб/с]<Deep House, House, Progressive House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. G-Sisters - Strangers (Staserman D&B Remix) [03:30]
+ 2. Lane McCray vs. DJane Monique - Sweet Dreams (DJ Moriarti Edit)[03:55]
+ 3. Rinaldo Montezz - Can't Say Goodbye feat. Lisa Raquel (Rinaldo Montezz Funky Drone Edit)[03:38]
+ 4. DJ Skip & Andrea Di Pietro - Jealousy [02:58](   Читать дальше...   )Жанр: Deep House, House, Progressive House, Electro HouseПродолжительность: 03:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA8400488F8AF16A4DC9418DA7927C7A291C5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256717   (351558) от 23.10.2018
+
+VA - Club House October Mix (2018) [MP3|320 Kbps] <Electro, House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351558.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dany Cohiba - Danza De Las Arenas
+002. Alle Farben & Younotus - Only Thing We Know
+003. Bkt - Long Gone
+004. Lucas Welle - Let's Do It(   Читать дальше...   )Жанр: Electro, House, Dance, ClubПродолжительность: 10:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4925B994E67EB0AF1167BA9A833C1CC97D153A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179196   (351402) от 30.10.2017
+
+VA - Hits Cocktail Vol.14 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351402.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Dmitrii G feat. Misha Klein - Rainbow Girl 5:09
+002.  Sick Individuals feat. Greyson Chance - Walk Away 3:18
+003.  Burak Yeter - Echo (Rocket Fun Remix) (Original Mix) 3:45
+004.  Teknova - Spaceships (Original Mix) 3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF99A53AC4E0B5522C89FF8AB2A43E0D647C003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579264   (350998) от 22.11.2012
 
 VA - Trancern 38.3: Official Compilation (November 2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
@@ -613,163 +758,6 @@ VA - Synthetic  vol.7 (2017) [MP3|243-320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61DE91438F30FA2190EC55AA101180BA0C57760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179382   (348909) от 31.10.2017
-
-VA - Русские Диджеи & Дискотеки от Ovvod7 - 02 (2017) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D.J. Savage - Зимняя ночь 6:06
-02.  DJ Вовочка - Свадьба 4:36
-03.  DJ Грув feat. Виктор Цой - Печаль (Remix) 3:35
-04.  Global Deejays - Зеленоглазое такси 3:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB3F45380719471691CD845DA820C168BB98358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179377   (348907) от 31.10.2017
-
-VA - Русские Диджеи & Дискотеки от Ovvod7 - 01 (2017) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Грув - Служебный Роман 3:22
-02.  DJ Цветкoff & Балаган Лимитед - Щас Спою 3:55
-03.  Vengerov & Fedoroff - Джентльмены Удачи 3:45
-04.  DJ Белых - Такси На Дубровку (ORT Version 1998) 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5860A192F6F1DFFDF817E078340DC815623554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579956   (348743) от 23.11.2012
-
-VA - Dubstep 2012 vol.3 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roughmath - Antevorta (4:54)
-2. Vexare - Still Remaining (4:17)
-3. SKisM-Power (Eptic Remix)  (5:36)
-4. Bombs and Bottles - I will take you there - RoughMath Remix  (5:29)
-5. Xilent - Touch Sound  (3:42)
-6. Protohype, Kezwik - Vile (Original Mix) (3:15)
-7. KDrew ft. TriCosta - Young and Wreckless  (4:23)
-8. KDrew ft. Mr. Nickelz - Danger Zone  (4:21)
-9. KDrew - Circles by KDrew (4:25)
-10. SUBSCAPE - Graveyard Shift  (5:05)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C28C25A18DE7D70B4C779150740B77F7AA61E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578891   (348195) от 23.11.2012
-
-VA - DeepEmotions - Car Dubstep Vol. 6 (2011) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duck Sauce - Barbara Streisand (Sensproof Remix) [3:27]
-02. Sezer Uysal, Sarah Jane - Chasing (Urban Assault Remix) [5:20]
-03. Karl Jenkins - Palladio (Luke Da Duke Remix) [5:04]
-04. Calvin Harris - Feel So Close (Nero Remix) [4:44]
-05. Fytch & Captain Crunch feat. Carmen Forbes - Raindrops (Tomba Remix)[4:02]
-06. The Qemists & Maxsta - Renegade (The Qemists VIP) [5:01]
-07. Dubba Jonny - What Have You Got [5:37]
-08. Urban Assault - Let It Go (Drumstep Remix) [4:55]
-09. Tim Healey Freqhouse feat. Loc - E Pippa Trix - Resistance (Mark Instinct Remix) [4:34]
-10. Darren Styles - Here Tonight (Christian the Lion & Glitchdick Remix) [3:47](   Читать дальше...   )Жанр: DubstepПродолжительность: 01:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8090D3F7220B7C93465D90109DBFCCA38A82A67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073155   (347946) от 15.11.2016
-
-VA - Desire To Live: Soulful Mix (2016) [MP3|192~320 Kbps] <Downtempo, Chillout, Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Al L Bo - Around The World (Laszlo Nikulin Remix) 4:53
-002. Delerium - Ghost Requiem (Original Mix) 5:45
-003. Soul Bossa Trio - Butterfly (Afro Mystik Remix) 9:30
-004. Jinco - Clocktower (Feat. Mia Vaile) 3:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LyricПродолжительность: 09:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4743296A089306A6410E65957E660F54302ACB83
 ```
 
 https://mybot314.ru/tekegram_catalog/

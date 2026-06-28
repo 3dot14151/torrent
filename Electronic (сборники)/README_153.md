@@ -1,3 +1,148 @@
+###  Публикация: 712388   (403231) от 19.10.2013
+
+Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (Single Version) 1985
+02. In The Heat Of The Night (Single Version) 1985
+03. Little Girl 1985
+04. Midnight Man (Single Version) 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713015   (403204) от 19.10.2013
+
+A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me 1985
+02. The Sun Always Shines On TV 1985
+03. Hunting High And Low (7'' Remix) 1985
+04. Scoundrel Days 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9FB3374D1D229CEF5D97DF95248235EDF12FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712438   (403175) от 19.10.2013
+
+Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big in Japan 1984
+02. Sounds Like a Melody 1984
+03. For a Million 1989
+04. Jerusalem 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6927DEAD487AEB1542D5D0070875ABBC5C84F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169486   (403142) от 27.09.2017
+
+VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Kilo - Deixe Me Ir (Bruno Be, Monkeys, Eternal Soul Remix) 5:20
+02. Alexander Orue & Sharapov - Never Give Up (Original Mix) 5:23
+03. Alex Kenji - 'Cause It's Cool (Original Club Mix) 5:29
+04. Alex Niggemann - Luminance (Daniel Bortz Remix) 7:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB3F9DD173FCAA438F81DA5A04DA7BCF990EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169385   (403116) от 27.09.2017
+
+VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Rednex - Cotton Eye Joe (C. Baumann Hands Up Remix)  4:41
+002.  DJ D-Rave vs. Ravergizer feat. Sakura - Trust Yourself (Marc Kiss Remix)  5:18
+003.  Loona - Summer Of Love (Dance Style Extended Mix)  4:57
+004.  Sia - Move Your Body (Alan Walker Remix)  3:38(   Читать дальше...   )Жанр: Hands Up, Club, DanceПродолжительность: 07:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564EA5ADEBF156D9D54432025BAF4E53D8E6ED28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562672   (403032) от 23.10.2012
 
 VA - Astro Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -642,163 +787,6 @@ VA - Record Super Chart #506 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD1045C94F904E0F889078CBA0C225AC5B5C1C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568959   (393238) от 02.11.2012
-
-VA - Believe Motion Love (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Van Dyk Feat Plumb - I Don't Deserve You (Radio Edit) 03:33
- 02. Protoculture - Perpetual Motion (Original Mix) 07:08
- 03. Ralphie B - Face Off (Original Mix) 09:36
- 04. Ronny K Vs Vasaio Ft Jakub Hubner - Im Missing You (Radio Mix) 03:44
- 05. Simon O'shine - Your Distant World (Original Mix) 09:43
- 06. Tenishia - Where Do We Begin (Club Mix) 06:29
- 07. Yigit & Jirihin - Rotundjere (Original Mix) 09:01
- 08. Matt Davey - Believe In Me (Original Mix) 07:34
- 09. Arjan Nilsen - Burana (Original Mix) 06:10
- 10. Susana & Shogun - Only You (Original Mix) 08:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEBC5EB421E534923727C378A1BE7277B2436DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172578   (393165) от 08.10.2017
-
-VA - Deep House Collection Vol.139 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. &ME - Avalon (Original Mix) 9:09
-02. Acid Eyes - Medicine (Original Mix) 5:24
-03. Alex Richi & Kurganskiy - Talking to Myself (Original Mix) 4:51
-04. Adiru - Ronda (Original Mix) 6:18(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B767FC5E29DBD3C72B9A0A19187A37B26D8E8D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172450   (393108) от 08.10.2017
-
-VA - Impulse 7: Супермузыка для супермашин (2017) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Cosmic Gate & Eric Lumiere - Bigger Than We Are (Extended Mix)  6:57
-002.  Sheppard - Edge Of The Night (Benny Benassi Club Mix)  4:30
-003.  Deadmau5 & Colleen D'Agostino - Stay (No Mana Remix)  5:23
-004.  New Order - Blue Monday (Diskover Remix)  5:01(   Читать дальше...   )Жанр: House, Deep House, Progressive, Trap, Chillout, Tech, ClubПродолжительность: 10:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACA583574BE58F0EA4607D2BD84B44B819E82F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172559   (392826) от 08.10.2017
-
-VA - Beatport Top 100 Downloads September (2017) [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Chapman - La Fiesta (Original Mix)
-02. CamelPhat, Elderbrook - Cola (Original Mix)
-03. Jamie Jones - Kooky Chords (Original Mix)
-04. Roberto Capuano, Luigi Madonna - Midfield (Original Mix)(   Читать дальше...   )Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 11:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956EA05CF9DBE34C3212CA395D82254C16C1BAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569697   (392292) от 03.11.2012
-
-VA - Trance Universe Vol.8 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivica Vanevski - Irriversibility (7:44)
- 02. Esprit Fort - Rise - Club Mix (7:24)
- 03. Arman Bas - The Lonely Shepherd (7:25)
- 04. Vol Deeman - Purple Rain (7:26)
- 05. Matt Pincer - One Night in July (8:43)
- 06. Corn Flakes 3D - All in One (6:29)
- 07. Rene Ablaze - Destination Daylight (Feat. Stine Grove) - Rene Ablaze Remix (8:11)
- 08. M.C.K. - Relax (8:55)
- 09. Mindsurfer - Hidden Secrets (5:23)
- 10. Sivan Khan - As Time Shifts (7:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B2D641E80145FF3D260A64C1BEE75DDEED7FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

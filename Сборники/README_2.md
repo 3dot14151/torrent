@@ -1,3 +1,29 @@
+###  Публикация: 1397089   (742554) от 18.07.2020
+
+Сборник - Design Bundles - Pets Bundle. Cliparts and seamless patterns - 274314 [EPS, PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пакет Pets входят 16 графических пакетов с симпатичными клипартами и бесшовными узорами.Формат: EPS, PNG, JPGРазрешение файлов: 886x1249-10522x3305
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6C2902C66B1C64E481E20DD692B788BCECC8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242633   (724317) от 24.02.2019
 
 Сборники - ABC's Lowercase Clip art - alphabet collection [AI, PNG, EPS, PDF]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BD8D69A74401C41FFCCE6B1AD400DC6583B2DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840191   (336709) от 11.11.2014
-
-Сборник - Абстрактные фоны и рамки / Abstract Backrounds & Frames [AI,EPS,JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны и рамкиФормат: AI,EPS,JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FD4B7EBB9DC5D9A4D3AF0F30B251FC09138DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1877783   (1074226) от 23.06.2026
+
+VA - IBIZA SUMMER 2026 - Best Electronic Music (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roo McKeller - Remember Who You Are (Original Mix) [7:29]
+02. TRXPS - Essence Of Life (Original Mix) [6:38]
+03. Stor Grå - A State Of Mind (Original Mix) [6:46]
+04. Aquaella - Seeking Summer (Original Mix) [5:32](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, TranceПродолжительность: 05:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FBF38C5C472F934D122EA18052E79FBCEC77E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877581   (1074049) от 21.06.2026
+
+Christian Burns - Waking Up in a Northern Town (2026) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Burns - Darker Days (Extended Mix) [7:10]
+02. Christian Burns & Mark Novas - Let Me Love You (Extended Mix) [4:41]
+03. Cosmic Gate & Christian Burns - Brave (Extended Mix) [7:25]
+04. Christian Burns & Banaati - Embers (Extended Mix) [6:34](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA9C258B623BB77B204D8FA0BAE4AE2A0DA3402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877320   (1073961) от 
+
+VA - Summer Deep House / Afro House 2026 (2026) [MP3|320 Kbps] <Deep House, Afro House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ David Kim - Pieces 02:25
+02. Gorbunoff & Brandon Szabo - Langa 02:44
+03. DJ Mansour - Yare 02:32
+04. De Biasi & Durante - Muraja (Extended Mix) 04:33(   Читать дальше...   )Жанр: Deep House, Afro House, Organic HouseПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748106F1B5228F86A74E29756F0CE2CC8A7AC145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877395   (1073916) от 
+
+VA - A-Mase - Alysia's Summer'26 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Alysia Sun - Burning (Original Mix) [4:44]
+02. A-Mase & Alysia Sun - Nightlife (Extended Mix) [5:43]
+03. A-Mase - Angel 2.0 (Extended Mix) [4:37]
+04. A-Mase & Deep Immersion - Paradise (Original Mix) [5:38](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43577B6FC0DB2C598142F4EB904CEDD09D92462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876484   (1073471) от 
 
 VA - Black Hole House Music 06-26 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -630,122 +746,6 @@ VA - Ibiza Nights 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18B16B7024E7B50658E6CFC5EC9A892AD986721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865749   (1065509) от 17.04.2026
-
-VA - Black Hole House Music 04-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - Everybody Wants To Rule The World (Extended Mix) 05:13
-02. Robbie Rivera & Joe Delgado - Esta Noche (Extended Mix) 07:02
-03. Christian Burns - Darker Days (Avenue One Extended Remix) 06:14
-04. Cosmic Gate & Pretty Pink - Bloom (Extended Mix) 05:29(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 02:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEEC33561ACC9358C7CB0AF35756B4BE3BEE7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865461   (1065436) от 15.04.2026
-
-VA - PURRFECTION Compilation 2026 (2026) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelakhov - Haunted 07:28
-02. Checo Cotela - Depth Signal 06:27
-03. Exile (AR) - Destiny or Chance 07:10
-04. Chaguri - Natural Voice 06:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFBF4415DCBA4A7D9E583179BA3FD8831DEE6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865455   (1065435) от 15.04.2026
-
-VA - UV Miami 2026 (2026) [MP3|320 Kbps] <Progressive House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome Isma-Ae & Paul Thomas - Tomorrow (Trilucid Extended Remix) 05:45
-02. Markus Schulz & Dakota - Faultline (Das Pharaoh Extended Remix) 06:36
-03. Trilucid - Calling (M.O.S. Extended Remix) 06:20
-04. Trilucid - 2000 (Extended Mix) 07:52(   Читать дальше...   )Жанр: Progressive House, Organic HouseПродолжительность: 01:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36870884E7106CD8E65D78E430E48B31A780B772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862096   (1064362) от 28.03.2026
-
-VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B3RAO - Someway, Somehow (Original Mix) 05:59
-02. Earth N Days - Gonna Do (Extended Mix) 05:12
-03. D.P.V. - Roots (Original Mix) 05:48
-04. Piem - Disco Mordisco (Extended Mix) 06:41(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015C3A775B66709DF2A9865A0D1738F429A03616
 ```
 
 https://mybot314.ru/tekegram_catalog/

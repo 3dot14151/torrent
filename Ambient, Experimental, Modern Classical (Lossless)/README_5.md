@@ -1,3 +1,89 @@
+###  Публикация: 1000624   (857569) от 26.03.2016
+
+ForstWölfin - You Will Find Me In The Forest (2016) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Will Find Me In The Forest (FW Deep remix) (06:57)
+02. You Will Find Me In The Forest (FW Melodic remix) (06:57)
+03. You Will Find Me In The Forest (Original mix) (06:57)Жанр: Ambient, Dub TechnoПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B761D25B17EBFC07FDC0D70FE70667695DD3B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186372   (846521) от 25.04.2020
+
+0ID (OID, Andrei Oid) - Discography 12 Releases (2004-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 111 (14:40)
+ 02. Feda (03:44)
+ 03. Gluten Tag (10:23)
+ 04. Serendip 25 (06:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno/IDM/ExperimentalПродолжительность: 06:22:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9BA1A1E4C6F078A838CE01886B1525801C42CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189249   (846143) от 25.04.2020
+
+Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 40 Releases (1997-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Leftfield, Shoegaze, Drum &am ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apotheosis (08:03)
+ 02. Sirius (10:07)
+ 03. Zodiac (08:59)
+ 04. Pacific Stereo (08:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Drum & Bass/AmbientПродолжительность: 40:43:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379628   (839200) от 29.04.2020
 
 Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Field Recording>
@@ -653,93 +739,6 @@ Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274476   (793058) от 07.01.2019
-
-Ümlaut (Umlaut) - Musique De Film (2019) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory (05:06)
-02. R O Y G B I V (04:31)
-03. Dot (05:00)
-04. On The Feelings That Stay (07:35)(   Читать дальше...   )Жанр: Ambient, Minimal, ExperimentalПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274566   (793056) от 07.01.2019
-
-Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Naelden (04:16)
- 02. The Fire Within (05:38)
- 03. Leaves Of Glass (04:10)
- 04. Breeders Trophy (05:18)(   Читать дальше...   )Жанр: Ambient, Dark AmbientПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040394   (791774) от 01.06.2020
-
-Aythar - Collection 12 Releases (2016-2019) Carpe Sonum, ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Psybient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe (Short Version) (15:03)
- 02. Cosmic Resonance Part 1 (07:14)
- 03. Cosmic Resonance Part 2 (18:52)
- 04. Cosmic Resonance Part 3 (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Psybient/Berlin-School/DroneПродолжительность: 12:35:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD3FD69EBEF90F0A1E62A4A923097E305C8B1AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

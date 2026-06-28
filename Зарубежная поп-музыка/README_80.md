@@ -1,3 +1,32 @@
+###  Публикация: 1518895   (150853) от 22.12.2021
+
+VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150853.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doja Cat - Kiss Me More (feat. SZA)
+002. Walker Hayes - Fancy Like
+003. Drake - Way 2 Sexy
+004. The Kid Laroi - STAY(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 05:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDF835F455FB84FB0ED1D3A9404B2B239FD9170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677667   (150552) от 18.11.2023
 
 VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -713,35 +742,6 @@ VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272170   (145705) от 26.12.2018
-
-VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145705.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dadju - Jaloux
-02. DJ Snake - Taki Taki
-03. Imagine Dragons - Natural(   Читать дальше...   )Жанр: Pop, Folk, Indie, DancehallПродолжительность: 06:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF395DC1980AA371BBF326D7C3A09EB54D3C9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

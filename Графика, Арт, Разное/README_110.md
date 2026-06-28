@@ -1,3 +1,55 @@
+###  Публикация: 1416867   (364843) от 17.10.2020
+
+Картинки - Super mix wallpapers 600 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364843.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1680x1050-8512x5664
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE2715BEB2B2A6F361A1B8EF630E58AE220EFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416876   (364754) от 17.10.2020
+
+Картинки - 500 Beautiful & Amazing Mixed Wallpapers {Pack -2} [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364754.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1920x1080-10667x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D6FF78C950A98CADFD441A6112909755D9DF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416877   (364745) от 17.10.2020
 
 Картинки - 500 Beautiful & Amazing Mixed Wallpapers {Pack -1} [JPG]
@@ -617,58 +669,6 @@ Nature HD Wallpapers (18.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF6BA287D1806C428566037066FDF168FE8DA3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952153   (358270) от 31.10.2015
-
-Обои - Fantastic pictures part 58 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на фантастическую тему.Формат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48217A4B0B1A4C015E1754188D5C65786E8A44ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577473   (358222) от 19.11.2012
-
-Military Wallpapers (18.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B26791C3C933D0F23F4821D902AB863C87316E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

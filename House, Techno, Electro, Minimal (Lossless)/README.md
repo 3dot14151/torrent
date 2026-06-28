@@ -1,4 +1,207 @@
 https://t.me/izofen
+###  Публикация: 1878625   (1074769) от 
+
+VA - Ibiza Pool Lounge Bar (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faraon - You Need Me (4:40)
+02. The Fly - Live Me (5:41)
+03. Anton Ishutin - Her Name (7:36)
+04. Caolan Irvine - Escape (Quin Pearson Remix) (3:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D659F4C6F87D7D8CAB20E3E8708DD578F3AD4CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878616   (1074585) от 
+
+VA - Ibiza Afro House 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Stay With Me (3:07)
+02. Anton Ishutin - Be My Lover (4:19)
+03. Elegant Ape - Feel The Fire (3:58)
+04. Elegant Ape - Desert Bloom (5:42)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A49C97E6972FC2BBFB9BC3A5108325148B01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877863   (1074279) от 23.06.2026
+
+VA - Afro Summer Beats (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Desert Bloom (Lino Tenerife Remix) (5:34)
+02. N.E.O.N - Give Me Love (3:08)
+03. Magthegreat - Movements (3:32)
+04. N.E.O.N - El Cid (5:25)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3CEF36818B885DAEEFAD3113C55104989BE896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877924   (1074233) от 23.06.2026
+
+VA - Dream Planet, Vol. 2 (2005) [FLAC|Lossless|WEB-DL|tracks] <House, Dream House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahoroba - Les Paysages (Relax Mix) (5:17)
+02. Jason Tyrello - When da Sun Is Gone (7:06)
+03. Mikel B. - Sonnenschein ich liebe dich (5:21)
+04. Adam Bowen - The Beat of Your Heart (7:37)(   Читать дальше...   )Жанр: House, Dream HouseПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E022FB7CDA9933824EF6CB05CB58D6BE1832090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877790   (1074119) от 22.06.2026
+
+VA - Beach Music Summer 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Show Me (6:28)
+02. Andrey Keyton - I Want Your Soul (5:58)
+03. Baroke - Madness (4:08)
+04. The Distance - Wanderer (4:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063C220CF1BB7065F13847E897D9FF952B83E870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877560   (1074092) от 21.06.2026
+
+VA - Melodica - Afro House Edition 2026 (FLAC) (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Afro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Sol Da Manha (7:24)
+02. Tibetania - Olodumare (5:33)
+03. Monolight - Ogomalo (3:56)
+04. Tibetania - Orolalo (4:08)(   Читать дальше...   )Жанр: Afro HouseПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E4554AA4BA0F7FA39552184B95FB471C1780FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877375   (1073957) от 21.06.2026
+
+VA - Rhythmica - Afro House Edition 2026 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Afro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Kaisser Bouzriba - Patricia (4:36)
+02. Tibetania, Zaleya - Yours (5:33)
+03. Marga Sol, Tibetania - Ashé (3:12)
+04. Tibetania; Mirko Donnini - Roots (3:56)(   Читать дальше...   )Жанр: Afro HouseПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F88760D8E1DBE61BCBB7B5384C4F2C7CF4DD825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877232   (1073806) от 
 
 VA - Ibiza Summer Morning (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -543,209 +746,6 @@ VA - Ibiza Nights 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A38F6D748E27484248CB308CFB07842FD9BBC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865199   (1065380) от 14.04.2026
-
-VA - Summer Lounge (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharapov - Keep On Rising (5:25)
-02. Harmonize - Show Me Love (5:10)
-03. Cristian Ferrer - Not Alone (Sharapov) (3:26)
-04. Anton Ishutin - Feel So Good (7:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007487C20B3FD3D7CE8A1926177929C9341A7328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865307   (1065297) от 14.04.2026
-
-VA - Ibiza Afro (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian Ferrer - Lost In Space (3:50)
-02. Silvan7 - Voices of Summer (3:44)
-03. Elegant Ape - Desert Bloom (Cristian Ferrer Remix) (5:42)
-04. Elegant Ape - Freedom (3:06)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC431F445ECFDF48B16A001E5E388F276F27CAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864836   (1065037) от 12.04.2026
-
-VA - Miami Lounge Pool (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Her Name (7:36)
-02. Note U - Your Sun (7:25)
-03. KADE - Everything Is A Dream (3:12)
-04. Dellahouse - Paradise (3:48)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DAE4AF47D2294ECAE095685D2F5A082DAED7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862132   (1064351) от 28.03.2026
-
-VA - Beach Lounge (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Show Me (6:28)
-02. The Fly - No Go Back (2:43)
-03. Oceanika - Lovesong (4:19)
-04. Kevin Havis - Without (2:14)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A165A9C3D0676D961C6D2459F56AFBDEF506A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862539   (1064088) от 30.03.2026
-
-VA - Milk & Sugar Miami Sessions 2026 [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B3RAO - Someway, Somehow (Original Mix) (5:59)
-02. Earth n Days - Gonna Do (Extended Mix) (5:12)
-03. D.P.V. - Roots (Original Mix) (5:48)
-04. Piem - Disco Mordisco (Extended Mix) (6:41)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09098336A0E1A48CDD62B959A2640913953489EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863701   (1063288) от 05.04.2026
-
-VA - Afro Bech Vibes (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (Cristian Ferrer Remix) (5:42)
-02. Cristian Ferrer - Alright (5:58)
-03. N.E.O.N - Bye Bye (Radio Edit) (3:34)
-04. Johny Luv - Crossroads (Sunrise Mix) (4:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4739C502D1070BBFEE824BE8AD708A9131DE157A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860825   (1062101) от 22.03.2026
-
-VA - Afro Pool Party (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (3:09)
-02. Cristian Ferrer - Osupa Ti (3:52)
-03. N.E.O.N - Yemaya Mama (3:30)
-04. Cristian Ferrer - Alright (5:58)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC56615FA8DBA15D4E55FAFBE586695D11305839
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1219947   (707907) от 17.04.2018
+
+VA - Beach Dating (2018) [MP3|320 Kbps] <Vocal, Indie, Acoustic>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ-Chart - I'm Here Alone
+02. Rumor - Canzone Per E
+03. Lorenzo Casanova - Gitarro Amor
+04. Soheyl Keyani - Alles wird gut (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Indie, AcousticПродолжительность: 02:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB67324C24F70F89DA7C2E67E085E4E768D510CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220333   (705893) от 18.04.2018
 
 Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Classical, Piano>
@@ -718,35 +747,6 @@ Hexperos - 2 albums (2007-2010) [FLAC/APE|Lossless] <Neoclassical, Ethereal, Med
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029500   (680134) от 27.06.2016
-
-Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossover, Vocal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of My Fathers (3:24)
-02. Beethoven's Ode To Joy (With David Garrett) (3:44)
-03. Sanctus (Elgar's Nimrod) (3:39)
-04. Barcelona (With Alfie Boe) (4:28)(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7472867F3A9E28540ED5AEB13086AEE7EB36D7D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 544768   (484344) от 10.09.2012
+
+VA -  Парад Оркестров (1973) [MP3|320 кб/с]<Instrumental,Orchestra>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Воздушная кукуруза (Герхон)  02:34
+Оркестр Тома Спенсера
+
+02 - Красный сарафан (обр.Дж.Ласта)  02:10
+Оркестр Джеймс Ласта
+
+03 - Ты прекраснее солнечного света (Р.Катшер)  02:53
+Оркестр Гаральда Бантера
+
+04 - Гордая Мэри (Дж.Фогерти)  02:40(   Читать дальше...   )Жанр: Instrumental,OrchestraПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637AFB3FB3DA48CACF5B3FD45FD613122FAE884F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938269   (483944) от 17.09.2015
 
 Weber, Mahler - Die drei Pintos (Paolo Arrivabeni & National Philharmonic Orchestra of Belarus) (2CDs) (2004) [FLAC|image +.cue]<Classical, Romantic Period, Opera>
@@ -722,35 +757,6 @@ Sleeping Beauty
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9B575EC1D966BF832DDC33EE6E208ABF657CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940740   (464766) от 26.09.2015
-
-Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.cue)]<Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, PianoПродолжительность: 00:55:21
-
-01. I. Vivace con brio [05:42]
-02. II. Andantino cantabile [08:29](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB5083A7FE25E0A637C7606A6B07EF4B4340BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

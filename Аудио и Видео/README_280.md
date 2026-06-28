@@ -1,3 +1,90 @@
+###  Публикация: 1776553   (71222) от 01.02.2025
+
+VA - Italo Strikes Back (1997) [AAC|320 Kbps] <Electronic, Pop, Euro House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valerie - The Night
+02. Good Vibes - Survivor
+03. Cascada Feat. Mirabella - Fotonovella
+04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380C31FA11D9F31DC36AB9014360E6D42C0299ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776718   (71202) от 02.02.2025
+
+VA - Italo Strikes Back Vol. 2 (1998) [AAC|320 Kbps] <Electronic, Euro House, Synth-pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.V.P. - Rofo's Theme
+02. Xenon - Firewalker
+03. Matura - Commanchero
+04. DJ Jacques - Malestripper(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B0ED4C1B98553485457A7C8C8B01DF9BAF1350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776941   (71121) от 04.02.2025
+
+VA - The Best Of Italo Disco Vol. 8 (1987) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71121.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Linda Jo Rizzo - Heartflash (Tonight) (Just One Word)
+03. Silver Pozzoli - Pretty Baby
+04. Mike Mareen - Agent Of Liberty
+05. Albert One - For Your Love(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F2DC2F0CCE39CC7DE658D0867206125C5A9955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777475   (70979) от 07.02.2025
 
 VA - The Best Of Italo Disco Vol. 9 (1987) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
@@ -134,32 +221,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B09D6319A61166A4B5261B7229EF4FD858DED50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713384   (60513) от 07.04.2024
-
-Дмитрий Глуховский | Метро (Книги 1-3) (2010 - 2015) [m4b, Вячеслав Герасимов, Александр Андриенко, Дмитрий Креминский]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья мировая стерла человечество с лица Земли. Планета опустела. Мегаполисы обращены в прах и пепел. Железные дороги ржавеют. Спутники одиноко болтаются на орбите. Радио молчит на всех частотах. Выжили только те, кто, услышав сирены тревоги, успел добежать до дверей московского метро. Там, на глубине в десятки метров, на станциях и в туннелях, люди пытаются переждать (   Читать дальше...   )Жанр: Фантастика, ПостапокалипсисИздательство: АудиокнигаПродолжительность: 15:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF48BE9D2E34E320A5979038CCB13C372B330E74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,64 +743,6 @@ VA - Modern 80's - The Best Of Discopop (1998) [AAC|320 Kbps] <Electronic, Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F558C030EEEF9D1961283CC06291BC82634EF27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781577   (26568) от 24.02.2025
-
-VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Gibb - Juliet
-02. Samantha Fox - I Surrender (To the Spirit of the Night)
-03. Bros - When Will I Be Famous
-04. Sabrina - Boys(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D79607761DB2971D2745A35D788DCA14580B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781830   (26458) от 25.02.2025
-
-VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milli Vanilli - Girl You Know It's True
-02. A-ha - Take on Me
-03. Alphaville - Big In Japan
-04. Laura Branigan - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C71C4F0130A1C8093C04A9E2F90BC376D9D91F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1615597   (1037576) от 26.02.2023
+
+VA - Disco House Vol. 3 (2023) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Afrobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Moy - Tribal Garden
+02. Cut Wax - A CW V1
+03. Dj Moy - NY City
+04. Phil Disco - Disco Deluxe From Tokyo(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, AfrobeatПродолжительность: 02:09:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E6BC0737166666709B856B8FCEBC37A6EEC2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615612   (1037574) от 26.02.2023
 
 VA - Play It!: Funky & Disco Vibes Vol. 55 (2023) CD, Compilation [MP3|320 Kbps] <Indie Dance, Funky, Nu Disco, Soulful>
@@ -716,35 +745,6 @@ Mflex Sounds - Starry Night (2021) [MP3|320 Kbps] <Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F91E2167C9CB22835DEFF390D52341C9E9D9880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459447   (1023318) от 01.04.2021
-
-Zacar Orchestra - Disco-Take (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness (4:45)
-02. Superfly (4:12)
-03. Like To Love (3:49)
-04. Baby Get Down (4:17)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42AED927F99E0DBFF16505244932DBFDA7BE31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

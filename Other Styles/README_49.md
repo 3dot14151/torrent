@@ -1,3 +1,119 @@
+###  Публикация: 1123668   (786379) от 08.04.2017
+
+VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Interstellar Meditation Music Zone - Sunrise Energy (Morning Meditation)  3:43
+02.  Mantra Yoga Music Oasis - Open Your Eyes (Power Day)  3:55
+03.  Relax Time Universe - Relax For Mind And Body  3:17
+04.  Relax Time Universe - Breathing Technique (Slow)  3:36(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 03:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123653   (786182) от 09.04.2017
+
+Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2004) [FLAC|Lossless|tracks] <Stage & Screen, OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camille (4:12)
+02. 36 (4:02)
+03. The Armoured Van (3:44)
+04. Club (3:42)(   Читать дальше...   )Жанр: Stage & Screen, OSTПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86E7403D5DCC5C60F0B1964D02D88F603536CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123889   (786167) от 09.04.2017
+
+Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Dream of a Sweetbrier (00:05:28)
+02. Italian Coffee (00:04:43)
+03. All of What There Is (00:05:19)
+04. Very Special Proud Man (00:05:41)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123630   (786077) от 09.04.2017
+
+ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шо З-под Дуба (03:48)
+02. Русалочки (01:49)
+03. Пані (03:28)
+04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124005   (785931) от 10.04.2017
 
 Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
@@ -627,122 +743,6 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C87F30CF48B5F60739C42E85517E50515DFB4E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205046   (783767) от 09.02.2018
-
-Justin Johnson - If Walls Could Talk (2016) [MP3|320 Kbps] <Roots Acoustic Instrumental, Americana, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime
-02. Tennessee Turkey (And a Carolina Chick)
-03. Wayfaring Stranger
-04. Snowy Morning Coming Down(   Читать дальше...   )Жанр: Roots Acoustic Instrumental, Americana, Folk, Country, BluegrassПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FCE343916E413C20B81975A8C0F9006BE94AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389730   (783348) от 14.06.2020
-
-Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain (432 Hz Version) (2:54)
- 02. Cantus (432 Hz Version) (3:56)
- 03. Adagio (432 Hz Version) (4:39)
- 04. Eolian (432 Hz Version) (3:17)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B5E8C6C8DEC68A8471DC2D54C87AFFA99EA1EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205788   (783204) от 11.02.2018
-
-Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Amen
-2.Christe
-3.Oscillation
-4.Come With Me(   Читать дальше...   )Жанр: Chillout, Enigmatic, New AgeПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9EB6F2EFD482C6F41DE3A3375EF6C8B4560D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390368   (782990) от 15.06.2020
-
-Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
- 02. Life (432 Hz version) (2:46)
- 03. Stardust - (432 Hz version) (3:18)
- 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

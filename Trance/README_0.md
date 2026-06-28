@@ -1,3 +1,90 @@
+###  Публикация: 1870943   (1069464) от 14.05.2026
+
+VA - Black Hole Trance Music 05-26 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz pres. Dakota - Before The Light Knew Us (Extended Mix) [4:49]
+02. Push - Back When We Believed (Extended Mix) [6:24]
+03. ReOrder & Alan Fullmer - Just A Dream (Extended Mix) [4:36]
+04. XiJaro & Pitch - Wide Awake (Without You) (Extended Mix) [6:39](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F30A828044CDD8BDC965FC9CF98BEBFE4DC35D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870939   (1069463) от 14.05.2026
+
+VA - Sound Best Trance Hits 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Lung - Beyond The Reach (Original Mix) [4:55]
+02. Mario Brumen - Waking Life (Original Mix) [6:12]
+03. D.A.R.E - Determination (Original Mix) [6:06]
+04. Last Child Left - The Mirror (Original Mix) [7:48](   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6393260AEE575F363BA3225DEF53CFE64A7E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870931   (1069462) от 14.05.2026
+
+VA - Redux 700 Celebration (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TrancEye - Uriel (Original Mix) [8:41]
+02. Neil Moore & Christine - Club Culture (Sunseeker Mix) [7:31]
+03. Ian Buff - Sincere (Renovatio Remix) [7:46]
+04. Jason van Wyk & Dreamquest - Imagine (Original 'Lost Sunrise' Mix) [7:56](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C9BC3204D9BEB061653184A3ECAA3A314DA344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871202   (1069397) от 15.05.2026
 
 VA - Friends of A State Of Trance, Vol. 4 (Mixed by RAM) (2026) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ Jennifer Rene - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B4AB3F2748557769FFA91EC62720E37FA2E966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860521   (1061887) от 21.03.2026
-
-VA - Miami Hits 2026 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Brittany Egbert - Odyssey (Extended Mix) [7:33]
-02. Feel - Now We Are Free (Extended Mix) [4:32]
-03. Roman Messer & Philippe El Sisi - The Castle (Extended Mix) [6:54]
-04. Adip Kiyoi - Your Symphony (Extended Mix) [5:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403A24B55B1F8B165E196E9ED90EB1A8FF4BAC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860432   (1061826) от 20.03.2026
-
-VA - Progressive Trance Awakening, Vol. 12 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Sommerson - Ecliptica (Extended Mix) [5:52]
-02. JARR Head - Multiverse (Original Mix) [6:39]
-03. Joren Heelsing - Metal Thought (Radio Edit) [3:53]
-04. Martin Graff & Vicinus - Echoes (Extended Mix) [5:18](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1414C58663D0205FC0354EEAB21EED77E2F597E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860438   (1061804) от 21.03.2026
-
-VA - Ablazing Spring Sessions 2026 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TH3 ONE - 4 PM (Extended Mix) [5:55]
-02. Adam Taylor & Jessica Lawrence - Grace (Extended Mix) [6:25]
-03. Pandora - Over The Rainbow (ED Lynam Extended Remix) [6:49]
-04. Chris Zewicz - Empty Skies (Extended Mix) [6:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FE42F901B461D644323E40796DD52ADEE6BFBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

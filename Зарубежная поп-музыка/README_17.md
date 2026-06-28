@@ -1,3 +1,32 @@
+###  Публикация: 1200823   (794917) от 22.01.2018
+
+Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke On The Water (7:34)
+02. Volcano (5:38)
+03. Jumping (3:38)
+04. The Phantom Of The Opera (6:27)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989E11D5CD52A30515DE4AAE9A8FD9DA42CFBACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509350   (794890) от 12.11.2021
 
 Ани Лорак - Я Жива (2021) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ VA - VA - Eurodance Party 2019 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A5680273630C83B1C28090F03CC55538A61006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203049   (789022) от 31.01.2018
-
-Justin Timberlake - Man of the Woods (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy
-02. Midnight Summer Jam
-03. Sauce
-04. Man of the Woods(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA7FC00E3DFB260A0A246C57D62BCB91959F8A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

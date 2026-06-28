@@ -1,3 +1,90 @@
+###  Публикация: 1578222   (341076) от 25.09.2022
+
+Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Vine Part 1
+02. Heart Of Green
+03. Dietera Dreams
+04. Yage(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43739D1CAE29E751F3BDEC50C361334BA8BEE4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953917   (339724) от 08.11.2015
+
+Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|image+.cue]<New Age, Downtempo,Electronic, Folk, World, & Country>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339724.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monk's Introduction    (05:05)
+02. Hazimari / Sozo    (09:52)
+03. Caravansary    (05:57)(   Читать дальше...   )Жанр: New Age, Downtempo,Electronic, Folk, World, & CountryПродолжительность: 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419088   (339581) от 28.10.2020
+
+Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always (6:43)
+ 02. Our Journey (6:50)
+ 03. Together (6:08)
+ 04. Our Future (Piano Version) (8:26)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B5783210C0169C649B28F7F525D4BE773580D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258076   (338536) от 29.10.2018
 
 VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -656,93 +743,6 @@ Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183565   (307688) от 14.11.2017
-
-Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. A New Day (3:07)
- 02/11. Falling Leaves (3:47)
- 03/11. Dream of Flying (5:55)
- 04/11. Broken Shadows (2:29)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260608   (307615) от 09.11.2018
-
-Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking through Clouds (2:43)
- 02. Touched by Love (3:26)
- 03. Long Way Home (4:15)
- 04. Back to Myself (3:49)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332802   (305513) от 24.10.2019
-
-Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dona Nobis Pacem (8:06)
-02. Gloria (10:50)
-03. Kyrie (7:44)
-04. Mea Culpa (6:19)(   Читать дальше...   )Жанр: Chants, WorldПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030BA877F83BBB5C8F7471F0E1A34767C831191C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,185 @@
+###  Публикация: 1242312   (515834) от 21.08.2018
+
+Проекты - VideoHive - Business Opener - 22120627 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-ролика, презентации или слайдшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8FD6EA2CD1D159CDC785EE355F099ECB0BC76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930421   (514920) от 23.08.2015
+
+Проекты - VideoHive - Corporate Package: 3-in-1 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет для создания презентации компании. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB033FC1AF6D32DB8B5603D7C6376EB8992BD6F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930553   (514912) от 23.08.2015
+
+Проекты - VideoHive - Brilliant TV [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект насчитывает 40 сцен. Включено видео-руководство по настройке проекта. Фотографии, используемые в видео-превью, не включены. Музыка в состав проекта не входит.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5A8D86054E670D0A9F55292A8FD8EA8F2D01D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242544   (514738) от 22.08.2018
+
+Проекты - VideoHive - Multi-Purpose Promo - 20897212 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-ролика, презентации, рекламы товаров и услуг.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4150E3E3BF54B680BA95DDC1FBCAE4B5FB081207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931509   (511696) от 26.08.2015
+
+Проекты - VideoHive - City of Angels [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE34D1CFE1D323CBD33BD022DADC0F0732F68C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931597   (511695) от 26.08.2015
+
+Проекты - VideoHive - Whiteboard Scribing - 2885468 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1E2EC1FE82FECF1BA3A06B82680871FCDC610D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931499   (511690) от 26.08.2015
+
+Проекты - VideoHive - Fashion Broadcast Package [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет для создания портфолио. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A438B69AAB9AB7AFCA2593F43AE126850D8CC472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931559   (511636) от 26.08.2015
 
 Проекты - VideoHive - Fashion Promo - 4672290 [AEP]
@@ -487,188 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:917C36F84FB9C046D99FBB45E0A84F2ED96FC01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935766   (497159) от 10.09.2015
-
-Проекты - VideoHive - Favorite Company Timeline [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации в корпоративном стиле . Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449BA5078037C77D620CB80371A42A6472AB7F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935585   (497093) от 10.09.2015
-
-Проекты - VideoHive - Awards Pack III - 11333607 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой пакет для оформления Вашего фильма. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81D66E6B6E9664A4AB9A73E07400B075A60ED13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820500   (496235) от 10.09.2014
-
-VideoHive - Fluo TV - 5369667 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все для оформления вашего телеканалаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C6FDF2C8DA17480EE46891793710A6436550DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820378   (496225) от 10.09.2014
-
-VideoHive - News Channel - 2640642 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заставка новостейФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79558BE2910571D7ED9FD67BE98E8F8A4F5656A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243046   (495455) от 25.08.2018
-
-Проекты - VideoHive - Journey to History - 22444870 [PRPROJ]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Journey to History - это потрясающий кинематографический шаблон, с помощью которого Вы сможете создать историческую и эпическую презентацию.Формат: PRPROJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF93B3C6706E3CDDA16B8D75D2B48513708152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157842   (495261) от 14.08.2017
-
-Проекты - VideoHive - Luxury Promo - 19489176 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luxury Promo - это проект премиум класса для демонстрации и рекламы люксовых и дорогих товаров. Богатое оформление проекта, дает возможность во всей красе прорекламировать брендовые товары.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A994DCFBBC1492AD0C644B85370B1F10EAB44CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157968   (495161) от 14.08.2017
-
-Проекты - VideoHive - Coffee AE Mockup | Espresso Americano Cappuccino Coffee to Go - 19771274 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coffee AE Mockup | Espresso Americano Cappuccino Coffee to Go - это 4 разных сцены в Ultra HD 4K. Все это в действительности снимали для фильма «Кофе», и эти кадры от туда. Просто вставьте свой логотип в Logo Placeholder. Coffee AE Mockup - прекрасный, мощный и вдохновляющий кинематографический проект АЕ. Его можно использовать как рекламу чайных магазинов, кофе-промо, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCE3C4368D528D04718EDB6F8070B5B1E66426E
 ```
 
 https://mybot314.ru/tekegram_catalog/

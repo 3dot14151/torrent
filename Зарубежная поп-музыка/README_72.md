@@ -1,3 +1,32 @@
+###  Публикация: 1268065   (226386) от 11.12.2018
+
+VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Union Of The Snake
+02. Spandau Ballet - Communication
+03. Echo And The Bunnymen - Lips Like Sugar
+04. A-Ha - Cry Wolf(   Читать дальше...   )Жанр: PopПродолжительность: 02:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96482A043C0376B8E959DCE6F4297B30C99A3A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586716   (226142) от 09.12.2012
 
 Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
@@ -721,35 +750,6 @@ VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084177   (220934) от 18.12.2016
-
-Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен прежде всего как один из "Telex" - электро-поп группы конца 70-х - начала 80-х. После "Telex" продюсировал проект "Deep Forest". Альбом записан и смикширован в студии Synsound, Брюссель (С)2012. Вышел в свет в мае 2013.01. A=440  (4:41)
-02. Electric Dreams  (3:29)
-03. Mac Or PC  (3:18)
-04. I Want My Space  (4:19)(   Читать дальше...   )Жанр: Electronic, Synth-pop, ExperimentalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

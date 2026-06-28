@@ -1,3 +1,116 @@
+###  Публикация: 1108539   (862579) от 25.02.2017
+
+Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashrouk
+02. Darkness
+03. Ethnika
+04. I Love You (Dimitra)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999700   (861972) от 23.03.2016
+
+Иеродиакон Герман (Рябцев) - Псалмы Давидовы (2001) 5CD Box Set [FLAC|Lossless|image + .cue] <Песнопение>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Псалтирь — это одна из книг Библии. Псалмы являются неотъемлемой частью богослужения в храме и молитвенного правила православных христиан. В псалмах ярко выражены многие чувства и переживания человека: покаяние и смирение, сознание своего недостоинства перед величием Божиим, благодарение за Его великие милости, надежда на милосердие Вседержителя и взывание к Нему (   Читать дальше...   )CD 1
+01. Начало обычное (01:24)
+02. Тропари, глас 6 (01:39)
+03. Господи, помилуй. 40 (00:43)(   Читать дальше...   )Жанр: ПеснопениеПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276517   (861540) от 16.04.2020
+
+Максим Дунаевский - Мэри Поппинс, до свидания! (1985) [APE|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра (2:40)
+ 02. Непогода (3:12)
+ 03. Ожившее пианино (0:48)
+ 04. Леди Совершенство (2:35)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB3C06F13106BA441B27A9DDC2BF58FDD299D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189811   (861059) от 06.04.2010
+
+Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109183   (860759) от 26.02.2017
 
 The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
@@ -647,122 +760,6 @@ Various - Полонезы И Вальсы Русских Композиторо
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000891   (852107) от 29.03.2016
-
-John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Work Is Done
-02. Now the Day Is Over
-03. Dream Dance
-04. Goldberg Sleeps(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110628   (852095) от 03.03.2017
-
-Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Step (4:39)
-02. Between Oil And Water (4:55)
-03. Freeze (3:52)
-04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110624   (852093) от 03.03.2017
-
-Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Traditional Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink#1 (8:24)
-02. Pink#2 (6:14)
-03. Pink#3 (9:30)
-04. Grey#1 (11:07)(   Читать дальше...   )Жанр: New Age, Traditional ElectronicПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110720   (852089) от 03.03.2017
-
-Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Nature
-02. Varanasi
-03. Cause and Effect
-04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

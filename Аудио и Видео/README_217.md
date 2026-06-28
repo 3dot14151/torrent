@@ -1,3 +1,177 @@
+###  Публикация: 1423239   (302621) от 12.11.2020
+
+VA - Purple Sky Lounge: Chillout Your Mind (2020) [AAC|~334 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Asavari (Original Mix) (5:21)
+02. Vincent Boot - Code (Original Mix) (6:00)
+03. Ingo Herrmann - Animal Life (Original Mix) (2:33)
+04. Marga Sol - Beautiful Morning (Seven24 & S.A.T Remix) (5:04)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB87AF39A3BF4C073D8D08CB5D56D6D1B75BF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423320   (302620) от 12.11.2020
+
+VA - My Garden Lounge: Chillout Your Mind (2020) [AAC|~336 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
+02. Michael e - Andiamo (Original Mix) (4:42)
+03. The Soul Crusaders - Escape from Reality (5:03)
+04. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789D129D294F26C2465E01E2D401A9B731A98A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423241   (302616) от 12.11.2020
+
+VA - On the Beach Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Get This Right (Original Mix) (2:47)
+02. Michael e - Infinite Beauty (Original Mix) (4:54)
+03. Clive Button - A Wish Come True (Original Mix) (4:42)
+04. Weber & Weber - Close to Nature (5:08)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7D8E2995560338AD0B5DC9A6F7D66EA999BE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423319   (302615) от 12.11.2020
+
+VA - Trip to Paris Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Romantic Paris (Original Mix) (2:28)
+02. Iffar - Des Pois (Original Mix) (4:48)
+03. Massimo Faraò Trio, Philip Harper - Round Midnight (Piano Jazz Trio, Trumpet) (5:20)
+04. Andrea Beneventano - Soul Eyes (4:37)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBF6B108048DAF9C6A45F0CCBEA83945B4293C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423323   (302614) от 12.11.2020
+
+VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [AAC|~309 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Rose for You (Original Mix) (5:39)
+02. Michael e - Tropic of Capricorn (Original Mix) (8:02)
+03. Simon Le Grec - Romantique Part Un (Sensitive Mix) (4:40)
+04. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9663D51DF5177306B7866C90211EBB2B92F38DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423237   (302613) от 12.11.2020
+
+VA - Happy Moments Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Chris le Blanc, Lisa De Andrade - Coracao (4:24)
+02. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
+03. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
+04. The Soul Crusaders - Into the Setting Sun (4:39)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB6E3EC7993ABB39F8C8B105473F81684E6B1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423233   (302414) от 12.11.2020
 
 VA - Black Coffee Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, Lounge, Chillout>
@@ -535,177 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70A24A6008A632696C39605F79246F7462245FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423577   (300088) от 13.11.2020
-
-VA - Restaurant Instrumental 80's Hits (2020) [AAC|~366 Kbps] <Instrumental>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - Crying (3:35)
-02. The Dazees - The Second Time (3:42)
-03. Chateau Pop - Oh Susie (3:15)
-04. The Melodicas - Dance Little Bird (Birdie Dance) (2:09)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959033B5E46254E157743EAD6B04FC4758E87A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423653   (300085) от 13.11.2020
-
-VA - Instrumental Greatest Hits (2020) [AAC|~347 Kbps] <Instrumental>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Disco Explosion - I Love You (3:12)
-02. The Starlite Singers - South Of The Border (Down Mexico Way) (3:04)
-03. Countdown Nashville - That's The Way Love Goes (3:06)
-04. The New Broadway Players - Hello Young Lovers (3:18)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123475BA74A0B3C95B198C1601D6732641D31698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423415   (300084) от 13.11.2020
-
-VA - Coffee Shop Instrumental Greatest Hits (2020) [AAC|~359 Kbps] <Instrumental, Soundtracks>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - Piu Bella Cosa (4:22)
-02. Stockholm Honey - Fernando (3:47)
-03. CDM Project - Mambo Italiano (2:49)
-04. Stockholm Honey - S.O.S. (3:18)(   Читать дальше...   )Жанр: Instrumental, SoundtracksПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089C005748961013B329B8B6C1C275A5CCE23FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423533   (300080) от 13.11.2020
-
-De-Phazz - Music to Unpack Your Christmas Present (2020) [AAC|~328 Kbps] <Nu-Jazz, Trip-Hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sua Alegria (3:06)
-02. Wishticket (3:17)
-03. Winter (2020 Mix) (3:25)
-04. Snowfall (1:31)(   Читать дальше...   )Жанр: Nu-Jazz, Trip-HopПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304F9329D7A40B0CBBB5B3BE2D85AD198B1F4132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423447   (300077) от 13.11.2020
-
-Sophie Ellis-Bextor - Songs from the Kitchen Disco: Sophie Ellis-Bextor's Greatest Hits (2020) [AAC|~329 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_300077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovejet (If This Ain't Love) (2020) (3:47)
-02. Take Me Home (a Girl Like Me) (4:10)
-03. Murder on the Dancefloor (3:50)
-04. Get over You (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E2565777F6175755D0FD00E39E48AF530D4F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077466   (299997) от 01.12.2016
-
-Москва, я терплю тебя  (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва. Редкий солнечный день. Александр надеется отдохнуть от рабочей суеты и заняться любимым делом. Однако клиенты требуют встреч, а девушка жаждет похода по магазинам. Вдобавок ко всему, на один день из Гомеля приезжает бывший одноклассник, который во что бы то ни стало хочет выпить с Саней пиво. Да к тому же срочно требуется помощь ещё одному другу. А тут, вдруг, (   Читать дальше...   )Производство: РоссияЖанр: Драма, мелодрама, комедияРежиссер: Сергей АксёновАктеры: Илья Ермолов, Евгений Морозов, Николай Орловский, Лина Шишова, Марина Забелина, Евгений Волоцкий, Денис Шведов, Ольга Аксёнова, Дмитрий Супонин, Ульяна УрванцеваПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07A6E2F715A1DEB55CA00FD35C89AE726B8C510
 ```
 
 https://mybot314.ru/tekegram_catalog/

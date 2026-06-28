@@ -1,3 +1,264 @@
+###  Публикация: 1429447   (176726) от 06.12.2020
+
+VA - Winter Chillout Lounge 2020 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manoa - Emotions - Way Back Mix (5:13)
+02. Poolwave - Liquid Affair - Open Water Cut (5:36)
+03. DJ Maretimo, Sky Sergeant - Wingsuit - Dreamwave Cut (5:36)
+04. Frank Borell - Distance Voices - Over the Islands Mix (4:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309A48FB98C9AD9B43FBDD7141C103D2122BF81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596145   (173982) от 08.12.2022
+
+VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow World - Undiscovered World (Original Mix) (3:43)
+02. Dellasollounge - Fantasy (Original Mix) (5:23)
+03. Matt Sour - Who Is Lore (5:01)
+04. La Estación Del Mar - Cantos Rodados (4:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668683   (173366) от 13.10.2023
+
+Blank & Jones feat. Coralie Clement - Surround Me with Your Love (2023) 2EP [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surround Me with Your Love (Balearic Beat Mix)
+02. C'est Pas La Mer à Boire
+03. C'est Beau La Vie
+04. Jardin D'hiverЖанр: Downtempo, Lounge, Balearic |Продолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0A751EC1CC7C6C1010B38416E1E8302DFFA022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668978   (173203) от 14.10.2023
+
+Tricky (Adrian Thaws) - Maxinquaye - Reincarnated (1995) 5CD, Remaster, 2023, UMC[FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Abstract Hip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01
+DISC 02
+DISC 03(   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-HopПродолжительность: 5 CD, 03:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CA161F9C6D6FDED235DE84B39281F2D5CAE224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668623   (173192) от 14.10.2023
+
+VA - Musical Landscape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Wind Chime (Original Mix) (5:53)
+02. Peter Pearson - Starlight and Roses (Original Mix) (4:00)
+03. Beamy - Golden (4:07)
+04. Matt Sour - Anima Casus 432Hz (4:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966F58FC31767BB967023E21584A4F41E1CAED11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344273   (170556) от 10.12.2019
+
+DJ Shadow - Our Pathetic Age (2019) 2CD [FLAC|Lossless|tracks + .cue] <Trip Hop, Bass Music, Abstract Hip-Hop, Instrumental, D'n'B, Rock>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drone Warfare (feat. Nas & Pharoahe Monch) (3:43)
+02. Rain On Snow (feat. Ghostface Killah, Inspectah Deck & Raekwon) (3:39)
+03. Rocket Fuel (feat. De La Soul) (3:16)
+04. C.O.N.F.O.R.M. (feat. Infamous Taz, Lateef The Truth Speaker & Gift Of Gab) (2:52)(   Читать дальше...   )Производство: Mass Appeal, Liquid Amber – MSAP0088Жанр: Trip Hop, Bass Music, Abstract Hip-Hop, Instrumental, D'n'B, RockПродолжительность: 01:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0B2B96B816BC82FB8E989CF98418DB5488C315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671928   (170330) от 27.10.2023
+
+VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soul Crusaders - A Fading Memory (6:00)
+02. Clelia Felix - Fleurs Du Desert (Original Mix) (4:17)
+03. Marie Therese - Soul Talk (Original Mix) (4:33)
+04. Marco Moli - Flashpoint (Original Mix) (3:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344680   (169774) от 11.12.2019
+
+VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Silver Drops (Original Mix)
+02. Michael e - It's Your Time (Original Mix)
+03. Charlie North - Early Morning Call (Original Mix)
+04. Finland & Aaskoven - Melzi (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB51E857973064489587521950903A747EA5B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515723   (168477) от 08.12.2021
+
+VA - Gate to Eternity: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour – Calm Before The Storm (04:51)
+02. Free Spirit Muse – Cry For Freedom 432Hz (original mix) (06:41)
+03. Elmara – Entre Nubes (03:59)
+04. Michael E – Noble Savage (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E864E607472A2970AB64BF232042A85CB996F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345456   (167532) от 14.12.2019
 
 VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -484,267 +745,6 @@ Levantis & Friends - The Best Of Lounge: Classic Lounge (2001) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB304A89BFBAEE08CAF91108109A0FD780E6C4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517697   (161664) от 17.12.2021
-
-Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks + .cue] <Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel (4:41)
-02. Boy Meets Girl (Blind Date Part 1) (5:27)
-03. Lots To Say (5:13)
-04. Confessions (4:56)(   Читать дальше...   )Жанр: Downtempo, Easy Listening, LoungeПродолжительность: 01:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA12C30B4A25E65303CBDE4AAF6416969AFB9584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433456   (161239) от 20.12.2020
-
-The Avalanches - We Will Always Love You (2020) [FLAC|Lossless|tracks + .cue] <Trip Hop, Hip-Hop, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Story (feat. Orono) (1:24)
-02. Song For Barbara Payton (1:41)
-03. We Will Always Love You (2:52)
-04. The Divine Chord (feat. Johnny Marr & MGMT) (3:08)(   Читать дальше...   )Производство: EMI, Modular Recordings, Astralwerks – 0849962Жанр: Trip Hop, Hip-Hop, Experimental, Pop, DowntempoПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726D22EAFA97CCE64C38C39899365A11AD00766C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518007   (161098) от 18.12.2021
-
-Buddha Lounge - The Best Of Lounge: Buddha Lounge Vol. 2 (2007) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rag-And-Bone Man (4:54)
-02. Beware Of The Rhythm King (4:32)
-03. Twisted Minds (4:55)
-04. Lunar Mix (4:16)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54ABE3BBC28E784F189C90063984DB26132D496B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518212   (160956) от 18.12.2021
-
-VA - Angel Voices Vol.2 (Enigmatic Chill & Mystic Tracks To Relax) (2021) FLAC [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Ensemble of Mystic Hours (5:00)
-02. Guardians of Secret - Eternal (Epic Voices Mix) (4:05)
-03. Buddhatronic - Back to the Beginning (4:17)
-04. Artenovum - Beyond The Sky (4:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E065A020A6A97C7E88734ECE875BCAD4C2B34CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598026   (160092) от 22.12.2022
-
-VA - Soulful Downtempo  Vol. 2 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrace Chillerz - Stand Still (Beach Vocal Mix) (02:12)
-02. Nylon Champs - Save Me Now (05:08)
-03. Zenyatta - The Sun Shines In Your Eyes (03:28)
-04. Sweet Velvet - The Love Of Yesterday (04:07(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43019DA5F7A22E6A22B3078F7610BF4DEB2391B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598023   (160090) от 22.12.2022
-
-VA - Soulful Downtempo, Vol. 1 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig McKnight - Reach Out (03:22)
-02. Wonderphazz - Every Time You Call Me (02:37)
-03. Silk Factory - Summer Dream (Radio Mix) (02:40)
-04. Climaxx - Slow It Down (Radio Edit) (02:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9E682A8122CDCC9F3205C4958A9E7482A2C61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675785   (159862) от 10.11.2023
-
-VA - Sweet Soulful: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss Deep Sound Lab - Je Sais (French Version) (6:24)
-02. Schwarz & Funk - Phil Me (Original Mix) (5:26)
-03. Lounge Groove Avenue - Hold You Tight (3:45)
-04. Soul Trend - Before It Gets Too Late (4:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D987330D4C108A857F8F6B621FEBEF8EDD08DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599526   (159829) от 23.12.2022
-
-VA - Uplifting Serenity: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Heaven (Sky Spirit Dreamy Mix) (5:16)
-02. Red Chameleon - Sound (Original Mix) (4:46)
-03. Chillson - Don't Look Back in Anger (5:13)
-04. Beamy - Summers Smile (4:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E329465A5B0BC4D38FCB5CEFB2B85F099E3F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599563   (159622) от 24.12.2022
-
-VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - It's Time (Original Mix) (6:05)
-02. Kevin Paczesny - Winter Lights (5:33)
-03. Hölderlin - Lullaby (4:54)
-04. Fantômas - Dull&slow (4:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
 ```
 
 https://mybot314.ru/tekegram_catalog/

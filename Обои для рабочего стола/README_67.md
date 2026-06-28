@@ -1,3 +1,29 @@
+###  Публикация: 958017   (325733) от 19.11.2015
+
+Обои - Сборник обоев. Макро. 2560x1440 - 120 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая подборка качественных обоев на тему макро для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996552E3C32F6F03AFFE165AB03DD54ECEBE82AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957667   (325682) от 19.11.2015
 
 Обои - Fantastic Wallpapers Big Pack 3 [JPG]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B97880CA5818AD3C03FA60C291D8F7808572AEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583448   (313366) от 02.12.2012
-
-Owl Wallpapers (01.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC97FA1BF947B834471A29A05ED843A92A341176
 ```
 
 https://mybot314.ru/tekegram_catalog/

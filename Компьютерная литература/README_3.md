@@ -1,3 +1,220 @@
+###  Публикация: 1861667   (1062775) от 27.03.2026
+
+Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your detailed guide to all things Cisco―a leading player in network technology.
+
+With 800 pages of in-depth content, Cisco Networking All-in-One For Dummies is your one-stop guide to the ins and outs of networks powered by Cisco, a leading maker of networkin solutions including routers, switches, and security. You'll get thorough explanations of how to design, (   Читать дальше...   )Жанр: LANs, Internet & Networking Computer Hardware, Computer NetworkingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5339D589909348E0CC5B74E9DBE370EB93FEBE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861664   (1062774) от 27.03.2026
+
+John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Computer Architecture: A Quantitative Approach, has been considered essential reading by instructors, students and practitioners of computer design for nearly 30 years. The seventh edition of this classic textbook from John Hennessy and David Patterson, winners of the 2017 ACM A.M. Turing Award recognizing contributions of lasting and major technical importance to (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Microprocessor Design, Computer ScienceЯзык: АнглийскийИздательство: Morgan KaufmannФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861659   (1062773) от 27.03.2026
+
+Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами компактное, но вместе с тем весьма насыщен ное руководство по HTML - основополагающему языку разметки, лежащему в основе каждой веб-страницы. Здесь собрана только самая важная и актуальная информация для быстрого и эффективного освоения HTML, от простейших структур до расширенных возможностей современной веб-разметки.
+Вы узнаете, как создавать и структурировать (   Читать дальше...   )Жанр: Компьютерная литература, Программирование, WEB-мастерингИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861655   (1062770) от 27.03.2026
+
+Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062770.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book explains how the Z Garbage Collector was designed, why it was designed this way, the common pitfalls to avoid when using ZGC in JDK 25 and how to get useful information from the garbage collector.
+Java is one of the most widely used programming languages in the world. It is a memory-safe language that completely relies on a good garbage collection (GC) (   Читать дальше...   )Жанр: Software Engineering & Systems Development, Programming & Programming LanguagesЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861651   (1062769) от 27.03.2026
+
+Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Programming Language Pragmatics is the most comprehensive programming language textbook available today, with nearly 1000 pages of content in the book, plus hundreds more pages of reference materials and ancillaries online. Michael Scott takes theperspective that language design and language implementation are tightly interconnected, and that neither can be fully (   Читать дальше...   )Жанр: Compiler Design, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: Elsevier Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861647   (1062768) от 27.03.2026
+
+Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revised for a new second edition, Intermediate C Programming provides a stepping-stone for intermediate-level students to go from writing short programs to writing real programs well. It shows students how to identify and eliminate bugs, write clean code, share code with others, and use standard Linux-based tools, such as ddd and valgrind.
+
+This second edition provides (   Читать дальше...   )Жанр: C Programming, C Programming Language, Programming AlgorithmsЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861882   (1062764) от 27.03.2026
+
+Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте код-ревью продуктивным, вызывающим положительные эмоции процессом, каким он и должен быть. Неважно, проверяют ваш код или же вы проверяете чью-то работу, получите продуманные инструкции, которые помогут избежать напряженных дебатов, неплодотворных придирок и узких мест — всего того, чего мы привычно ждем от код-ревью.
+Научитесь здравому и внимательному подходу (   Читать дальше...   )Жанр: Проектирования программного обеспечения, Тестирование программного обеспечения, Разработка программного обеспеченияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861881   (1062763) от 27.03.2026
+
+Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver code reviews that consistently build up your team and improve your applications.
+
+“Looks Good to Me” offers a unique approach to delivering meaningful code reviews that goes beyond superficial checklists and tense critical conversations. Instead, you’ll learn how to improve both your applications and your team dynamics.Жанр: Software Design Tools, Software Testing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3546C0375A5000D9A1606C4FF580AE985A625B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861411   (1062391) от 26.03.2026
 
 Michael Soltys | An Introduction to the Analysis of Algorithms (2026) [PDF] [EN]
@@ -475,224 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:211257211EE0151B091C91510A42F89CD837F1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859051   (1060903) от 14.03.2026
-
-Н.В. Русин | Освоение STM32 самостоятельно #1. 3-е издание (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта первая книга из серии «Освоение STM32 самостоятельно». Она адресована прежде всего тем, кто начинает знакомиться с микроконтроллерами (далее сокращенно МК) серии STM32, заинтересованными в том, чтобы научиться программировать эти МК как можно быстрее и эффективнее. Но, безусловно, книга будет полезна и тем кто уже имеет некоторый опыт в работе с МК и хочет быть (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64932BA7E4C1332C3A651284464754673107653C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859061   (1060899) от 14.03.2026
-
-Usman Abdur Rehman | Web Forms with React. Build Robust and Scalable Forms with React Hook Form. First Edition (2025) [PDF, EPUB, RTF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Set up web forms from scratch using the most popular React form library in use today, React Hook Form. This book is a succinct and practical guide to building robust, scalable and reusable forms. From social media and YouTube video posts, to product listings on e-commerce sites, most information on the web is entered through forms. In this book, you’ll learn how (   Читать дальше...   )Жанр: Database Storage & Design, Artificial Intelligence, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA737C8D1FEC315291B7E0719BFE6D1F3497DB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858939   (1060761) от 13.03.2026
-
-Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Python book, learn programming the fun way (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn Python coding concepts the fun way through humour, storytelling, and beginner-friendly examples that make your first step into the world of Python programming enjoyable.
-
-Key Features:
-Follow an adorable, illustrated teaching cat with sharp coding instincts as your guide.(   Читать дальше...   )Жанр: Object-Oriented Design, Introductory & Beginning Programming, Python ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD82BF4C118D2256F8DA6CF0CEB0B98C90D9655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858936   (1060760) от 13.03.2026
-
-Valentine G. Nachi, Donald A. Tevault | Linux Shell Scripting for Hackers. Automate and scale your hacking process with bash scripting (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Take your ethical hacking skills to the next level by mastering bash script and building your own hacking tools.
-
-Key Features:
-Automate reconnaissance, exploitation, and post-exploitation workflows using bash scripting for ethical hacking.(   Читать дальше...   )Жанр: Privacy & Online Safety, Computer Network Security, Internet & TelecommunicationsЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FD9240823559EA22366F1C7FE6B890DD409E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858935   (1060759) от 13.03.2026
-
-Rich Yonts | 100 C++ Mistakes and How to Avoid Them (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how to handle errors, inefficiencies, and outdated paradigms by exploring the most common mistakes you’ll find in production C++ code.
-100 C++ Mistakes and How To Avoid Them reveals the problems you’ll inevitably encounter as you write new C++ code and diagnose legacy applications, along with practical techniques you need to resolve them.
-Inside 100 C++ Mistakes (   Читать дальше...   )Жанр: C++ Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143FDE80BF1B136DE0FC3247B4B7F505B429D95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858932   (1060758) от 13.03.2026
-
-Tobias Scheible | Hacking Hardware. The Practical Guide to Hands-On Hardware Pentesting, Red Team Tools, and Prevention for USB, Wi-Fi, Bluetooth, RFID. New Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Defend your system against hardware-based security breaches by thinking like a hacker! With this guide, master the tools you need to develop preventative IT security tests and measures. Learn how to perform penetration tests step by step, and then evaluate and correct vulnerabilities. Get up to speed on awareness training methods and hacking tools for protecting (   Читать дальше...   )Жанр: Computer Hacking, Computer Hardware & DIY, Computer ScienceЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF50A6D6E8583AEE69F9059722613EA40958EADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858930   (1060757) от 13.03.2026
-
-И.М. Гостев | Операционные системы. Учебник и практикум для вузов. 2-е издание (2024) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060757.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время компьютерные науки стремительно развиваются. Новые версии операционных систем появляются каждые полтора-два года, поэтому было принято решение о включении в данный курс такого материала, который не будет устаревать. Содержание курса представляет собой некоторые наиболее общие принципы построения операционных систем, которые были разработаны более (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮрайтФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DBBA21A9049FD3517A954CEFE3F94B006643B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858926   (1060755) от 13.03.2026
-
-Dan Gookin | PCs & Laptops For Dummies (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060755.jpg" />
-</div>
-
-
-###  Подробнее
-
-A one-stop guide to making the most of your desktop PC or laptop computer
-
-PCs and Laptops For Dummies is the essential user's guide to the features your PC or laptop has to offer―and how to use them successfully. With this book as your coach, you can jump over technological hurdles with ease, navigating the hardware and software of your personal computer. (   Читать дальше...   )Жанр: PC Hardware, Microsoft OS Guides, Computer Operating SystemsЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411E5BCF5B5C167673F41F984FDB11231E3DB8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

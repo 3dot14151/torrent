@@ -1,3 +1,117 @@
+###  Публикация: 1219793   (707998) от 17.04.2018
+
+VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, Merengue, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi - Echame La Culpa 2:54
+02. Mc Fioti - Bum Bum Tam Tam 3:34
+03. Daddy Yankee - Dura 3:21
+04. Joey Montana - Suena El Dembow 3:16(   Читать дальше...   )Жанр: Reggaeton, Zumba, Merengue, OtherПродолжительность: 03:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721C3E354321A56B7C6E4EB4CA57D65364EB4B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026014   (707946) от 13.06.2016
+
+Llewellyn - Native American Gold (2016) [MP3|320 кб/с] <New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River Mermaid (32:33)
+02. The Old Woman of the Sea (16:07)Жанр: New age, Relax, Meditative |Продолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58D7E760473D25C2AE0E56B8A18AEDE8DB3513B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025753   (707940) от 13.06.2016
+
+Eloy Fritsch (ex.Apocalypse) - 8 альбомов (1997 - 2012)[FLAC|Lossless|image + .cue]<Modern Classical, Ambient, New Age, Experimental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaia
+02. Neutron Star
+03. Sunshine
+04. Exogenesis Part I(   Читать дальше...   )Жанр: Modern Classical, Ambient, New Age, ExperimentalПродолжительность: 08:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FAC25CB0FBA3C1B1E41166D80A4028B131BA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025882   (707939) от 13.06.2016
+
+Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way Of Sakayama (5:51)
+02. Free Tibet (6:38)
+03. Temple Lounge (4:52)
+04. Lhasabeats (6:00)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE566EB8E1827EF4B94C81E55BAD2E92DA64FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025666   (707843) от 13.06.2016
 
 Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
@@ -628,122 +742,6 @@ Tim McGraw - Tim McGraw And The Dancehall Doctors (2002) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:510A7312CF6310DF4927B5673E6F1693B9FAB52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286909   (703615) от 07.03.2019
-
-Wendy Stark - Child of Transference (1999) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animus Anima (4:21)
-02. Prelude (4:17)
-03. Child of Transference (4:33)
-04. Expectations (7:04)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D21304C04C32300FD678206D627B8672E5A8CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330984   (703486) от 02.05.2011
-
-Winifred Atwell - 4 альбома (1964 - 2009) [MP3|320 kbps]<Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-1964 - Revival (Australian Bluebird Single)
-1969 - Chartbusters(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6B64A4FA62D54F249E2D1D16AB810C82CF4681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402348   (701706) от 14.08.2020
-
-VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calming Music Sanctuary - Relieving Stressful Feelings (03:27)
-02. Meditation Music Zone - Spriritual Rest (03:39)
-03. Beautiful Magical Music Collection - Funny Mood (03:31)
-04. Japanese Zen Shakuhachi - Welcome to Ancient China (03:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6836328A4593F649DE0C8B36848E42129EC04EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132586   (701126) от 09.05.2017
-
-Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murmuration (feat. Josie Quick & Jordan Schug)
-02. What We Hold Dear (feat. Josie Quick & Jordan Schug)
-03. Appalachian Waters
-04. Ascension (feat. Jordan Schug)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC5CC93C49FD00E21A8175B2D8FCEEA12B8DC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

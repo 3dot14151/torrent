@@ -1,3 +1,174 @@
+###  Публикация: 1507946   (798142) от 06.11.2021
+
+VA - 50 Italian Standards, vol. 3 (2021) [AAC|~316 Kbps] <Nu Jazz, Lounge, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Francesca Gramegna - Nel Blu Dipinto Di Blu (Volare) (4:21)
+02. Papik, Walter Ricci - Viento 'e Terra (4:18)
+03. Papik, Alan Scaffardi - Canzoni Stonate (4:00)
+04. Papik, Danny Losito - Figli Delle Stelle (3:53)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC27E3263D1A4B387112A27B88CD2D9A142CCD99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507941   (798138) от 06.11.2021
+
+VA - 50 Italian Standards, vol. 1 (2018) [AAC|~326 Kbps] <Nu Jazz, Lounge, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - E la chiamano estate (3:12)
+02. Melania - Tu Vuo Fa L'americano (4:04)
+03. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)
+04. Sweet Caterina - Parole Parole (4:22)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy ListeningПродолжительность: 03:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D413D12EC02267F57C594FE9D320CAA7178CDF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507993   (798122) от 06.11.2021
+
+Паника в Нидл-парке / Паника в Шприц-парке / The Panic in Needle Park (1971) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби — наркодилер, Хэлен — молодая художница. Они знакомятся и влюбляются друг в друга. Вскоре Хэлен тоже становится наркозависимой. Отношения молодых людей далеки от романтичных — грязные притоны, стычки со служителями закона и постоянная нехватка денег. Они мечтают завязать, уехать и начать жизнь с чистого листа. Но сделать это оказывается не так легко…Производство: США / Didion-Dunne Inc., Gadd Productions Corp.Жанр: драмаРежиссер: Джерри ШацбергАктеры: Аль Пачино, Китти Уинн, Алан Винт, Ричард Брайт, Кил Мартин, Майкл МакКлэнатан, Уоррен Финнерти, Марсия Джин Кертц, Рауль Хулиа, Энджи ОртегаПеревод: ДвухголосыйСубтитры: английские (full, SDH)Продолжительность: 01:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433C3AB2782898881C62E521E5BCF3694EF94481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507841   (798115) от 06.11.2021
+
+Electric Light Orchestra - ELO 50th Anniversary Vol. 1 (2021) [AAC|~342 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Radio (5:04)
+02. Do Ya (2012 Version) (3:56)
+03. 10538 Overture (40th Anniversary) (2012 Version) (4:42)
+04. Strange Magic (2012 Version) (3:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC939AEC37D560EA1780584DF79B1FC6D172A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508142   (798019) от 07.11.2021
+
+VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Elements - Let's Start (Sun Rising Mix) (3:40)
+02. Marc Hartman - Into the Stone (Original Mix) (4:16)
+03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (Living Room's Dubalicious Edit) (4:11)
+04. Peter Pearson - Chilled to the Heart (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508123   (798018) от 07.11.2021
+
+VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vovich, Sexy Girl - Don t Break my Heart (Victor Vine Remix) (3:19)
+02. The Groover - Show Me (Playa D'en Bossa Edit Mix) (4:02)
+03. King Bizza Keys - Ticket to Europe (5:54)
+04. Monodeluxe - Playa del Sol (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508124   (798017) от 07.11.2021
 
 VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
@@ -557,174 +728,6 @@ Gorky Park - Ballads (2021) [AAC|~339 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76AB5631047DB98CAF1303EBCDCD34E56BDCCDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508399   (797505) от 08.11.2021
-
-Gorky Park - Alternative and Progressive (2021) [AAC|~345 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UFOria (Remastering 2021) (3:03)
-02. Five Wheel Drive (Remastering 2021) (4:27)
-03. Liar (Remastering 2021) (4:18)
-04. Taiga (Instrumental) (Remastering 2021) (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417B344F91F1DD894734C1E276CECA535E929C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508298   (797459) от 08.11.2021
-
-VA - Italo Disco Legends - Hits & Secret Songs (2021) [AAC|~335 Kbps] <Dance, Disco, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie G. - Llama L'amor (Disco Fox Mix) (4:15)
-02. Linda Jo Rizzo - Passion (3:14)
-03. Grant Miller - California Train (3:37)
-04. Linda Jo Rizzo - Lovegame (Secret Track) (3:33)(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 02:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C827FF47F59A4DFF31C44D318A24624C9E60E167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508368   (797458) от 08.11.2021
-
-Gorky Park - The Best (2021) [AAC|~345 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello My Friend (Remastering 2021) (3:45)
-02. Moscow Calling (Remastering 2021) (4:57)
-03. Stare (Remastering 2021) (4:44)
-04. Bang (Remastering 2021) (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C71AAC8730E34071ECA4AD7EA06DEB7695D96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508406   (797451) от 08.11.2021
-
-VA - Трибьют t.A.T.u. "200 по встречной" (2021) [AAC|~320 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Даня Милохин - Не догонят (2:02)
-02. Монеточка - Мальчик-гей (2:33)
-03. Вера Брежнева - 30 минут (3:15)
-04. White Punk, ЛСП - Клоуны (2:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5CA66638681693AEC75D8FDA50D62CDC1DC650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508334   (797391) от 08.11.2021
-
-Палмер / Palmer (2021) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выйдя из тюрьмы, бывшая звезда школьного американского футбола Эдди Палмер возвращается в родной городок. Парень надеется наладить свою жизнь, но сталкивается с проблемами прошлого и неожиданно становится наставником мальчика, которого оставила мать.Производство: США / Sidney Kimmel Entertainment, Hercules Film Fund, Rhea Films (II)Жанр: драмаРежиссер: Фишер СтивенсАктеры: Джастин Тимберлейк, Джуно Темпл, Джун Скуиб, Дин Уинтерс, Алиша Вейнрайт, Винн Эверетт, Райдер Аллен, Дж.Д. Эвермор, Джейк Бреннан, Джесси БойдПеревод: Дублированный, авторский одноголосыйСубтитры: русские (full), английские (full SDH), украинские (full)Продолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033E61C951D2BED7957FDD509FB0D107BFDAFA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508527   (797384) от 08.11.2021
-
-Шершах / Shershaah (2021) WEB-DL [1080p] ATV [AVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797384.jpg" />
-</div>
-
-
-###  Подробнее
-
-История обладателя награды Парам Вир Чакра, индийского солдата капитана Викрама Батры, прославившегося и сделавшего своё имя нарицательным во время Каргильской войны в 1999 году.Производство: Индия / Dharma ProductionsЖанр: биография, боевик, военный, историяРежиссер: ВишувардханАктеры: Сидхарт Мальхотра, Киара Адвани, Шив Пандит, Сахил, Шатаф Фигар, Анил Чаранджитт, Радж АрджунПеревод: Авторский одноголосыйСубтитры: английские (full, SDH)Продолжительность: 02:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6779408360F742DD73B7F7F9F4B64F27F38D1E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

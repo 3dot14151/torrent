@@ -1,3 +1,32 @@
+###  Публикация: 1321446   (458937) от 24.08.2019
+
+Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Forgot That You Existed
+02. Cruel Summer
+03. Lover
+04. The Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236B1FB0165DEFA232A069459D0CA6BD3966BE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568793   (457908) от 10.08.2022
 
 VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock, Afro Beat, Synthpop>
@@ -718,35 +747,6 @@ VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571049   (438192) от 19.08.2022
-
-Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Heat Of The Night	5:20
-02. On The Tray (Seven Years)	3:45
-03. Little Girl	3:11
-04. You And I	6:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFB3AD000826BA8145134B30FAF8DE49FF37AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

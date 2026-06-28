@@ -1,3 +1,29 @@
+###  Публикация: 1251114   (420035) от 30.09.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (120) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DD2EE78D1E7732EA94972B2A5A453DAE8E0FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947357   (419902) от 16.10.2015
 
 Обои - Ultra HD (4K) Mix 2 [JPG]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D86DA3B0727302335D7464F4F0A2104D7561916A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561395   (406418) от 16.10.2012
-
-Computer Desktop Wallpapers Collection (16.10.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678A3EB47FFB46B9C8F8CE918B3C24436BC5D459
 ```
 
 https://mybot314.ru/tekegram_catalog/

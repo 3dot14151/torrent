@@ -1,3 +1,177 @@
+###  Публикация: 1430456   (173733) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Waiting for the Horizon (Dreamful Sky Mix) (5:23)
+02. Jean Mare - Sine Cascading (Sunset Chill Mix) (4:24)
+03. The Space Ensemble Project - Galileo in Minds (Great Chillout Mix) (5:48)
+04. Guardians of Secret - Guinean Warmth (Mystic Voice Mix) (4:59)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611DD723571F58742C4BCFCA32B9CF1179F38A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430469   (173730) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Blue Sun (5:34)
+02. Jean Mare - Ageless (Allmira Enigmatic Mix) (4:53)
+03. Lebensart - Atmo Chant (Voices from Nowhere Mix) (6:30)
+04. Richard Bonnee - Voices of the Misty Dream (Soundcloud Chillout Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430421   (173715) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum, Svetlana - Virus to Heaven (Svetlana Vocal Mix) (5:06)
+02. Jean Mare - Another Orbit (Your Dreams Mix) (3:35)
+03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
+04. Richard Bonnee - Frost Point Zero (Deep Space Groove Mix) (7:02)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EED5B2DB0C8080B4F6E32EDF117CD0760CDB672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430476   (173705) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pascheba - Vi Ser (Chillout Cut) (5:22)
+02. For Found Future - Hypnotic Dreams (Transformation Downbeat Cut) (5:17)
+03. Jean Mare - Space Experience (Electronic Sphere Mix) (5:55)
+04. Houie D. - Sun over Gobi (4:07)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB43432A15DC714448DB0C0E8325196140FBCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670116   (171720) от 22.10.2023
+
+Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressive Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171720.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Sundown:
+01. Another World (Floorplay Remix) (6:03)
+02. Ionized (5:31)
+03. Let There Be Light (7:17)(   Читать дальше...   )Жанр: Goa Trance, Progressive TranceПродолжительность: 02:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430477   (170775) от 10.12.2020
+
+VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Found Future - The Forest Dreams (Artenovum Piano Mix) (5:02)
+02. Marie Therese - Black Swan (3:37)
+03. Jean Mare - Lost Enigma (Smooth Spherical Mix) (7:30)
+04. Artenovum - Far East (Atmospheric Voices Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD50B74D4EFF7EEF1F378F09FDC885A09456FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515212   (170608) от 06.12.2021
 
 VA - A Tribe Called Kotori 1 (2018) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
@@ -568,180 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28A20A090C6AB2118A7EA85712AEAC60CD570840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430684   (169850) от 11.12.2020
-
-Владимир Высоцкий - Оригинал первый (апрель 1972 года) (2020) [AAC|~172 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Певец у микрофона (4:14)
-02. На маскараде (2:44)
-03. Марш аквалангистов (1:41)
-04. Оловянные солдатики. Детская песня (2:08)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430708   (169845) от 11.12.2020
-
-Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 2] (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «Ну о чём с тобою говорить!..» (1:14)
-02. «Эй, шофёр, вези - Бутырский хутор…» (1:17)
-03. «До нашей эры соблюдалось чувство меры…» (1:30)
-04. «То была не интрижка…» (1:23)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430693   (169820) от 11.12.2020
-
-Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 1] (2020) [AAC|~181 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кругом пятьсот (МАЗы) (4:06)
-02. Песня канатоходца (3:37)
-03. Увижу восход! (Чёрные бушлаты) (4:05)
-04. Песня про телевизор (3:58)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60035249F427957830AAA0B734A88779D11F0F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430702   (169816) от 11.12.2020
-
-Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 1] (2020) [AAC|~184 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Письмо на выставку (2:23)
-02. Письмо в деревню (2:22)
-03. Бал-маскарад (1:31)
-04. Песня завистника (1:40)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A58803936ADA17AC5135B1DEDEB083ED8BF66A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430796   (169808) от 11.12.2020
-
-Taylor Swift - evermore (2020) [AAC|~284 Kbps] <Pop, Alternative>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. willow (3:35)
-02. champagne problems (4:04)
-03. gold rush (3:05)
-04. ‘tis the damn season (3:50)(   Читать дальше...   )Жанр: Pop, AlternativeПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3A6F65C672E91B09E7C263E157940B5B590D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430706   (169801) от 11.12.2020
-
-Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 3] (2020) [AAC|~191 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «Один музыкант объяснил мне пространно…» (1:51)
-02. Письмо (2:38)
-03. «Давно смолкли залпы орудий…» (2:09)
-04. После чемпионата мира по футболу. Разговор с женой (1:24)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4847C494DA2892B6459F67E87310F62418534AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

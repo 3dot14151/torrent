@@ -1,3 +1,176 @@
+###  Публикация: 1220538   (704507) от 19.04.2018
+
+VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pen T. - Feel Me
+02. Page Two - Deeper
+03. Qamil Stello - Ring My Bell
+04. Phatt - Donter(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0342340E582C6B9CA4DD6E55714786A2CB0069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220546   (704496) от 19.04.2018
+
+VA - EDM For Running And Workout 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Milani feat. Rhett Fisher - Where The Stars Go (Alex Pizzuti Remix Edit) 03:03
+02. Southree feat. Penny Hannant - Gone (Radio Edit) 03:33
+03. Samma feat. Leonardo Dragusin - Shadow Of Love (Radio Edit) 03:01
+04. Stephan Vegas - Right Now (Radio Edit) 03:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2F38F658081EF8832EAEFAFB08DBC08F7BA923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026523   (704070) от 15.06.2016
+
+VA - Disco Fever (2016) [MP3|320 кб/с] <House, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Bang Bang (5:25)
+02. Jack Le Funk - The Disco Ride (5:25)
+03. Serial Thrilla - A Lil Higher (5:46)
+04. Audio Jacker - Shake That Ass (5:33)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: House, Disco, Nu-DiscoПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0548F07CA7F598E0C07C437D352CA5799B7B244C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287511   (703694) от 07.03.2019
+
+VA - 8 марта '09 Танцевальная версия (2009) [MP3|320 Kbps] <House, Euro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Mind - Baker Street (3:19)
+02. Basshunter - Angel In The Night (2:54)
+03. Jf Ray London - Blue (Da Ba Dee) (3:36)
+04. Commercial Club Crew - La Isla Bonita (Crew 7 Radio Remix) (3:00)(   Читать дальше...   )Жанр: House, Euro House, Progressive HouseПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D65ED55AD8A47A4811FC4916BC0699637BE3DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287512   (703616) от 07.03.2019
+
+VA - 8 марта '10 Танцевальная версия (2010) [MP3|320 Kbps] <House, Euro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pakito - Harmony (3:33)
+02. Sunrise Inc. - Forever in My Soul (Extended Mix) (Extended Mix) (6:45)
+03. Scooter - Ti Sento (4:03)
+04. ATB pres. Flanders - Behind (2:50)(   Читать дальше...   )Жанр: House, Euro House, Progressive HouseПродолжительность: 01:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C89D7F7324E9537F01D8DD9E3B2AC68289F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220665   (702553) от 20.04.2018
+
+Marfen - Around The Garden (2018) [MP3|320 Kbps] <Electronic, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Iris (07:01)
+2. Lilac (06:30)
+3. Rio (06:34)Жанр: Electronic, Progressive HouseПродолжительность: 00:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D78616EE6480CC7A43E01CFDD5FBC1AAD55E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288082   (699758) от 09.03.2019
 
 VA - Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) [MP3|320 Kbps] <Progressive House>
@@ -568,186 +741,6 @@ Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506572   (686130) от 07.06.2012
-
-VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micah The Violinist - Sunshine of Ibiza - Les Schmitz and Alex Del Amo Remix (6:48)
-02. D-Wave - Calinda - Menini & Viani Remix (7:30)
-03. Jochen Pash - Voyage - Dj PP Remix (7:30)
-04. Coqui Selection - Push Me! - Original Mix (6:54)
-05. Drumcomplex - Insomniac - Original Mix (8:34)
-06. Alex Del Amo - We Are Family - DJ PP Remix (7:21)
-07. Haroun Hickman - Lets Be Free - David Amo & Julio Navas Remix (6:16)
-08. Funkagenda - Antidote - Sonny Wharton Remix (6:25)
-09. Andy Vajna - Sensations - Javi Del Valle Remix (7:07)
-10. Jesse Voorn - Pop - Midnite Sleaze Remix (6:35)(   Читать дальше...   )2012Жанр: House, Club HouseПродолжительность: 02:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222610   (685305) от 29.04.2018
-
-VA - Dirty Club Grooves 2018 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cmrk - Down The Hill (Original Mix)
-02.Tamara Hall - Shimmer (Original Mix)
-03.Ashley Izco - Down (Original Mix)
-04.Soulshade - In Your Arms (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2720212E3DCDDF76C640CAF1487637FAA635532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134820   (685082) от 17.05.2017
-
-VA - Big Room EDM Anthems 2k17 (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matic - Outta My Head 04:31
-02. Shytsee - Thrones (Radio Edit) 03:09
-03. Matty Menck - Rain (Frowin Von Boyen Remix) 06:13
-04. Axel Raven - Arena 05:05(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1DD7451C187CC925E6302D951133A86DB2F9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135064   (684986) от 17.05.2017
-
-VA - Ibiza Lounge Funk House Music 2017, Vol. 01 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angela Puxi - Housing to Jazz (Sinan Mercenk's Radio Edit) 04:02
-02. Zebra! - Waiting for the Sun 05:13
-03. Natasha Watts - Go Slow (Mark Di Meo Rework Instrumental) 06:37
-04. LaX feat. PV - Love & Pride (House Device & Walterino Mix) 05:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1659F9D78C4D703AC7051E4CE7A02F8050A4B588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135038   (684978) от 17.05.2017
-
-VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <House, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bes & Meret - Abendsonne (Sax Sunset Mix)  4:18
-02.  Rust Blossom - In The Sun  4:06
-03.  Patrick De Giorgi - You Go (Radio Edit)  3:41
-04.  Victory Girl - Deep Tech 1  5:19(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 02:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289747   (684336) от 17.03.2019
-
-VA - Miami 2019 (2019) [MP3|320 Kbps] <Tech House, Deep Tech, House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emery Warman - People Keep On (Original Mix)
-02. Sergio Parrado & Chinonegro - La Siesta (Original Mix)
-03. Sami Wentz - Shade Of Black (Original Mix)
-04. Melanie Ribbe - Get It Right (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep Tech, House, TechnoПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264741AE40F2BB335ED563E08F5900F1DFBC661
 ```
 
 https://mybot314.ru/tekegram_catalog/

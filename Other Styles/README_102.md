@@ -1,3 +1,134 @@
+###  Публикация: 1156770   (526403) от 09.08.2017
+
+VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Romantic Strings and Orchestra with Don Lusher, Trombone - (I Love You) For Sentimental Reasons (5:09)
+02. Richard Alden, His Piano and Orchestra - Skylark (3:16)
+03. Peter Knight and His Orchestra - Let's Fall In Love (2:48)
+04. Acker Bilk, His Clarinet and Orchestra - Stranger On The Shore (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEF36D17E61E90A596B0322167A80882761716F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369569   (526326) от 31.07.2011
+
+VA Gnawa - Mali - Ceremonies rituelles des Dogon (1994) [MP3|320 kbps]<gnawa, african music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526326.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:09] 01. Gomboy - Tambours de lutte
+[06:07] 02. Sendi ni - Chant de circoncision
+[13:29] 03. Na ba - Chants de mariage
+[10:17] 04. Badiu ni - Chants de funerailles des musiciens
+[12:46] 05. Ya go - Chants de finerailles des musiciens
+[09:22] 06. Bulu - Fete des samailles
+[10:44] 07. Pelu nu - Chants satyriques des jeunes filles1994Жанр: gnawa, african musicПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E0F2B102B52434F64A0FB901DB6E06D6488407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369564   (526324) от 31.07.2011
+
+VA Gnawa - Night Spirit Masters (1990) [MP3|128 kbps]<gnawa, african music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526324.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01.  Baba L'Rouami
+[05:14] 02.  Mimoun Mamrba
+[02:59] 03.  Tramin
+[06:28] 04.  Chabako
+[04:13] 05.  Moulay Brahim
+[04:09] 06.  Toura Toura Tour Kelilah
+[06:01] 07.  Baniya
+[04:50] 08.  Jillala
+[02:15] 09.  Said Fafy Drum Solo
+[03:14] 10.  Toura Toura Tour Kelilah(   Читать дальше...   )1990Жанр: gnawa, african musicПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2580F2E7236B990CA8B4CECD88C07338777E0724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369576   (526315) от 31.07.2011
+
+VA Gnawa - Gbaya Music - Songs For Reflection (1995) [MP3|~241kbps]<gnawa, african music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526315.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:16] 01.  Garafi
+[03:25] 02.  Naa-zambara
+[04:27] 03.  Naa-koro
+[03:51] 04.  Dai-te
+[04:02] 05.  Yaa-kuri
+[04:36] 06.  Ndio
+[11:40] 07.  Mbodomon (1)
+[01:49] 08.  Mbodomon (2)
+[03:28] 09.  Kenge
+[03:17] 10.  Gima-biro(   Читать дальше...   )1994Жанр: gnawa, african musicПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11DD4962AEBA3C9C1D7946C5824A805778870C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 369822   (526234) от 31.07.2011
 
 Omar Bashir - Discorgaphy (10 albums, 1997-2006) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
@@ -629,122 +760,6 @@ Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native ame
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929001   (520309) от 18.08.2015
-
-Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1999-2003) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charra Broiled (1:29)
-02. Woman Can Drive (2:39)
-03. Moribund Mifune (3:49)
-03. Kid Fried (4:49)(   Читать дальше...   )Жанр: Score |Продолжительность: 05:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA806027F35FEC68DB1432C76D90CFF2A8398C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929489   (519591) от 19.08.2015
-
-Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Session
-02. Long Rain
-03. Elements
-04. Four(   Читать дальше...   )Жанр: Ambient, New Age, ElectronicПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0FC368631D7B7502B7DA1CAEA2D6AF60098B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241684   (519211) от 18.08.2018
-
-Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Endless Sky
-02 Deep Blue
-03 A Distant Light
-04 1924(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAA5CDDB7A9948EF2730499F87311FF71C9CB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241643   (519197) от 18.08.2018
-
-Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Warfare [02:19]
-02. Chaotic Dream [02:06]
-03. Champion [02:48]
-04. Ready to Launch [04:00](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209B01B71DB8E78245AF4D0DA86FB294FCDE551D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1427802   (182505) от 29.11.2020
+
+VA - Slow Down: Ibiza Grooves (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Falling Apart (5:09)
+02. Marco Moli - French Love Poem (5:08)
+03. Marco Moli - Just A Fool (3:18)
+04. Marc Hartman - Under My Skin (5:21)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE619F6FB42B919B911C4629A1C5596DB1BA67D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427661   (182500) от 29.11.2020
+
+Marc Hartman - Emission of Love (2016) [AAC|~348 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peope of Beijing (4:35)
+02. Become the Sky (4:44)
+03. Late Late Summer (6:10)
+04. I Can't Stop (5:14)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8092ECA5FB36DAAFAE8A019963023B730F163C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427792   (182483) от 29.11.2020
+
+Marc Hartman - The 5th Element (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Closer to My Heart (4:18)
+02. Voices Inside (5:22)
+03. Bright Like the Night (4:58)
+04. Wait for Me (5:32)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788BDC1ECDEB8BDC1EF267479E01E13EA9A364D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427674   (182474) от 29.11.2020
+
+Marc Hartman - Music of the Third Kind (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Fall in Love (4:42)
+02. Into the Stone (4:16)
+03. Hearsay (5:24)
+04. Angels in the Sky (5:15)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B7F5F3B09118DE35BA15D770B190024C74C0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427623   (182393) от 29.11.2020
+
+VA - Pop Ambient 2021 (2020) [AAC|~304 Kbps] <Electro, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank Gloss - Of A Vessel (4:31)
+02. Yui Onodera - Cromo 5 (3:33)
+03. Thore Pfeiffer - Grape (3:29)
+04. Morgen Wurde - Mittsommer (5:23)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 02:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDAAC263177780405272BF11C59AC7CA27C6B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427698   (182320) от 29.11.2020
+
+Marc Hartman - 4 Seasons to Chill (2017) [AAC|~340 Kbps] <Lounge, Ambient, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow (4:24)
+02. My Morning Sun (3:49)
+03. My Offences (4:03)
+04. Marc Hartman, Airily - Endless Summer (Shining Sun) (4:01)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E24698DC4C33EEC81AC7CB70AC829EF344F2AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427822   (182169) от 29.11.2020
 
 Анна Герман - Лучшее (2011) [AAC|~326 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - Trip to Munich Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Chillout;
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2217F6BCD417FA8C0E5D83057E207EEE97F04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428114   (180832) от 01.12.2020
-
-VA - Pop Vocal Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Chillout; Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - A Tu Lado (Original Mix) (4:06)
-02. Florzinho, Ma'deevah - Take Me Higher (Original Mix) (3:32)
-03. Man In A Room, Sanura - Thief of Time (Original Mix) (4:36)
-04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5122005915D52B0DE0C30BF02346DB725A058D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428410   (180195) от 02.12.2020
-
-Mirko Hirsch - Missing Pieces: Return to Neon (Special Edition) (2020) [AAC|~347 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Neon (4:33)
-02. Pandora's Box (Remix) (5:02)
-03. Heart on Fire (4:34)
-04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD3F1E7A056E06B2E0AC8CFF63E6D2360A9A9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428518   (180123) от 02.12.2020
-
-VA - Cinderella, vol. 3 (50 Lovely Lounge Cookies) (2019) [AAC|~329 Kbps] <Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightgroovaz - Mesmerized (Original Mix) (4:29)
-02. Bossasonic - Better Never (Original Mix) (3:56)
-03. Jazzamor - Dreamer (Original Mix) (6:00)
-04. The K2 Project - Drinks at Sunset (Original Mix) (4:48)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC3E07C2AA4201391D1489F5807279F4B77DBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428497   (180114) от 02.12.2020
-
-VA - Cinderella, vol. 2 (50 Lovely Lounge Cookies) (2019) [AAC|~313 Kbps] <Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Café - Sundae Dream (Original Mix) (4:31)
-02. Yves St. Pierre - Only Presence (Original Mix) (2:53)
-03. Flashbaxx - So Close to Midnight (Original Mix) (5:23)
-04. James Butler - Montmartre Impressions (Original Mix) (2:04)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7DA9EB7FB95EF50DAD74E8F29D9839046B649B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428345   (180087) от 02.12.2020
-
-VA - Modern Blues (2020) [AAC|~313 Kbps] <Rock, Blues>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Keys - Lonely Boy (3:14)
-02. Juan Karlos - Jenny (5:29)
-03. VINTAGE TROUBLE - Run Like The River (3:40)
-04. Grace Potter And The Nocturnals - Paris (Ooh La La) (3:15)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9571C670ADF7D2F98B908D0327C173ED4A12ED33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428344   (180073) от 02.12.2020
-
-VA - Blues Masters (2020) [AAC|~310 Kbps] <Rock, Blues>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Fortunate Son (2:20)
-02. S.G. Goodman - The Way I Talk (3:38)
-03. Tom Petty - Runnin' Down A Dream (4:22)
-04. Nathaniel Rateliff & The Night Sweats - I Need Never Get Old (4:14)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB15BD81F6F81D560D86B7FB573B656F582429B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

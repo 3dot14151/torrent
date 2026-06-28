@@ -1,3 +1,61 @@
+###  Публикация: 987227   (925900) от 17.02.2016
+
+VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - In Da Club (3:15)
+02. Kanye West - Love Lockdown (4:31)
+03. Nelly - Hot In Herre (3:49)
+04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367673   (915508) от 16.03.2020
+
+Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hip-Hop, Electronic, Experimental, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Door (feat. Panther Modern) (3:32)
+02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!) (4:06)
+03. Da Godz Mus B Krazy (3:20)
+04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes) (3:56)(   Читать дальше...   )Производство: Zef RecordzЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368027   (914250) от 17.03.2020
 
 2 Chainz - Rap Or Go To The League (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
@@ -687,64 +745,6 @@ VA - Chillhop Essentials - Spring (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC7682B4708B829FC1B914B923AE1DB363AADB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537858   (665381) от 18.03.2022
-
-Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takeover
-02. Open Ya Mind
-03. Certified (feat. Demrick)
-04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541315   (642729) от 04.04.2022
-
-Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock, Trap, Anime Core>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are (Not) Alone
-02. Otaku Pride
-03. Kawaii Suicide (feat. IN6N)
-04. Darkest Days(   Читать дальше...   )Жанр: Electronic Rock, Trap, Anime CoreПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126B0F7DD5B46DB1D6215324E49E854380EF7D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

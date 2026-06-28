@@ -1,3 +1,159 @@
+###  Публикация: 1028815   (685947) от 24.06.2016
+
+Голограмма для короля / A Hologram for the King (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Клей — муж, отец, бизнесмен. Но его бизнес терпит крах, его брак трещит по швам, и он не знает, где взять деньги на оплату обучения дочери. Чтобы избежать банкротства и разорвать замкнутый круг, Клей отправляется в Саудовскую Аравию, где он надеется продвинуть свой дерзкий технологический проект. Во время томительного ожидания встречи с королем Алан познает (   Читать дальше...   )Производство: Великобритания, Франция, Германия, США, МексикаЖанр: Комедия, драмаРежиссер: Том ТыкверАктеры: Том Хэнкс, Александр Блэк, Сарита Чоудри, Сидсе Бабетт Кнудсен, Трэйси Фэирэуэй, Джейн Перри, Том Скеррит, Михаэль Бараль, Льюис Райнер, Александр МолкентинПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3FA86121C93C2CF196A914428933E0414E7D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289590   (685567) от 16.03.2019
+
+Коллекция аудиокниг: Любовно-фантастический роман 2 (2002-2018) [M4A|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция любовно-фантастических романовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBA2722C2AEA84F8FEC2894B4486FBEEEE40E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289587   (685563) от 16.03.2019
+
+Коллекция аудиокниг: Любовно-фантастический роман 1 (2002-2018) [M4A|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция любовно-фантастических романовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9977B66488D737804D0A4F288314F97C685C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289586   (685559) от 16.03.2019
+
+Коллекция аудиокниг: Российская фантастика, фэнтези, мистика, ужасы 7 (2002-2018) [M4A|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция российской фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B84BA20356654786E3DE7BD5B92999F4949006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289592   (685557) от 16.03.2019
+
+Коллекция аудиокниг: Фантастика, фэнтези, мистика, ужасы. Сборники (1990-2018) [M4A|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция сборников фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A451DF0A3B86D7D6CE7CBAA8B2CE0B9FA32C6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289584   (685555) от 16.03.2019
+
+Коллекция аудиокниг: Российская фантастика, фэнтези, мистика, ужасы 8 (2002-2018) [M4A|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция российской фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC53ED54FB18D2115E57C66F9B30B0797862D9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893230   (685527) от 13.05.2015
 
 Сельма / Selma (2014) BDRip [576p] iPad
@@ -528,180 +684,6 @@ VA - Deep Lounge Beats (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8EBD39FFC943D7F74E532D584DC4A6710C6CCD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535583   (682625) от 08.03.2022
-
-Marga Sol - Earth (Ethnic Ambient Sounds of the Earth) (2014) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Sky (4:17)
-02. Deep Forest (4:29)
-03. Golden Sunrise (4:53)
-04. History of Love (2:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984755E47F1100C5B28FCB55F03A474808422BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535588   (682620) от 08.03.2022
-
-Marga Sol - Butterflies (Sophisticated Lounge Music) (2014) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol, Project Blue Sun - Prayer for Love (Love Mix) (6:56)
-02. Let Me Be (4:28)
-03. On the Beach (4:09)
-04. Kisses in the Night (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A1A0B718D41A13C7E9C888AA55CC73EE307E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535712   (682615) от 08.03.2022
-
-Darren Rahn - Sonic Boom (2016) [AAC|~337 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Luxe (4:34)
-02. Darren Rahn, Jonathan Fritzen - Sonic Boom (4:20)
-03. Darren Rahn, Rick Braun - Funk Avenue (5:51)
-04. Darren Rahn, Julian Vaughn - Losing You (For Wayman) (4:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1154862F738478B7538EE9AF65BEF10B68627B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535613   (682608) от 08.03.2022
-
-VA - Absolutely Brilliant (2022) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Gold - Another Love (1:53)
-02. Blue Blood - Far Away from You (1:45)
-03. Ramon Gee - I Bring My Body (2:01)
-04. Le Griffe - I Understand (1:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AEFE64D26DE45D8427FBA3305895537FA1514E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535714   (682604) от 08.03.2022
-
-Darren Rahn - Rock The World (2022) [AAC|~352 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock The World (4:15)
-02. Cry (4:31)
-03. On Wings Of Hope (4:46)
-04. Table For Two (5:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04364098F6137488E0D4D7C353E9B732878D4B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535679   (682510) от 08.03.2022
-
-Bryan Adams - Pretty Woman - The Musical (2022) [AAC|~309 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Hollywood (3:38)
-02. Anywhere But Here (2:58)
-03. Something About Her (2:33)
-04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15AAFB2D29BFBD700966834175E345A9587BE45
 ```
 
 https://mybot314.ru/tekegram_catalog/

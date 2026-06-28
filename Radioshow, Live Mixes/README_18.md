@@ -1,3 +1,205 @@
+###  Публикация: 1194030   (261815) от 23.12.2017
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour - Best of (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Moraes - Die Hölle
+02. Mauro Picotto & Riccardo Ferri - New Time, New Place (New World Punx Remix)
+03. Ray Kajioka - Chair Encounters Keyboard (Markus Schulz Big Room Reconstruction)
+04. Solid Stone - Detox(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97DF54CD8F8E97B6D8B36B83AE529FA98FA4B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838436   (261000) от 22.11.2025
+
+Martin Garrix - Live @ Red Rocks Amphitheatre, United States (2025-10-23) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & R3HAB & Skytech & Luciana vs. Empire Of The Sun - Voodoo vs. Walking On A Dream (Martin Garrix Mashup) (Intro Edit)
+02. Martin Garrix & Dyro - Latency
+03. Matisse & Sadko & Vion Konger - ID w/Martin Garrix ft. John & Michel - Now That I've Found You (Acappella) w/Martin Garrix & MOTi ft. Jenny Wahlström - Virus (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99B04E7250296C6A6FE62DE0462C7A000B375D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838158   (257984) от 21.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 667 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
+02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
+03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
+04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9E50E4E75D130972F7573A3319C9997A6D7A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838156   (257983) от 21.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1252 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryder – Time
+02. Cosmic Gate & AVIRA & Sarah de Warren – How This Ends
+03. York & John Grand & Lea Key – Indestructible
+04. Embers Of Hope & Cris Von X – Still The One(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F164DDDA11674D04A87F8B9F06D6CAC2822B909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837249   (256835) от 15.11.2025
+
+Markus Schulz - Global DJ Broadcast World Tour: Australia (2025-11-13) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz pres. Dakota - Faultline
+02. Markus Schulz - Forgotten Element
+03. Markus Schulz presents Dakota - Kanan
+04. Veerus - Beyond(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 01:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D325EF6E32AAD1750DB2271357F516BE063D271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837337   (256741) от 16.11.2025
+
+ARTBAT - Live @ Cercle Odyssey Paris, France (2025-05-29) [MP3|320 Kbps] <Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT - Tabu
+02. ARTBAT & JOA - The Spot
+03. ARTBAT & Benny Benassi - Love Is Gonna Save Us
+04. ARTBAT - Dance(   Читать дальше...   )Жанр: Techno, Melodic HouseПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EE5AB49FDB13E7681FB6430A55F8D2D5E8B0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837007   (255881) от 14.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 666 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
+02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
+03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
+04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB6BAD684584810EC7177A5CCD9BD837858F369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836997   (255877) от 14.11.2025
 
 VA - Armin van Buuren - A State Of Trance 1251 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -540,209 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1122 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94185C135A921A78DBDDB379E67D8B500E8F68E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629892   (241439) от 28.04.2023
-
-VA - Armin van Buuren - A State Of Trance 1118 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Angry JP8
-02. LKX - Vision
-03. AVIRA ft. Dan Soleil - Wildfire (Progressive Pick)
-04. DIM3NSION - Phoenix(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1E831EB40A7B16C1FB6B4BB7FEB867D500B63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619805   (241226) от 17.03.2023
-
-Rencontre Nocturne - Journey to Paradise Again (2022) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Hubbard - Commando (Swedish House Mafia Intro Edit) w/Axwell - I Found U (feat. Max'C) (Instrumental Mix + Dubfire Remixes)
-02. Envotion - Macho Madness w/Steve Lawler - That Sound (Sebastian Ingrosso & Steve Angello Remix)
-03. Da Others - Flight 887 (Andrea Saenz Robots Memory 7E Mix) w/Mike Monday - Salieri Complex
-04. Cirez D - On Off w/Axwell - Feel (   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 06:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669CF685A43C25C4D2CB31E72B1D0F7B61E82CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462913   (240850) от 16.04.2021
-
-Kryder & DEADLINE - Kryteria Radio 286 (2021-04-14) [MP3|192 Kbps] <House, Progressive House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kryder played:
-01. Kryder & Natalie Shay - Rapture
-02. Redfield - Guidance
-03. John Dahlbäck - When I'm Scared(   Читать дальше...   )Жанр: House, Progressive House, Tech HouseПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AD60FC172579C4C10FDE42E845FF09DC0DCD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626349   (240844) от 14.04.2023
-
-VA - Armin van Buuren - A State Of Trance 1116 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMR LVE - Heart Of Mine
-02. Delerium ft. Sarah McLachlan - Silence (Kryder Remix)
-03. Ferry Corsten - Connect
-04. Armin van Buuren ft. ALBA - State Of Mind(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522007E13636A85A6B1D5D9DEDA15A19C9380337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637879   (239358) от 07.06.2023
-
-Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kbps|~245 Kbps (V0),image+.CUE] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lostly ft. Amber Traill - No Direction Home (Gary Maguire Remix) (05:55)
-02 Galaxy of Blue (Extended Mix) (04:53)
-03 Fall (Extended Mix) (05:05)
-04 Dance with The Devil (04:25)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC27F7B2EAA2027B03B2CA633E4C754529E616C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638625   (239017) от 09.06.2023
-
-VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lufthaus - Soul Seekers
-02. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
-03. Eelke Kleijn - Transmission (Joris Voorn Remix)
-04. Perry O'Neil - Kubik(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707D0012EEAF28CF4C03A9664BE251385EF04208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637063   (238404) от 03.06.2023
-
-VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane feat. C-Systems & Hanna Finsen – Let The Universe Surround You (Extended Mix) (Modena)
-02. Trending Track: DJ Misjah & DJ Tim – Access (Joris Voorn Remix) (Armada)
-03. KASIA – Universal Nation (Sezer Uysal Remix) (Armada Electronic Elements)
-04. Armin Van Buuren & The Stickmen Project – No Fun (Goom Gum Remix) (Armada)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E9A0F2B7CF05F8D9E9F4D641EE02604D7D1276
 ```
 
 https://mybot314.ru/tekegram_catalog/

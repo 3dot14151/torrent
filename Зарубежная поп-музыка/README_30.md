@@ -1,3 +1,32 @@
+###  Публикация: 1135317   (682914) от 18.05.2017
+
+Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Reine De Saba (3:08)
+02. Tombe La Neige (2:56)
+03. Love Me With All Your Heart (3:01)
+04. You Don't Have To Say You Love Me (2:31)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 45 RPM, LP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135136   (682910) от 18.05.2017
 
 Цвет Алоэ - В белом платье (2017) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -713,35 +742,6 @@ VA - 100 Greatest Breakfast Songs (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB09DBFEEFCB2A8BF1D162527F5D19BA2D1A722E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031380   (668773) от 03.07.2016
-
-Omer Ozgur - As Is (2009) Reissue, 2016 [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Feeling
-02. Always Been This Way
-03. Don't Let Them
-04. Whom Should I Trust(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189F9511EC98BA5429529A619A1E208FFCFA1587
 ```
 
 https://mybot314.ru/tekegram_catalog/

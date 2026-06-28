@@ -1,3 +1,119 @@
+###  Публикация: 1361320   (955810) от 19.02.2020
+
+Andrew Lockington - The Kindness of Strangers / Реальная любовь в Нью-Йорке (Complete Motion Picture Score) (2019) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955810.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:21| 01. Awake
+|02:08| 02. Awake (Alternate Version)
+|00:21| 03. Hospital
+|00:54| 04. The Chair / New York(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C157CEFAFE70203CA54BA3219542C7E06F7110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361024   (955629) от 19.02.2020
+
+Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classical, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life (5:19)
+02. Love to the Piano (4:22)
+03. Feeling (4:48)
+04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361026   (955601) от 19.02.2020
+
+Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <Instrumental, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (3:50)
+02. Voulez-vous (4:35)
+03. Super Trouper (4:34)
+04. Money, Money, Money (3:10)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980852   (954559) от 30.01.2016
+
+Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)] <New Age, Folk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight Days A Week 02:14
+02. A Hard Day's Night 02:28
+03. Hello Goodbye 03:04
+04. In My Life 03:02(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524D3F72F0A4F4E40F7E9B3F4CCD98707A71E89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 209464   (954261) от 30.01.2016
 
 VA - Sax & Sex (2000) [APE|tracks+.cue]<Instrumental>
@@ -629,119 +745,6 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4692ED12A9D7D08E9BE075026E3DE87FDE15FF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089263   (950141) от 04.01.2017
-
-VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack + Karaoke (2016) [MP3|320 кб/с]<Score, Soundtrack, Karaoke>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stevie Wonder - Faith (Karaoke Version) (02:38)
-02. Seth MacFarlane - Let’s Face The Music And Dance (Karaoke Version) (02:54)
-03. Scarlett Johansson & Beck Bennett - I Don’t Wanna (Karaoke Version) (01:23)
-04. Reese Witherspoon & Nick Kroll - Venus (Karaoke Version) (02:30)(   Читать дальше...   )Жанр: Soundtrack, Score, Karaoke •Продолжительность: 02:24:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065D3C44291178DB6BB98A3565CDEB6435541E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089451   (950047) от 04.01.2017
-
-Б. Гребенщиков - АЭРОСТАТ - цикл передач Радио России (2017) Выпуск 607 (обновляемая) [MP3|192 Kbps]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гребенщиков давно хотел познакомить массового слушателя с альтернативной западной и российской музыкой, не вписывающейся в нынешний FM-формат. Для борьбы с засильем попсы в эфире БГ выбрал самое массовое радио страны – «Радио России»: его слышно не только на 1-й кнопке проводного вещания, но и на длинных, средних волнах и УКВ во всех без исключения регионах страны. (   Читать дальше...   )Продолжительность: 45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC6495CBB764D50A4CEFC891354306546C1691F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981985   (949993) от 02.02.2016
-
-StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home
-02. Universe
-03. One Journey
-04. Smooth Sailing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC9BA8ECA72DDAE54CE202C8FA79419DD75B4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362314   (949692) от 23.02.2020
-
-Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949692.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:32| 01. We Have a Fan Club?
-|04:19| 02. Entering Camp
-|03:03| 03. I Got Top Bunk
-|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
 ```
 
 https://mybot314.ru/tekegram_catalog/

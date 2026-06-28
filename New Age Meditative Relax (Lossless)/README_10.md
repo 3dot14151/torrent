@@ -1,3 +1,90 @@
+###  Публикация: 1013850   (777102) от 05.05.2016
+
+Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|image + .cue] <Ambient, New age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart of Noise, Pt. 1 (feat. Rone)
+02. The Heart of Noise, Pt. 2
+03. Brick England (feat. Pet Shop Boys)
+04. These Creatures (feat. Julia Holter)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623C865CCDEE8DD8CC752447C6D0310E09CB01A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014351   (776494) от 07.05.2016
+
+Orbis Mundi - Adia (2000) [FLAC|Lossless|tracks] <New Age, Folk Rock, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Violin    03:29
+02. Olushegun    03:43
+03. Orbis Mundi    03:54
+04. Theme from Orbis Mundi    03:32(   Читать дальше...   )Жанр: New Age, Folk Rock, Modern ClassicalПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37661A547F453042E57E1395BD7A02B304CEE2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014389   (776486) от 07.05.2016
+
+Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me    03:38
+02. Silver Lights    04:42
+03. Philadelphia    04:34
+04. Reflection Of The Soul    03:41(   Читать дальше...   )Жанр: New Age, Downtempo, Chill OutПродолжительность: 00:01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023EAF47CA71B3DDD4A5A82F8F426F35ADF22367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014354   (776481) от 07.05.2016
 
 Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
@@ -658,93 +745,6 @@ Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native amer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215791   (756349) от 27.03.2018
-
-Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	In Spiritu Sancti	2:58
-02.	Ave Verum	2:43
-03.	Believe In You	4:31
-04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018615   (755677) от 20.05.2016
-
-Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Ride [5:49]
- 02. Eagle And Condor [4:52]
- 03. Cool Breeze [6:59]
- 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522131   (755290) от 09.01.2022
-
-Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haibe Ajike Amar Sakal
-02. Be Brave
-03. Dure Aji Bahu Dure
-04. My Silence Speaks(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
 ```
 
 https://mybot314.ru/tekegram_catalog/

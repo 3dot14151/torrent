@@ -1,3 +1,32 @@
+###  Публикация: 1371287   (890008) от 31.03.2020
+
+Thorbjorn Risager & The Black Tornado - Come On In (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Come On In (00:04:09)
+02 - Last Train (00:03:25)
+03 - Nobody But The Moon (00:04:18)
+04 - Two Lovers (00:05:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7416479198F2B7AE8BF69C76C18B9D3FB8B1847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102469   (889570) от 10.02.2017
 
 Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <Blues Rock>
@@ -713,35 +742,6 @@ VA - NOW Soul Classics (2020) [MP3|320 Kbps] <Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75A7EB8B8AA99E26160CA5BB2F02A6B1F9BC843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378794   (844791) от 26.04.2020
-
-VA - NOW Blues Classics (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844791.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.John Lee Hooker - Boom Boom (2:40)
-2.B.B. King - Heartbreaker (Album Version) (2:33)
-3.Muddy Waters - You Shook Me (2:44)
-4.Sam "Lightnin'" Hopkins - Back To New Orleans (Album Version) (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243E09B53CBEA2C2D8021209FCDFB1B59FB580F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

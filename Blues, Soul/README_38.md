@@ -1,3 +1,37 @@
+###  Публикация: 594643   (133138) от 27.12.2012
+
+Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1995 - Lost In The Blues
+1998 - Almost Crazy
+2000 - Earthquakes,Thunder & Smiling Lightning
+2002 - Down To My Bones
+2003 - Tales of Love and Desperation
+2007 - Wildcats Under My Skin
+2010 - UndercoverЖанр: Blues |Продолжительность: 06:26:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595119   (132146) от 29.12.2012
 
 Fiona Boyes - 7 Альбомов (2000 - 2011) [MP3|320 кб/с]<Blues>
@@ -722,35 +756,6 @@ Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AC503FAB7F85115BD1AB19AE737E33C537C2764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698689   (118263) от 10.02.2024
-
-The Mighty Howlers - Back On Track (2024) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Or Love (04:31)
- 02. Love Me Babe (04:22)
- 03. Gotta Keep Running (04:54)
- 04. Can't Do No More (04:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A459E3F859811E05E7CA2C4D7DE6811BAECAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

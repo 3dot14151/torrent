@@ -1,3 +1,121 @@
+###  Публикация: 326652   (663383) от 23.05.2011
+
+Sandra - The Complete History (1974 - 2002) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Maria magdalena
+02 In the heat of the night
+03 Little girl
+04 Innocent love
+05 Hi hi hi
+06 Loreen
+07 Midnight man
+08 Everlasting love
+09 Stop for a minute
+10 Heaven can wait(   Читать дальше...   )Жанр: PopРежиссер: AllАктеры: SandraПеревод: ОтсутствуетПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340929   (662512) от 24.05.2011
+
+Avril Lavigne - Smile (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
+</div>
+
+
+###  Подробнее
+
+А́врил Рамо́на Лави́н(Avril Ramona Lavigne, род. 27 сентября 1984 года) — канадская певица, автор-исполнитель, дизайнер и актриса. Её дебютный альбом, Let Go, вышел в 2002 году и был продан тиражом 16 млн копий. Последующие работы — Under My Skin (2004) и The Best Damn Thing (2007) — возглавляли мировые чарты, в том числе американский Billboard 200. Пять песен Лавин — «Complicated», «Sk8er Boi», «I’m With You», «My Happy Ending» и «Girlfriend» — занимали первые строчки мировых чартов. По всему миру было продано более 30 млн копий её альбомов. По состоянию на январь 2011 года, она являлась одной из самых популярных певиц в США с 11,5 млн проданных альбомов. Журнал Billboard поместил Лавин на 10-е место в рейтинге артистов 2000-х, а также на 28-е место по коммерческому успеху. Её четвертый студийный альбом Goodbye Lullaby вышел в марте 2011 года.
+20 мая состоялась премьера клипа на композицию «Smile». По сюжету Аврил ходит по улицам Нью-Йорка и забирает кусочки разбитого сердца у разных людей, делая (   Читать дальше...)Жанр: МузыкаРежиссер: Avril LavigneАктеры: Avril LavigneПеревод: ОтсутствуетПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7C888440056BF612BB77FC83B82A3E4AEFD781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138176   (661920) от 31.05.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 1) (2017) WEB-DLRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Первая часть посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции именно этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
+- Разбивка по трекам отсутствует.Celine Dion – Because You Loved Me
+Destiny’s Child – No, No, No Part 1
+Sinead O’Connor – Nothing Compares 2 U
+R. Kelly – I Believe I Can Fly(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6374237F159D68D63705EA5820FA8B297E8A6C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513918   (660496) от 22.06.2012
+
+Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF034B147119700524983F5A60E1DFA0BF9E78AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513929   (660453) от 22.06.2012
 
 Ажур. Summer love / Ажур. Summer love (2012) [H.264/720p] HDTVRip
@@ -585,113 +703,6 @@ David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682051   (628538) от 24.07.2013
-
-David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628538.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034983   (628296) от 16.07.2016
-
-Сборник - Bollywood Summermix (2016) BDRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний сборник клипов из индийских фильмов01. Bajirao Mastani (Priyanka Chopra)
-02. Bahubali (Tamanna Bhatia)
-03. Krishnam Vande Jagadgurum
-04. Arinthum Ariyamalum (Sameksha)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан, Каджол, Варун Дхаван, Крити Санон и др.Перевод: ОтсутствуетПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682205   (626553) от 25.07.2013
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626553.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD421C610E6F4DD6353911FCB38464DBA4E377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682204   (626153) от 25.07.2013
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAFAF352FB7AC80F5C204F0BD52AAE305377F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

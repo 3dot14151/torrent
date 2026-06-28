@@ -1,3 +1,29 @@
+###  Публикация: 1334106   (298649) от 27.10.2019
+
+Jean Giraud | Артбук по вселенной Edena / Moebius Library: The Art of Edena (2018) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки Jean "Moebius" Giraud по вселенной EdenaЖанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EB40CED06A332E44596810F58F7D6BBC33BBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333959   (298577) от 27.10.2019
 
 Frank Miller | Артбук по комиксу Город грехов / The Art of Sin City (2014) [CBR] [EN]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52AE9D1948B230A1A3B816E278DD49E06D9BB16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338292   (269699) от 15.11.2019
-
-Tim Seeley, Steve Seeley | Артбук по миру Хи-Мен и властелины вселенной / The Art of He-Man and the Masters of the Universe (2015) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки по миру "Хи-Мен и властелины вселенной"Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63052D53883A4AF1BA833626474904638290D68
 ```
 
 https://mybot314.ru/tekegram_catalog/

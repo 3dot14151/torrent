@@ -1,3 +1,61 @@
+###  Публикация: 1286591   (711019) от 03.03.2019
+
+VA - ZYX Italo Disco Collection 26 (3 CD) (2018) [MP3|320 Kbps] <Italo-Disco, Disco, Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711019.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Den Harrow - Tell Me Why (Extended Version) 8:04
+02. Danny Keith - I Feel Right (Day Version) 7:52
+03. Tension - My Dream (Vocal Version) 5:46(   Читать дальше...   )Жанр: Italo-Disco, Disco, Euro-Disco, Synth-PopПродолжительность: 03:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE3E974B7A0D7E5DF25442E8F1C28B30B9CC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131107   (710525) от 04.05.2017
+
+Pink Project - 2 Albums (1982-1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместный "Диско" проект от итальянских исполнителей: Stefano Pulga (диджей и композитор, клавишник, продюсер), гитариста Luciano Ninzatti, клавишника-программиста Matteo Bonsanto и звукорежиссера Massimo Noe.01. Scratchin' Superstition (5:28)
+02. Stand By Every Breath (5:16)
+03. Duel (5:04)
+04. Hypnotized (5:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B452DE6E36EEA3C90D4CA87562214D1753C134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131152   (710516) от 04.05.2017
 
 Mark Ashley - I Will Not Forget You (2017) [MP3|320 Kbps] <EuroDisco, Pop>
@@ -687,63 +745,6 @@ VA - Disco Revival (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32D6A8763074DFD9E6212129F51766C8599FBBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221049   (698602) от 22.04.2018
-
-VA - Italo Disco New Revival Volume 1-10 (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birizdo I Am - I Love Italo Disco (Extended Version) (6:49)
-02. D. White - All the Story Is History (Extended Version) (7:09)
-03. Romantic Avenue - Disease (feat. Heaven42)Жанр: Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 12:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F2A503206C49F93E25B37CFCD3C7DDF554D7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221211   (696804) от 23.04.2018
-
-Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Possess Me (6:03)
-02. Happy Alive And Kicking (5:39)
-03. Lollipop Sucker (Instrumental) (3:23)
-04. Living And Dancing (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80CF80B3431FB39E5090A3658EE1AB0EDEE5E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

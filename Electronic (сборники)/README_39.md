@@ -1,3 +1,148 @@
+###  Публикация: 1496441   (873030) от 17.09.2021
+
+VA - Summer Escape: Deep House Mixtape (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Magitman - Knock About
+002. Joe Morris - Moments In The Snow
+003. Gmj - Rite Of Passage
+004. Xxxy - Eroma(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410A6149EDB3BBDD3989AA1E518EA8B459FF3731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496449   (873026) от 17.09.2021
+
+VA - The Sedated Harmony (2021) [MP3|320 Kbps] <Vocal House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873026.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Riot Ten & Whales - Save You
+002. Yves V - Echo
+003. Belcampo - Your Kissing
+004. Laminin Music - Moments Of Bliss(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 07:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8197D781DE746837423E90D5B72872D8A14529E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496444   (872856) от 17.09.2021
+
+VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Spendel - Afoxe Verao
+02. Mkk - Still Tryna
+03. Jusscomplex - Last Orders
+04. Five Seasons - Let Me Drive(   Читать дальше...   )Жанр: Lounge, Chillout, Relax, DowntempoПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B96E25E67707F6A71DA8838608AA38A4C576BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374386   (872687) от 10.04.2020
+
+VA - Beatport Tech House: Electro Sound Pack #53 (2020) [MP3|320 Kbps] <Tech House, EDM, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Niereich & Shadym - Element 115
+002. S3ktor - Up Quark
+003. Vanepatch & Talee - Levitate (Original Mix)
+004. Exos - Green Beat (Original Mix)(   Читать дальше...   )Жанр: Tech House, EDM, TechnoПродолжительность: 13:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB7E52D4D7E830765D79D1CAB9D51FD17E51E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998045   (872094) от 18.03.2016
+
+VA - Mental Effect (2016) [MP3|320 кб/с] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel & Digitalx - Winterburn (Extended Mix)
+02. Cactus Arising - Transfer at the Speed of Light
+03. Space Cat & Pixel - Clear Test Signal (Pixel & Vini Vici Remix)
+04. Armin Van Buuren, W&W - If It Ain't Dutch (Extended Mix)(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 11:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F4DBA330DE355B3EF7BF1D9202D826EC6B48B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997721   (872085) от 18.03.2016
 
 VA - Spring Sound Party (2016) [MP3|320 кб/с] <Dance, Club>
@@ -600,151 +745,6 @@ VA - Relax to House Vol. 6 (House Edition) (2017) [MP3|320 Kbps] <House, Bass Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D99171F50CF5979AF0695A455461AF9A3BF5413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375374   (865501) от 14.04.2020
-
-VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tom Nihil - Pain
-003. Joao Ferrari - I Wanna (Original Mix)
-004. Stephan Crown - Rinasab (Original Mix)
-005. Erofex - Foggy (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 12:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019C1D838BE21BF5F5F5F8F07897BD2C2B8A69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375375   (865500) от 14.04.2020
-
-VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samsara - Rites Of Autumn (Original Mix)
-002. Semantic Maze - Fine (Original Mix)
-003. Drym - Hypnotic (Extended Mix)
-004. Enea Marchesini - Sensations (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 12:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4457668E8A0E5FB08E82FD2A8775D6FCA3EAD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874167   (864994) от 02.03.2015
-
-VA - Music For Everyone - Club House Vol.3 (2015) [MP3|320 кб/с]<House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864994.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Robert Feelgood - Make It Hot (Block & Crown Clubmix)
-2. Jay Vegas - Say To Ya (Original Mix)
-3. S.O.S. Band - The Finest (CalumHood Remix)
-4. John Gordon - One Love (Original Mix)(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 01:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6D10EC8B107AC12C4128EB38567F57F00E8B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999360   (864827) от 22.03.2016
-
-VA - Sexual Healing Lounge: Best of Erotic Tandra Cafe for Lovers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pattern Mixer – Sex at the Beach – Dowbeat Buddha Chill and Tandra Mix
- 02. Vegan T-Bones – Dirty Mind – Season 6 Mix
- 03. Urban Felix – Watch Me – Intimate Shower Relaxation Mix
- 04. Guilty by Innocence – Thief of Heart – Fading Lights of Sexyness Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D459BF1A87AE81AF7DB60FCC031A4B002774A720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375759   (864011) от 15.04.2020
-
-VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Antaluk - Gita Sun
-002. Estefano Haze - Spirituality In Action
-003. Sunrazers - Karma
-004. Eguana - Holographic Artifact(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 12:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

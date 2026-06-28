@@ -1,3 +1,32 @@
+###  Публикация: 977139   (967795) от 19.01.2016
+
+VA - Luxury Soul (2015) Box set [MP3|320 кб/с] <Funk , Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glen Goldsmith - Don't Delay (12'' Version) (4:48)
+02. Calvin Richardson - Home in a Minute (5:32)
+03. Shirley Jones - Because You Love Me (3:57)
+04. Butch & Rhonda Coleman - Here I Go Again (4:28)(   Читать дальше...   )Жанр: Funk , SoulПродолжительность: 02:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45BDE27037E43A33513237CEA81CCE775286038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978916   (962154) от 24.01.2016
 
 Zucchero - Una Rosa Blanca (2013) (2 CD) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
@@ -716,35 +745,6 @@ Layla Zoe - Hoochie Coochie Woman (2007) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10445C0F0CB2304A17141F76D64401C2567A8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366324   (923857) от 11.03.2020
-
-Gin Soaked Boy - Blues in Your Bones (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues in Your Bones
-02. Pocket Full of Nothing
-03. Fate Don’t Fail Me Now
-04. Satisfies My Soul(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0235D1E058735C32C60FCB7CA0104143D3AA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

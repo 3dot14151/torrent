@@ -1,3 +1,61 @@
+###  Публикация: 1375267   (867195) от 13.04.2020
+
+Yan Tregger - Catchy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On (3:28)
+02. Catchy (4:13)
+03. Gimmicky (3:08)
+04. Sunny Wing (3:08)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781708687E29F01498F94C2B58860F305482A8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375313   (867186) от 13.04.2020
+
+Guy De Lo And His Orchestra - The Pink Panther Discostar (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pink Panther (From Philadelphia) (4:08)
+02. Give Me Some Mo! (6:46)
+03. Simone (4:22)
+04. The Pink Panther (Discostar) (3:00)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421365476D77162DF64A22B65D04430E223DC388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497542   (864945) от 22.09.2021
 
 Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -690,64 +748,6 @@ Peter Griffin - 2 Albums, 4 Singles & EPs (1977-1981) [MP3|320 кб/с] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD3C8529B469BDDC04BC108253FD8B9104EBB184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379682   (837699) от 30.04.2020
-
-Melophonia - Limelight Disco Symphony (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight Disco Symphony (11:33)
-02. The Frog And The Toad (4:01)
-03. Feeling Good (5:59)
-04. Love Is A Many Splendored Thing (3:48)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B39582E7B4DA952D6FA759EED5CAE1D89FB1123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113538   (836339) от 12.03.2017
-
-Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman 5:22
-02. Pretty Young Girl 5:47
-03. Kiss You All Over, Baby 5:53
-04. For Your Love 5:54(   Читать дальше...   )Жанр: Disco, EuroDiscoПродолжительность: 04:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AB8E50783869D43944005AC0CA00E9DEA99405
 ```
 
 https://mybot314.ru/tekegram_catalog/

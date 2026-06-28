@@ -85,6 +85,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468366   (1017073) от 08.05.2021
+
+Nikolai Rimsky-Korsakov - Symphony No. 3 (1997) [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rimsky-Korsakov - Symphony No. 3 *
+01. Moderato assai (12:54)
+02. Scherzo. Vivo (6:05)
+03. III Andante - IV Allegro con spirito (14:45)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096D5ED2E93A0CE8BFCAB366BF81B275B23AB31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468927   (1016760) от 10.05.2021
 
 Maria Grinberg - Beethoven - Piano Sonatas 18, 19, 20, 21, 22 (2006) [FLAC|Lossless|tracks] <Chamber, Piano, Sonata>
@@ -733,39 +762,6 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD2 [MP3|224
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA002127F6FA465811EE59225737B49C6AC6960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603655   (996922) от 15.01.2013
-
-Antonio Lucio Vivaldi-New Discoveries Modo Antiquo Federico Maria Sardelli (2008-2012)[FLAC|Lossless]<Chamber, Vocal>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996922.jpg" />
-</div>
-
-
-###  Подробнее
-
-В библиотеке Государственного Университета Турина хранятся редкие музыкальные коллекции, среди прочих манускриптов содержащие более 450 работ Вивальди, многие из которых подписаны композитором. Некоторое из них никогда не записывались, и были специально отобраны и исполнены для этого диска.
-(   Читать дальше...   )01. Concerto in re minore 'Il Gran Mogol', RV 431a - 1. Allegro non molto [03:22]
-02. Concerto in re minore 'Il Gran Mogol', RV 431a - 2. Larghetto [01:55]
-03. Concerto in re minore 'Il Gran Mogol', RV 431a - 3. Allegro [02:07]
-04. L'inganno trionfante in amore, RV 721 - Act II, Scena X, Aria 'Son nel mar d'aspiri tormenti' [03:33]
-05. L'inganno trionfante in amore, RV 721 - Act II, Scena II, Aria 'S'odo quel rio che mormora' [05:01]
-06. Concerto in la maggiore RV 817 - 1. Allegro [03:51]
-07. Concerto in la (   Читать дальше...   )Жанр: Chamber, VocalПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D990C9FA48968D75B43A0A908588EC714C5A370
 ```
 
 https://mybot314.ru/tekegram_catalog/

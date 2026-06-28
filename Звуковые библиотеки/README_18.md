@@ -1,3 +1,34 @@
+###  Публикация: 494106   (249285) от 09.05.2012
+
+Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека ударных - Analogue Drums - BuckShot (KONTAKT/EXS24/WAV Samples - 24 bit, 44.1 kHz, stereo) - Винтажная ударная установка 1970s Gretsch Stop-Sign Maple с тарелками фирм Zildjian и Sabian. Установка записывалась в большом, старом деревянном театре, это позволило получить более плотное и широкое звучание. Как обычно при записи использовалось только лучшее оборудование, включая микрофоны Neumann, винтажные предусилители Neve 1064. а также компрессоры DBX 160 "VU".
+Этот продукт требует полной версии Kontakt 4 и выше.
+Дата выпуска: 30.04.2012
+Формат: KONTAKT/EXS24
+Релиз-группа: KRock
+Качество: 24 bit, 44.1 kHz, stereoНазвание программы: Analogue Drums - BuckShotЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834239   (248584) от 02.11.2025
 
 Звуковые библиотеки - Producer Loops - Alliant Audio - Neo Soul Essentials Vol 2 [WAV]
@@ -656,33 +687,6 @@ CINE SFX Vol. 1 Ultimate Bundle предоставляет вам необход
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F01C199E25C2AB02A5D3C28236C366C246DF446B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563250   (212616) от 13.07.2022
-
-NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part One [MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212616.jpg" />
-</div>
-
-
-###  Подробнее
-
-750 "очищенных" музыкальных треков (AudioJungle) с "псевдозащитой".
-Плюс один изначально чистый оригинальный трек.Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DE6E350BBED2847E83060FD345FA912BDF61AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

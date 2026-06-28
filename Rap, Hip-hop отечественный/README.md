@@ -1,4 +1,265 @@
 https://t.me/izofen
+###  Публикация: 1877903   (1074396) от 
+
+D-MAN 55 - 7.62 Б-30 (2009) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 7.62 Б-30 (02:22)
+2. Рb (03:10)
+3. Vita militare est (03:02)
+4. Конторы (02:58)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C54849C0811E384F73827ACBE0E626A5C1945AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877902   (1074395) от 
+
+D-MAN 55 - Байга (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Счётчик (03:43)
+2. Восток (03:01)
+3. Мосты (03:31)
+4. 33 (remix) (03:30)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B107D8F435FDC7C2D4998D701530EE1C5AEBDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877901   (1074394) от 
+
+D-MAN 55 - Харди (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074394.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы тут (02:38)
+2. Арена (03:43)
+3. Срисуй (02:33)
+4. Ева (03:51)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C91A2AD1332C504228C9262A26BC1A9F70E56AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877900   (1074393) от 
+
+D-MAN 55 - ПП (2014) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Святки (03:30)
+2. Корни (03:03)
+3. Юноу (02:44)
+4. Дерзай (03:01)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BB9E5DFF21617ACB5B1AD88AEAA8673D97C2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877899   (1074392) от 
+
+D-MAN 55 - Облака (2011) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ключ на старт (00:55)
+2. Вуфертестер (Три тонны кача) (03:00)
+3. Дух воина (02:59)
+4. Любо (02:53)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB44B8CCA3D28B0EBE572B3F9B7782CD5841A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877898   (1074391) от 
+
+D-MAN 55 - В завтра (2011) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074391.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В завтра (04:34)
+2. Следы (03:40)
+3. Мертвечина (04:00)
+4. Кино (03:43)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A3A80C609667CA5AC931FFE02244C0D5E6D8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878002   (1074390) от 
+
+Супец - Чудесный мир (2014) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074390.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ближе к вершине (муз. Kubrak) (01:41)
+2. Рождён побеждать (муз.  Kubrak) (03:44)
+3. На детали (муз. Kubrak) (03:22)
+4. За ЗОЖ (муз. Kubrak) (02:16)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556437946AE5B05186F1FEE261EDAD554F8EB028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877498   (1074199) от 
+
+D-MAN 55 - Коллективное сверхсознательное (2013) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074199.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Депеша (02:57)
+2. Без стука (02:50)
+3. Сердце (02:54)
+4. Аванс (02:50)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32900230D10EFE8E62D09C019C1E37A0D75385C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877465   (1074198) от 
+
+ГРОТ - Между катастроф (2026) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между катастроф — 3:15
+02. Замсолнца — 3:23
+03. Просто любви — 3:56
+04. Уютная боль — 3:17(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D7CA7175C345878146C999CFE9A25A482BEE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874367   (1071703) от 01.06.2026
 
 Диана Арбенина - rap for mama (2026) [MP3|320 Kbps] <Rap>
@@ -485,267 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC9E0216D590356A0D652A7B69BD5F7CEF0E7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459722   (1023162) от 02.04.2021
-
-zavet - nights before gotika (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. zanoza sport xtreme [02:15]
-02. 96 слёз [02:02]
-03. ополчение 2 dark [02:15]
-04. ~царапины~ [02:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCBC0247296FC7B85C7A5AE3ED7F193546D1CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459719   (1023159) от 02.04.2021
-
-ЗАМАЙ - Lost Tapes 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что вам сказать на прощание [00:40]
-02. Мой Антихайп [03:34]
-03. Зенит [02:34]
-04. Ворох [01:45](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97042D76F61272510753C78D912358B9F2054940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459568   (1023099) от 02.04.2021
-
-HammAli & Navai - Когда хорошему человеку плохо (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Друг или враг
-2. Я весь мир обошёл
-3. Нет твоей вины
-4. Техно(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BAF76EA32B1B1A426AF566D27CE0E93EF2942C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459758   (1022823) от 04.04.2021
-
-ST1M - Сьерра-Леоне (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сьерра-Леоне [03:17]
-02. Иллюзион [02:43]
-03. Р.И.П.К.И.П. [03:23]
-04. теRAPия [02:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B143AE2D90BECEB7A24556777460BDD0A91BFD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459768   (1022819) от 04.04.2021
-
-Horus - Герои вашего времени (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Туман [02:50]
-02. Когда уже? [03:18]
-03. Макабр (feat. ATL) [03:37]
-04. Убить дракона (feat. Ка тет) [03:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AAFC1A04F2B75231D2CBFCDB26E36EDBF09E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459761   (1022816) от 04.04.2021
-
-ST1M - Окна (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Окна (Original Soundtrack "Аль-Капотня") (feat. Макс Лоренс) [02:56]
-02. Светофоры [03:38]
-03. Буррито [03:13]
-04. Хватит [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C179D4BA86E5346A9D1D8AF67E8FBD25ACABE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459769   (1022815) от 04.04.2021
-
-XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звонок (No Caller ID 23:13) [00:36]
-02. Дрожь земли [02:56]
-03. Dedushka Boi [01:41]
-04. Мой Dope [02:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD35DFC7A15F0FAE4C528F14B406DA2B742C322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459755   (1022806) от 04.04.2021
-
-Face - Варвар (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Факт [03:22]
-02. Ван Дейк [03:08]
-03. Бизнес [03:24]
-04. Солдат [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960762B6C80EA37D1C4B283ADAAD28AE9F26CAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459753   (1022799) от 04.04.2021
-
-StaFFорд63 - Десять историй (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не мороси [02:45]
-02. Вы простите меня [03:19]
-03. Да пошла ты [02:53]
-04. 4 x 4 [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB08133A433D5CAB720576677628BF6471432AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

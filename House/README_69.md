@@ -1,3 +1,177 @@
+###  Публикация: 1269139   (221898) от 13.12.2018
+
+VA - Last Christmas 2018 Compilation (2018) [MP3|320 Kbps] <House, ElectroHouse, Bigroom, ProgressiveHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lory DJ & D @ n Deejay feat. Guax - Last Christmas (Extended Mix) 4:11
+02. Gianni Camelia feat. Sabrina Christian - Don't Stop The Beat (Luke DB Remix) 3:41
+03. Alka & Feiv - Drop The Boom (Original Mix) 3:59
+04. Alessio Duranti - On The Dancefloor (Original Mix) 3:56(   Читать дальше...   )Жанр: House, ElectroHouse, Bigroom, ProgressiveHouseПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246AAFCE71E321B7F50BC39043D95D57F2218372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269290   (221417) от 14.12.2018
+
+VA - Remembering the 90s: Best Hits Remixed (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damon Paul feat. Simone Mangiapane and Tony T. - Rhythm Is a Dancer (Rap Festival Mix)
+02. Felicia Uwaje - A Deeper Love (Akira Yamamoto Radio Edit)
+03. Markus D'Ambrosi feat. Marga Gonzales - Lick It (Miami Mix)
+04. Tosch feat. Christina - Somewhere over the Rainbow (Steve Cypress Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B266935E78CD950DBBFDFE87597B2DEBA9565778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343065   (220075) от 05.12.2019
+
+VA - Best of 2019 Dance Music (2019) [MP3|320 Kbps] <Dance, House, Electro House, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. iTril – So What (2:37)
+02. Scaredoor – Jupiter (3:44)
+03. Durables – Sparks (4:07)
+04. Adam & Mark – Drop the Bass (4:07)(   Читать дальше...   )Жанр: Dance, House, Electro House, ElectronicaПродолжительность: 01:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCF918CEFBF98BA26B8988E6F545EC72C4E552D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652232   (218852) от 10.08.2023
+
+VA - Dancing Pirates Vol. 1 (House Radio Edits) (2023) [MP3|320 Kbps] <Electro House, Club, Groove, Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valdemossa - Find Your Way (Radio Edit)
+02. Hochanstaendig - Super Duper 2015 (Radio Edit)
+03. Purple Cafe - Cities (Radio Edit)
+04. Nico Zandolino - Fiesta De La Trumpeta (Radio Edit)(   Читать дальше...   )Жанр: Electro House, Club, Groove, Funky HouseПродолжительность: 01:40:28 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B98AB4A04E13E2684AC04F508F097059B71EF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343476   (218763) от 06.12.2019
+
+Dj De Key - Anniversary Edit (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker feat. Belle Doron - Close Your Eyes (Extended Mix)
+02. Exit 11 - Nights Of The Jaguar (Extended Mix)
+03. Nora En Pure - Dry Sobbing (Original Club Mix)
+04. Saaz, Gu Noronha - Together (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8866265690443FA7CAA817769348E334D247CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652146   (218690) от 10.08.2023
+
+VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Future House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bono Badja - Rakataa (Extended Mix)
+02. Digital Kay - Set Us Free (Instrumental Mix)
+03. DJ Mauritius - ACID Love
+04. Alfredo Magrini - Over My Skin(   Читать дальше...   )Жанр: Electro, Club, Future House, ProgressiveПродолжительность: 01:23:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A027AC7FB4C789B9A8902EED7E6212AACADC3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652210   (218497) от 10.08.2023
 
 VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downtempo, Soulful, Beach House>
@@ -571,180 +745,6 @@ VA - Tropical & Deep House: Summer Mix 2023 [MP3|320 Kbps] <House, Deep House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FBFDDEF4FCC0CA5A3FD6A659912B274E322573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640175   (211337) от 16.06.2023
-
-VA - Black Hole House Music 06-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myon & Jhirst - The Predictable Unknown (Extended Mix) [5:59]
-02. Sarah De Warren - Monster (Paul Oakenfold Extended Remix) [4:25]
-03. Siskin - Rest Of My Days (Extended Mix) [6:19]
-04. Orkidea - Fundamental (Extended Mix) [7:18](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED33C2DB33149C75755685AC0E56E20E16DF8697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640249   (211320) от 16.06.2023
-
-VA - Paradise Ibiza Summer 2023: Best of Deep & Tropical House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Wonderful Life [03:40]
-02. Awstin Shanu - Sinners [02:41]
-03. BETASTIC - Where's My Love (Extended Mix) [04:01]
-04. Echevo - Escape [03:23](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65D276B29A9147D3789125005D68F8399845AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640500   (211170) от 18.06.2023
-
-VA - Ibiza Top Hits (2023) [MP3|320 Kbps] <Electro House, Dance, Club, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raumakustik - Bugatti (Edit)
-02. El Mukuka, Mumba Yachi - The Harvest
-03. Kailly Jensen - Mantra
-04. Francisco Allendes, Trallez - Party(   Читать дальше...   )Жанр: Electro House, Dance, Club, ProgressiveПродолжительность: 01:55:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B33EC823FE88214871151E043D065500711F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640496   (211163) от 18.06.2023
-
-VA - Club Megamix 2023: Summer Hits (2023) [MP3|320 Kbps] <Electro House, Dance, Club, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Heart Swipe
-02. Nicky Jones - Vroom Vroom
-03. The Disco Boys - Promised Land
-04. Ampris - Kick Of My Heart(   Читать дальше...   )Жанр: Electro House, Dance, Club, ProgressiveПродолжительность: 02:49:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E01EE575D8180987C1D5A90DA74EB425236D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647809   (208284) от 22.07.2023
-
-VA - Armada Music - Ibiza 2023 [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.O.D - So Much In Love (Extended Mix) (4:08)
-02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
-03. Something Good & Yotto feat. Sansa - Before Dawn (Extended Mix) (6:42)
-04. Tensnake - Fiesta Mágica (Extended Mix) (4:46)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 04:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D04CA57E14ED1F4ADDD546ACC782382F92E17F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653109   (206278) от 14.08.2023
-
-VA - Deep House Summer Hits 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses - Let Me Down Slowly [03:32]
-02. Nickobella - Don't You Worry [02:38]
-03. Alperen Ocak - Creepin' (I Don't Wanna Now) [02:54]
-04. Umut Ozsoy - Pocketful of Sunshine [03:15](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94341D7C91503E01190949C560526872D5837F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

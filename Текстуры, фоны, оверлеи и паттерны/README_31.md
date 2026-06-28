@@ -1,3 +1,56 @@
+###  Публикация: 1782916   (25861) от 03.03.2025
+
+Текстуры - Content Case - Behance - Fractal Glass Gradients [FREE DOWNLOAD] - 220033673 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные градиентные текстуры.Формат: JPGРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2E8850647C2B38C896C1789CC15314F7595DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782904   (25826) от 03.03.2025
+
+Текстуры - Binks Design - Behance - 56 free 4K textures pack - 216425533 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные разнообразные текстуры. Материал раздаётся с официальной документацией.
+Разработчик: Binks DesignФормат: JPGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED703D63CC30A6A8CEFBA6207B238E041D4581C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783258   (25612) от 05.03.2025
 
 Текстуры - Resource Boy - 70 Chain Textures [PNG]
@@ -615,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFACA9EC1285B97C40C8A547DD393179CACCCACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791889   (21261) от 16.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Luxury Emerald Green Texture Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с изумрудно-зелёной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976057CEFAFF74ADEF1B47A07AF3CEA882937DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791870   (21258) от 16.04.2025
-
-Фоны - themefire pro - Behance - Free Frosted Glass Backgrounds - 205428025 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные абстрактные яркие градиентные фоны с зернистостью.
-Матерал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 5300 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC80B2E3268CFD4A56319A6D258CE3EA284CC0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

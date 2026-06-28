@@ -1,3 +1,123 @@
+###  Публикация: 1222331   (684816) от 29.04.2018
+
+Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God of War (4:07)
+02. Memories of Mother (3:39)
+03. Witch of the Woods (3:02)
+04. Lullaby of the Giants (3:44)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C2C6BC63D5A74940DA71F5B17CB8F289639621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028971   (684545) от 25.06.2016
+
+Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе образа игры, музыка была извлечена из самого образа игры01. Main Menu
+02. Stage 1
+03. Stage 2
+04. Stage 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289713   (684333) от 17.03.2019
+
+Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Information 5:42
+2. Becoming Aware 4:53
+3. The Act 8:57
+4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507361   (683953) от 08.06.2012
+
+Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683953.jpg" />
+</div>
+
+
+###  Подробнее
+
+(08:46) 1. To Be With You
+(09:15) 2. Lonesome
+(10:57) 3. Be Gentle
+(06:07) 4. Silent Attitude
+(04:50) 5. Near And Far
+(10:18) 6. Follow The Senses
+(09:27) 7. Soft Touch
+(05:17) 8. Bкeak AwayЖанр: MeditativeПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507739   (683153) от 08.06.2012
 
 Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
@@ -648,122 +768,6 @@ Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222479   (679263) от 02.05.2018
-
-Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Laman Song
- 02 – Breath
- 03. Gate
- 04. Over the Clouds(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D0CC38211E4CDE929DA6E3C3CD8108E05BC056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135883   (679131) от 20.05.2017
-
-VA - Kamasutra Essential Music (2013) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Dawn - Predictions (05:22)
-02. Street Line - Chill Sensation (04:12)
-03. Isla Deejay - Into Your Mind (05:21)
-04. Deep blue - Velvet Secrets (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FC3C1AF312823D45A8064BDBBEDB4F50122985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290540   (678213) от 20.03.2019
-
-VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Blues, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Green Book Copacabana Orchestra - That Old Black Magic (2:14)
-02. Kris Bowers - 881 7th Ave (0:48)
-03. The Blue Jays - So Long Lovers Island (2:22)
-04. Kris Bowers - Dr. Shirley's Luggage (0:34)(   Читать дальше...   )Жанр: Soundtrack, Blues, ClassicalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BD949CF6FFAAC23D34C4E734EE40F4B06A49E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290423   (678198) от 20.03.2019
-
-VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility Spa Universe - Physical Therapy 3:27
-02. Meditation Music Zone - Anti Stress 3:28
-03. Relaxation Meditation Songs Divine - Relief From Stress 3:30
-04. Tranquility Spa Universe - Break Of The Day 3:34(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BDFC6F0EF49BCE5E852BF12F4BAD77305D7640
 ```
 
 https://mybot314.ru/tekegram_catalog/

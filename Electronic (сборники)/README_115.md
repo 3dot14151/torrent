@@ -1,3 +1,148 @@
+###  Публикация: 1041969   (580474) от 11.08.2016
+
+VA - Beatport Top 100 Techno July (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Electronica, Deep Techno, Detroit Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dubfire, Oliver Huntemann - Fuego (Julian Jeweil Remix)
+002. Dubfire, Oliver Huntemann - Terra (Joseph Capriati Remix)
+003. Cirez D - IN THE REDS (Original Mix)
+004. WhoMadeWho - Hi & Low (Konstantin Sibold Acid Mix)(   Читать дальше...   )Жанр: Techno, Minimal Techno, Electronica, Deep Techno, Detroit TechnoПродолжительность: 12:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE690373A2A931A0C40FCFE97FE3ED42B4542B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042090   (580472) от 11.08.2016
+
+VA - Drum & Bass - Gold Collection (2016) [MP3|320 Kbps] <Drill and Bass, Liquid Funk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mailky - Big Up 05:19
+02. BrightLight - Space Bugs 04:29
+03. Mailky - The Night 04:19
+04. Xorgen - Memories 06:14(   Читать дальше...   )Жанр: Drill and Bass, Liquid FunkПродолжительность: 05:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379C18C832ACE7CF46539CBA423BCE3200DD682E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302417   (580317) от 16.05.2019
+
+VA - Options Remake Of Tracks May -A- (2019) [MP3|320 Kbps] <House, Progressive, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Mana Ft. Jessica Ess - Panic
+02. Druce & Hidden Tigress - I Need Your Love
+03. Alexey Union - Mgla
+04. Matteo Monero - Embracing The Fear (Original Mix)(   Читать дальше...   )Жанр: House, Progressive, TropicalПродолжительность: 06:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426117EDEDDCEE98905C8A1038AF8107363699FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302340   (580316) от 16.05.2019
+
+VA - Epic Trance (2019) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580316.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Chou - Nevermore
+002. Michael Milov - Follow The Light
+003. Nrgmind - Trip To Infinity
+004. Nevro - First One(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BC5521F7483D9FA599D8D1E9B4905115980810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553723   (580016) от 28.05.2022
+
+VA - Armada Club Rising (2022) [MP3|320 Kbps] <House, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma - Running (feat. Meg Myers) (6:25)
+02. DJ Oyster - Citrus (Gerd Janson Mix) (5:59)
+03. Borgore - Shadows (4:44)
+04. Eelke Kleijn - Electric Eel (4:42)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 04:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6176B8E2F817EDB04F752E85A690760AFCEF3369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553747   (580015) от 28.05.2022
 
 VA - Armada Music: New Dance Now (2022) [MP3|320 Kbps] <House, Trance, Dance>
@@ -624,148 +769,6 @@ VA - Record Super Chart 543 (2018) [MP3|320 Kbps] <House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4964F68AF6CEF872D9A375753E2F88F86829B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150893   (578142) от 16.07.2017
-
-VA - Empire Records – Tropical Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Nova – Midnight Hope Midnight Hope (Radio Cut)
-02. Beatghosts, Yuli – Youre My Heart, Youre My Soul (Extended Mix)
-03. Romm, Alex Believe & MarGo Lane feat. Syntheticsax – Fly
-04. Max Shandula – Journey (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62548528A6AA6001655438A498CB52A183E908A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150878   (578022) от 16.07.2017
-
-VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SRNDR - Astrea (Radio Edit)  3:02
-02.  Dave Gate - Without You (Radio Edit)  3:12
-03.  Lvther - Some Kind Of Magic (feat. Myzica)  3:14
-04.  Masterbeat - Hold Me Tonight (Radio Edit)  3:30(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E86DA60434378382AEEB774095F1E3DBAED95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150626   (578012) от 16.07.2017
-
-VA - Summer Session 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Vocal House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Club House, Vocal House, DanceПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15BCD93318AD014A2DB8ED50BEB659688999B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920935   (577596) от 24.07.2015
-
-VA - Acoustic Chill Playlist 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Summer Of '69
-02. Dean Dyson - Fields of Gold
-03. Max Tanner - Heart's on Fire
-04. Josh Franklin - Stronger (What Doesn't Kill You)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A896139F92E62839858987F5B937B3272BB50ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921064   (577589) от 24.07.2015
-
-VA - Ibiza Romantic Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Desimaginar [05:51]
-02. Counting Clouds - Follow Your Dream - Beach Mix [05:15]
-03. Logophilia - Tongues of Wind [05:29]
-04. Carlos Ebelhдuser - Earthlings Theme [03:13](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E88EB867155CC8483B4F76EA50AE4AB7D891EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

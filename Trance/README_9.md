@@ -1,3 +1,90 @@
+###  Публикация: 1102661   (889673) от 10.02.2017
+
+VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Illitheas - Alive (Intro Mix)  5:43
+02.  Mhammed El Alami - Memories (Ahmed Romel Remix)  6:52
+03.  InnerSync - Remember The Path (Original Mix)  6:37
+04.  DJ Xquizit - Take Me Home (Original Mix) (feat. Claire Willis)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF4B6F065B73E636E426762F0AE2086B071F3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995199   (886151) от 10.03.2016
+
+Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defcon 5
+02. Calima
+03. Nothing Is Forever
+04. Solar Stone(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A8C491FAEBE6D640B7D4B32F301D625F412F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103709   (885883) от 12.02.2017
+
+VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moonlight Tunes - I Need Your Love Tonight (feat. 3PM) (Original Mix)  6:30
+02.  Roman Messer & Denis Sender - Don't Give Up (feat. Cari) (Radio Edit)  3:05
+03.  Armos & Lucid Blue - Call Of The Wild (Ruslan Radriges Remix)  5:15
+04.  Moonlight Tunes - Lonely Tonight (Original Mix)  4:32(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317FBDE4990573D139034E1F0DCC42292E0E9534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103911   (883720) от 13.02.2017
 
 VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ Mi Chan - In The Night (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FA6244A845E584C45A950F854111C2190992FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196861   (819214) от 05.01.2018
-
-VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Guerra - Genesis (Original Mix)
-02. Bigtopo & Omar Diaz - Exoplanets (Original Mix)
-03. Deeprog & Matteo Marini - Bakku-Shan (Original Mix)
-04. Alex Leavon - Cyclops (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196416   (819200) от 05.01.2018
-
-VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  LTN  -  Maldives (Original Mix)  3:52
-03.  Frainbreeze & VIKA  -  Better Day (Sunset Remix)  4:34
-04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D990F71CD7F9EC35B46044AD9B4F49AEAA253E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197053   (819195) от 05.01.2018
-
-VA - Abora Recordings: Best Of 2017 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas - Levity (Intro mix)
-02. Afternova & Andrea Becker - For You (Trance mix)
-03. Manuel Rocca & Illitheas - Enchanted (Original Mix)
-04. Syntouch & Angel Falls - Alone (Plutian remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C5E9A97E991DA0011B26115250E5A7DB9F8665
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 524302   (612930) от 18.07.2012
+
+Jon Lord - Durham Concerto (2007) [WavPack|Lossless]<Classical, Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1: Morning
+1 The Cathedral At Dawn [11:31]
+2 Durham Awakes [08:25]
+
+Part 2: Afternoon
+3 The Road From Lindisfarne [07:18]
+4 From Prebends Bridge [08:27]
+
+Part 3: Evening
+5 Rags & Galas [08:25](   Читать дальше...   )Жанр: Classical, ContemporaryПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 220894   (612757) от 25.07.2010
 
 Tomazzo Albinoni - Музыка, неподвластная времени (2007) [FLAC|Lossless]<Classical>
@@ -711,35 +746,6 @@ Kriemhild Jahn - Mozart-Premiere (2006) [FLAC|Lossless|image + .cue] <Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B275C84F9EC15AB042216AED02CF9F52E583778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913711   (601146) от 30.06.2015
-
-Beethoven - Symphonies Nos.3, 7 & 8 (Paul van Kempen & Berliner Philharmoniker) (1993) 2CDs [FLAC|Lossless]<Classical, Romantic Period, Overture, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beethoven Sym No.7 in A major
-01. Poco sostenuto - Vivace (12:32)
-02. Allegretto (08:28)
-03. Presto - Assai meno presto (09:08)(   Читать дальше...   )Жанр: Classical, Romantic Period, Overture, SymphonyПродолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7C8F779EFC155E45EAC786EEC5A42B91C4FFEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 525096   (609888) от 20.07.2012
+
+Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flying Condor (5:19)
+2. Buffalo Trail (5:32)
+3. Axtu Leman Sumix Sacred Mountain (5:17)
+4. Nothing Else Matters (5:18)
+5. Montezuma (4:45)
+6. The Return of Ringo (4:39)
+7. Precious Waters (5:54)
+8. Dawa (4:23)
+9. Spirit of the Flying Eagle (5:48)
+10. White Buffalo (5:34)(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95BB4968BA8780F05758578AF4E3D3E5C50D634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525132   (609711) от 20.07.2012
+
+Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с]<Native American, New Age, Flute ,Ethnic,Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mesa Music Consort - Conferring Power 05:31
+2. Native Flute Ensemble - Deer Spirits Welcome the Dawn 02:08
+3. Mesa Music Consort - Wolf Woman Calls Hawk Spirit 04:17
+4. Native Flute Ensemble - Site of Great Mystery 03:08
+5. Mesa Music Consort - Council of the Flocks 05:35
+6. Native Flute Ensemble - Mustang Island 05:01
+7. Native Flute Ensemble - Spirit Seekers Ceremony 05:05
+8. Native Flute Ensemble - Dream Echoes 02:36
+9. Mesa Music Consort - Medicine Flute Dance 05:34
+10. Mesa Music Consort - Spirit of the Geese 03:54(   Читать дальше...   )Жанр: Native American, New Age, Flute ,Ethnic,FolkПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B547D63A94F08C394491D1925A04E66C942F1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525304   (609703) от 20.07.2012
+
+Митя Кузнецов - Воображаемое путешествие в Китай (2006) [MP3|320 кб/с]<New Age, Ethnic Fusion>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Старик/Ностальгия
+02 Рисовые поля моей жизни
+03 Дети
+04 Гора под храмом
+05 Дыхание небес
+06 Источник сознания
+07 В ритме жизни
+08 Голос в ночи
+09 Утренняя дымка
+10 Встреча и судьба(   Читать дальше...   )Жанр: New Age, Ethnic FusionПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB6FA2B18CCD9D3FFA653A6AA9F3E7708D866F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545025   (609620) от 22.04.2022
+
+Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gryning (00:03:57)
+02 - Avfärd (00:08:25)
+03 - Strövtåg (00:04:07)
+04 - Hymn (00:03:49)(   Читать дальше...   )Жанр: Nordic Folk, AmbientПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C235C762652BB5253CF0BE251435A4EA05E1E60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545800   (609618) от 22.04.2022
 
 Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|image + .cue] <Country>
@@ -635,122 +769,6 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231744   (603182) от 21.06.2018
-
-Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda [03:09]
-02. Visitors from the Stars [02:38]
-03. Ancestors [03:08]
-04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297649   (603095) от 24.04.2019
-
-Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603095.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jacaranda Street (5:33)
-2. The Lavender Lighter (3:32)
-3. My Love Waits For Me (4:06)
-4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297787   (603090) от 24.04.2019
-
-VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Fading Like A Flower
-2.	Wind Of Change
-3.	Don't Let The Sun Go Down On Me
-4.	Vintage (Ballade To Australian Wine)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297703   (603089) от 24.04.2019
-
-Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Атомы любви
-2. Перезагрузи
-3. Родины нет во мне
-4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
 ```
 
 https://mybot314.ru/tekegram_catalog/

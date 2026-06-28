@@ -1,3 +1,32 @@
+###  Публикация: 1329600   (349605) от 06.10.2019
+
+RIOPY - Tree of Light (2019) Warner Classics [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tree of Light - A Call to Arms (2:34)
+ 02. Ukiyo (3:55)
+ 03. Flo (3:53)
+ 04. Summer Night (5:10)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD4EC227DDBE096E68F31FF6431D83A7C8A0983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951980   (349423) от 04.11.2015
 
 W.G. Still - Symphony No.1; Duke Ellington - The River Suite (Neeme Jrvi & Detroit Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Orchestral,  20th Century Period, Symphony, Modern ...
@@ -724,35 +753,6 @@ RV 315 "Summer": III. Presto  (02:27)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2438DCD1D62B8D4168525CE1D2DB9AE7B0E13A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419604   (335485) от 30.10.2020
-
-Royal Philharmonic Orchestra - Rock Classics 11 853 (1995) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Breath You Take (3:57)
-02. Wind of Change (5:14)
-03. We Are the Champions (4:54)
-04. Lonely Boy (4:21)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777675EED2CB58EEC2BA83F535586BAFA187AD82
 ```
 
 https://mybot314.ru/tekegram_catalog/

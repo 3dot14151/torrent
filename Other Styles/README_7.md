@@ -1,3 +1,90 @@
+###  Публикация: 1459161   (1023305) от 01.04.2021
+
+Анастасия Бардина - GRAN-d SURPRISE (2006) [MP3|320 Kbps] <Guitar, Acoustic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечера в парках Парижа (5:29)
+02. Фанданго (6:26)
+03. Соната для скрипки-соло №1 (6:47)
+04. Вальс 'Мечта' (2:05)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459157   (1023284) от 01.04.2021
+
+Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia (2:47)
+02. Solamente una vez (3:07)
+03. La Playa (3:58)
+04. Quando, quando, quando (2:33)(   Читать дальше...   )Жанр: Flamenco, Easy ListeningПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461373   (1021789) от 10.04.2021
+
+Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving-Kindness (Metta) (feat. Chloe Pourmorady)
+02. Compassion (Karuna) (feat. Estrella Morente)
+03. Vicarious Joy (Mudita) (feat. Deva Premal)
+04. Equanimity (Upekkha) (feat. Uyanga Bold)Жанр: World, MeditativeПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461023   (1021783) от 10.04.2021
 
 Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
@@ -551,6 +638,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469391   (1016427) от 12.05.2021
+
+Jim Brickman - 88: Solo Piano Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discover (3:43)
+02. Together (3:24)
+03. Keys (3:54)
+04. Keeping You Warm (3:42)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:49::53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB1643DE5FE7A330DB0B5CD332B24A2CB748AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469518   (1016395) от 12.05.2021
 
 Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -631,122 +747,6 @@ Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438579   (1015873) от 15.05.2021
-
-Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Paternum Deo + Pachelbel's Canon 4:05
-02. Madeus + Mozart's Requiem 4:14
-03. Abbey Road Blues + Albinoni's Adagio in G minor 4:37
-04. A Brand Bew Day + Bach's Cello Suite N°1 in G major 4:32(   Читать дальше...   )Жанр: New AgeПродолжительность: 04:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5DC4BA1418DBFB4CDB413F54B1A2D7EF5A7FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466472   (1015770) от 16.05.2021
-
-Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The All Seeing Eye
-02. Heal Your Soul
-03. Palo Volador
-04. Madre De La Selva(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75F60D43A760609EC7105884195FFB841728132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470776   (1015492) от 18.05.2021
-
-VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Mahler - Natural Flow (3:18)
-02. Unique Chill - Little Me (2:30)
-03. Bella Element - Beach Living (2:52)
-04. Robin Mahler - The Great Wave off Kanagawa (2:34)(   Читать дальше...   )Жанр: New Age, LoungeПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49007E63964ABE8475092A19C62A6B19A1A048C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470592   (1015479) от 18.05.2021
-
-VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Ambiance - Deep Thinking (3:28)
-02. Serenity Calls - Morning of Clouds (3:15)
-03. Serenity Calls - Arabic Nights (3:17)
-04. AlFa RaYn - Deep Concern (1:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
 ```
 
 https://mybot314.ru/tekegram_catalog/

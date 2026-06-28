@@ -1,3 +1,113 @@
+###  Публикация: 543532   (495013) от 05.09.2012
+
+Сборник видеоклипов Millenium Romantic 7 (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333CE1E55891CD7B09C2E123B3396C9EC8780A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820427   (494349) от 11.09.2014
+
+I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OMNIA - Earth Warrior
+02. Indian Passion
+03. Life Nature You
+04. Black Kat(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, InstrumentalПродолжительность: 02:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C670211842D1A48827DCB2F7552B2573CE6E79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543553   (493594) от 06.09.2012
+
+Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-HopПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6A68FDE13A31754E1AB2D21624A065F06CDDD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544462   (490738) от 07.09.2012
+
+Клип на фильмы новинки 2012: Мстители, Люди в чёрном 3, Прометей (2012) [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип на фильмы новинки 2012:
+007: Координаты «Скайфолл»
+Американский пирог: Все в сборе
+Белоснежка и охотник(   Читать дальше...   )Жанр: ЭкшнПеревод: ОтсутствуетФормат: AVIПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E0D23DBE84060728527BD0B24927E8F6CD4EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158712   (489615) от 17.08.2017
 
 Сборник клипов - Philizz "Back To The 90s" (episode 5) (2017) WEB-DLRip [H.264/720p-LQ]
@@ -599,116 +709,6 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67B771C69AEB95AFCC549FC08C2956D446281469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702256   (467982) от 22.09.2013
-
-Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UFO - Boogie
-02. The Move -When Alice Comes Back To The Farm
-03. Emerson, Lake & Palmer - Take A Pebble
-04. Emerson, Lake & Palmer- Knife Edge(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53D3226700106C02CAFF6960AE690A0C833CD52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702720   (467961) от 22.09.2013
-
-Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curved Air - It Happened Today
-02. Soft Machine - Composition Based On Three Tunes
-03. Curved Air - Vivaldi
-04. Yes - I've Seen Good People ( Part 2: All Good People )(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FC468F4A1718F52E61081731EFB6FA4FAC9406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548590   (467683) от 18.09.2012
-
-Secret - Poison (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5B27756C5716CCD2675A95E804DDDA3FBDDBBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548587   (467674) от 18.09.2012
-
-MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEB27F771F800363F459902DB3342CCFB8988ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

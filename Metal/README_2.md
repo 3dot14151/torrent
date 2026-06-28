@@ -1,3 +1,61 @@
+###  Публикация: 1438376   (1041147) от 08.01.2021
+
+Lyris Project - Instant Flash (2021) [MP3|320 Kbps] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Flash (08:09)
+ 02. Solar (03:31)
+ 03. Wonders (08:52)
+ 04. Age of the Light (04:56)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6EE5D2F5293C48B2608E34F6181342AAF3FE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438460   (1041105) от 08.01.2021
+
+Korpiklaani - Niemi (2021) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041105.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Niemi
+2. Sanaton maa
+3. Mylly
+4. LeväluhtaЖанр: Folk MetalПродолжительность: 00:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FC8380DE9DE8604BD3F1DE61FDB238256DB47D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438722   (1040942) от 09.01.2021
 
 Strange to Believe - Asylum (2021) [MP3|320 Kbps] <Progressive Metal>
@@ -686,64 +744,6 @@ Anareta - Fear Not (2023) [MP3|320 Kbps] <Symphonic Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3728B04B9025E2BC96E48D4F34BF50EB794FB38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601352   (1038380) от 23.02.2023
-
-Incidense - Collide (2022) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Descent (10:31)
- 02 - Blinded (12:57)
- 03 - Deafening (06:43)
- 04 - Shock and Awe (06:30)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209B6E279877C6BDCD345D142C9952EEFA8CC0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614858   (1038356) от 23.02.2023
-
-Tanzwut - Silberne Hochzeit (2023) [MP3|320 Kbps] <Neue Deutsche Harte, Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Labyrinth (04:36)
-02. Ihr wolltet Spass (03:41)
-03. Meer (05:02)
-04. Was soll der Teufel im Paradies (04:21)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Folk Metal, Industrial MetalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F0DEB9A7482466D9E910A0B0EC3CEB5B13C42F
 ```
 
 https://mybot314.ru/tekegram_catalog/

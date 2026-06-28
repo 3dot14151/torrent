@@ -1,4 +1,119 @@
 https://t.me/izofen
+###  Публикация: 1878405   (1074655) от 
+
+VA - Ori Uplift - Uplifting Only Episode 698 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dalmoori – Monochrome (Intro Edit)
+02. Kelly Andrew – Wonderland (Orchestral Trance Mix)
+03. SoundLift – Essence Of Life (Orchestral Uplifting Classic)
+04. ADOVE – Lavender Field(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A2A2EEDDBEB18F9B072D5CB3359B0B1ABDCCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878402   (1074654) от 
+
+VA - Armin van Buuren - A State Of Trance 1283 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unfiltered Special
+01. Ólafur Arnalds ft. South Iceland Chamber Choir - Raddir
+02. ID - ID
+03. Glass Petals & Capozzi – More Life(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4854FCD4B5371E476684203C378B9FD680B326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877369   (1073963) от 
+
+Armin van Buuren - Live @ A State Of Trance, Vietnam (2026-06-13) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Awake (Intro Edit)
+02. Armin van Buuren & JOA - Heavy (DJ KUBA & NEITAN Remix)
+03. Armin van Buuren & Alle Farben ft. ROSY - Lost In Time
+04. Armin van Buuren & Pete Tong ft. Poppy Baskcomb - Toca's Miracle(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B2E80EC37B2ADEAB59531B86AF85D7B15983A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877353   (1073962) от 
+
+Two Friends - Live @ Once Upon A Time at Red Rocks, Morrison, CO, United States (2026-05-01) [MP3|320 Kbps] <Progressive House, Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nirvana - Smells Like Teen Spirit w/Dillon Francis & Julian Jordan - The Sound w/Black Eyed Peas - My Humps
+02. Edward Maya & Vika Jigulina - Stereo Love (Leondis & COASTR. Remix) w/Cherub - Doses And Mimosas w/Edward Maya & Vika Jigulina - Stereo Love (Vincent Remix) w/Edward Maya & Vika Jigulina - Stereo Love
+03. Joe Stone - Nothing Else (   Читать дальше...   )Жанр: Progressive House, Dance, Electro PopПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62137B17CD8A7159CA451AFEAAA297AFAD5996CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877155   (1073832) от 
 
 VA - Ori Uplift - Uplifting Only Episode 697 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -50,6 +165,35 @@ VA - Armin van Buuren - A State Of Trance 1282 (2026) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:901ACBD6C70C4FEEF354119FB3899B523C22E905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876922   (1073736) от 17.06.2026
+
+Vintage Culture - Live @ NSD Mainstage, So Track Boa Festival, Brazil (2026-06-06) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & DJ Glen - Off My Head
+02. ID - ID
+03. Vintage Culture - Do You
+04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA4F22909E7B219C28E38046CC8B52E40D0A2AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,151 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1276 (2026) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D72E3AC4077555044E9279B67B79ED02BC4FDB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458778   (1068350) от 07.05.2026
-
-VA - Mixadance 001-500 (2004-2014) <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068350.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Mixadance (Vol.1-7)
-2005 - Mixadance (Vol.8-60)
-2006 - Mixadance (Vol.61-111)
-2007 - Mixadance (Vol.112-164)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Electro ProgressiveПродолжительность: 471:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1155674BE076473110D0D2C309B72EF4A7BE6892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868587   (1068139) от 01.05.2026
-
-VA - Ori Uplift - Uplifting Only Episode 690 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duezher – Meet You In Autumn (Intro Mix)
-02. Madwave & XiJaro & Pitch – Nothing Set In Stone (Orchestral Uplifting Classic)
-03. Kelly Andrew – The Incursion (Afternova Remix)
-04. NyTiGen & Trance Reserve – Let Me Sing(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9FE21977021D16106F1E47909A734E92A8E51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868585   (1068138) от 01.05.2026
-
-VA - Armin van Buuren - A State Of Trance 1275 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unfiltered Special
-01. Jon Hopkins & Ólafur Arnalds – Forever Held
-02. Basil O’Glue – Course Of No Return
-03. Basil O’Glue – What Never Happened (F-Act Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4BE3E2BFB917023250E2F41DF2A028DD0EC1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867347   (1066934) от 25.04.2026
-
-VA - Ori Uplift - Uplifting Only Episode 689 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Dinner – Epic (Intro Mix)
-02. Aurosonic & Sharon Valerona – Horizon (Dmitry Chelnokov Remix)
-03. New World – Fields Of La Tourette (Orchestral Uplifting Classic)
-04. Shadows&Nightmares – Ephemeral Life (Pre-release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0203E837AEB7BBBF68A1875A1998A23925462CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867214   (1066753) от 24.04.2026
-
-VA - Armin van Buuren - A State Of Trance 1274 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ K-Mixx – Intergalactic
-02. PARAFRAME – Strong
-03. Justmylørd & Julia Temos – The Edge
-04. Lee Coulson – Dealing With It(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BF64B19430EC11201BD888EE08E2E25FAFCEA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

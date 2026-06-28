@@ -1,3 +1,38 @@
+###  Публикация: 496032   (252972) от 14.05.2012
+
+Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Way (Comme D'habitude) (4:29)
+02. If You Go Away (Ne Me Quitte Pas) (3:26)
+03. Fascination (3:50)
+04. Sous Le Ciel De Paris (3:00)
+05. Autumn Leaves (Les Feuilles Mortes) (3:51)
+06. La Vie En Rose (3:47)
+07. What Now My Love (Et Maintenant) (3:18)
+08. Cerisiers Roses Et Pommiers Blancs (2:28)
+09. She (Tous Les Visages De L'amour) (3:13)
+10. Parlez - Moi D'amour (2:41)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495112   (251227) от 11.05.2012
 
 Лидия Русланова - Поет Лидия Русланова (1996) [FLAC|Lossless]<Народная Песня>
@@ -737,35 +772,6 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B88B666813EA91FC658F0E45BC33A4EB7F7B0B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271812   (145285) от 26.12.2018
-
-Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vardlokk (02:07)
-02. Skald (02:01)
-03. Ein Sat Hon Uti (04:06)
-04. Voluspá (Skaldic Version) (06:20)(   Читать дальше...   )Жанр: Folk Ambient, Dark AmbientПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

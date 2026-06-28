@@ -1,3 +1,32 @@
+###  Публикация: 1367586   (913891) от 17.03.2020
+
+Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Door (feat. Panther Modern)
+02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
+03. Da Godz Mus B Krazy
+04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368592   (909206) от 20.03.2020
 
 Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
@@ -715,35 +744,6 @@ Twiztid - Mad Season (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Horrorcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C46B8E904E64F78EC991401AB54760C649C28EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378534   (846519) от 25.04.2020
-
-Bones & Drew The Architect - DamagedGoods (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DamagedGoods [01:22]
-02. CharcoalHearts [01:54]
-03. PvP [02:19]
-04. CrossDissolve [02:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB88C152EB7DD65AF6BC032EBC13296EB70A934
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 932389   (509003) от 29.08.2015
+
+Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (05:35)
+02. You Can Win If You Want (03:51)
+03. There's too Much Blue in Missing You (04:42)
+04. Diamonds Never Made a Lady (04:06)(   Читать дальше...   )Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932165   (508926) от 29.08.2015
 
 Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
@@ -731,35 +760,6 @@ VA - 90's Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4849F3EF6EB03B096806F9350A41B85107B7D68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936987   (492473) от 13.09.2015
-
-Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anchor (03:32)
-02. Return Policy (03:01)
-03. It Don't Get Better Than This (03:10)
-04. Blame (03:43)(   Читать дальше...   )Жанр: Country PopПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4C97387E2272B80061AD959A0A348B1E54BE3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

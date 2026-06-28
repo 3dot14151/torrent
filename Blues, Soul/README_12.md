@@ -1,3 +1,32 @@
+###  Публикация: 1025859   (708211) от 13.06.2016
+
+Allison August - Holy Water (2016) [MP3|320 кб/с] <West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Nobody's Biz-Ness If I Do (Intro) (00:39)
+02. Ain't Nobody's Biz-Ness If I Do (03:45)
+03. Fireman (04:45)
+04. Holy Water (03:49)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFBE7DB8CF953534F8A53CE38D3C6F267B873B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220341   (706093) от 18.04.2018
 
 The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
@@ -716,35 +745,6 @@ Laurence Jones - Take Me High (2016) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4432A90A33B9AF0A6AB49163A191F9F0D7E2D7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290851   (674327) от 22.03.2019
-
-Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674327.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Under The Rug (feat. Eric Gales)
-2. Mercy Of Love (feat. Josh Smith)
-3. Your Kind Of Love
-4. Don't Come Crying (feat. Ian Hoey)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529B8692BF93BB688F66F7F0862D685F4992177C
 ```
 
 https://mybot314.ru/tekegram_catalog/

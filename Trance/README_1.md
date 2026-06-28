@@ -1,3 +1,90 @@
+###  Публикация: 1860521   (1061887) от 21.03.2026
+
+VA - Miami Hits 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Brittany Egbert - Odyssey (Extended Mix) [7:33]
+02. Feel - Now We Are Free (Extended Mix) [4:32]
+03. Roman Messer & Philippe El Sisi - The Castle (Extended Mix) [6:54]
+04. Adip Kiyoi - Your Symphony (Extended Mix) [5:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403A24B55B1F8B165E196E9ED90EB1A8FF4BAC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860432   (1061826) от 20.03.2026
+
+VA - Progressive Trance Awakening, Vol. 12 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Sommerson - Ecliptica (Extended Mix) [5:52]
+02. JARR Head - Multiverse (Original Mix) [6:39]
+03. Joren Heelsing - Metal Thought (Radio Edit) [3:53]
+04. Martin Graff & Vicinus - Echoes (Extended Mix) [5:18](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1414C58663D0205FC0354EEAB21EED77E2F597E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860438   (1061804) от 21.03.2026
+
+VA - Ablazing Spring Sessions 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TH3 ONE - 4 PM (Extended Mix) [5:55]
+02. Adam Taylor & Jessica Lawrence - Grace (Extended Mix) [6:25]
+03. Pandora - Over The Rainbow (ED Lynam Extended Remix) [6:49]
+04. Chris Zewicz - Empty Skies (Extended Mix) [6:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FE42F901B461D644323E40796DD52ADEE6BFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860145   (1061784) от 19.03.2026
 
 VA - Future Sound of Egypt Miami 2026 Compilation (2026) [MP3|320 Kbps] <Trance>
@@ -657,93 +744,6 @@ VA - Black Hole Trance Music 02-26 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4031AC05C725336FDCF330C31EDB55401C3D06D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853355   (1056508) от 12.02.2026
-
-VA - Uplifting Trance Collection, vol.1 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polzn Bladz - Awkward Silence (Extended Mix) [6:52]
-02. Elatex - Lost in Keys (Extended Mix) [5:55]
-03. Polzn Bladz - Intended Outcome (Extended Mix) [7:40]
-04. DJ Willbo - Cosmic Star (Original Mix) [7:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5FCD7ECEE4CA927CF22541F131ED55CA5B3F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852384   (1056028) от 07.02.2026
-
-VA - Best of Blue Dot Trance (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Nicholas Gunn feat. Alina Renae - For You (Original Mix) [3:17]
-02. Ciaran McAuley & Kenna Childs - Oceans (Original Mix) [3:40]
-03. North Skies - Spiraling Down (Original Mix) [3:39]
-04. Harshil Kamdar & MIDI Kittyy - Set Me Free (Original Mix) [3:45](   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2703D58743F9CB36C911B7FB5919902E5870E768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852023   (1055987) от 07.02.2026
-
-VA - Top 11 September 2025 Emotional and Uplifting Trance (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andreas Puertas - Like You Do (Dub Intro Mix) [3:14]
-02. Henrik Nilsson - A Distant Star (Original Mix) [7:43]
-03. Masaru Hinaiji - Ours (Original Mix) [7:02]
-04. Ivan G.M. - Exoplaneta Su Eta Gar (SouthDreamer Remix) [7:34](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48D57B19C1295DFB1C1F160DCA53778D3DA9480
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 937359   (490071) от 14.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A264F9F7B544FB4CE42F3ECA50C6783AC2877486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937275   (489897) от 14.09.2015
+
+Ernesto Cortazar - Memories Of The Fall (2010) [MP3|320 кб/с]<Instrumental, Neoclassical, New age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of The Fall
+02. Lady
+03. Living A Dream
+04. Falling Leaves(   Читать дальше...   )Жанр: Instrumental, Neoclassical, New ageПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5D20E0EF1BD519F926CB5E82690F2D82AEB4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055451   (488360) от 22.09.2016
+
+David Hollandsworth - Edge of Forever (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Destination (02:20)
+02. A Road Called Hope (04:43)
+03. Calm Night (01:24)
+04. Edge of Forever (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292B27CB2C48119AFBC4EA393D18556DA3381480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055340   (488259) от 22.09.2016
+
+Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inception (01:18)
+02. Beauty (04:24)
+03. Nature (06:08)
+04. Love (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95281207FBDE2B0C8EAD12EAD12FDE952CE095B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937379   (487953) от 15.09.2015
 
 Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
@@ -631,122 +747,6 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C4B03866225D2BA8897F275CEC05C06C6F7429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821005   (483701) от 16.09.2014
-
-M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Leftfield, Modern Classical, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack's Dream (01:23)
-  02. Waking Up (04:09)
-  03. Tech 49 (05:59)
-  04. Starwaves (03:41)(   Читать дальше...   )Жанр: Leftfield, Modern Classical, SoundtrackПродолжительность: 01:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAE96D459D97A55C98194849C41ACCD37846399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938280   (483655) от 17.09.2015
-
-Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All of Our Yesterdays
-02. Allan Yn N Fan
-03. Darker Shade Of Black
-04. Long Long Time(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9F5415D10838FFE17E36FF3DCFAE9A8CA3CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938266   (483491) от 17.09.2015
-
-В.Зубков - Мелодии из к/ф «Цыган» (1980-1981) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Признание Насти – Людмила Лонг, вокализ (2:19)
-02. Нас не нужно жалеть (сл. С. Гудзенко) – М. Волонтир, инструм. ансамбль (2:09)
-03. Добрая дорога (сл. Б. Примерова) – Валерий Зубков (2:10)
-04. Встреча (3:45)Жанр: SoundtrackПродолжительность: 00:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59045AFFE964C75629B06EB508B90685E8D2E698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056006   (483293) от 24.09.2016
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix) (Remastered 2016) (10:28)
-02. Age Of Loneliness (Enigmatic Club Mix) (Remastered 2016) (6:15)
-03. Push The Limits (ATB Remix) (Remastered 2016) (7:51)
-04. Gravity Of Love (Judgement Day Club Mix) (Remastered 2016) (5:59)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
 ```
 
 https://mybot314.ru/tekegram_catalog/

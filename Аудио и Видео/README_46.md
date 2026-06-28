@@ -1,3 +1,177 @@
+###  Публикация: 1501694   (830298) от 13.10.2021
+
+VA - 100% Relaxation (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solanos - Siempreverde (5:40)
+02. Arrojas - Bayamo (6:00)
+03. Sonnenburg - Above All (5:57)
+04. Komplextum - Interlude of Clarity (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7369D8F175A80F3984565E2103D71ED1906BD71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501918   (830296) от 13.10.2021
+
+VA - Café Deluxe Chillout - Nu Ibiza / Lounge (2016) [AAC|~314 Kbps] <Easy Listening, Lounge, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) (4:19)
+02. Soundset City - From Bar to Bar (Café Lounge Groove Mix) (5:10)
+03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) (4:43)
+04. Dave Neville - Funny Sky (Cosmic Space Mix) (5:48)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E7245C72E2C57385978D61667C7C1BA4543BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495592   (830295) от 13.10.2021
+
+OneRepublic - Human (2021) [AAC|~303 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (2:48)
+02. Distance (3:00)
+03. Someday (3:08)
+04. Didn’t I (3:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C2A93BEFBEF061536788BE7DA7B62DE29CECDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500065   (830294) от 13.10.2021
+
+VA - Global Chill Out Masters, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep - The Cosmic Vortex (6:45)
+02. Thomas Lemmer, Naemi Joy - Dive (Late Night Chill Version) (5:46)
+03. Weed - Blessed (6:00)
+04. Weathertunes - Finding Neverland (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09758B7709B742DCA7B811686127EDE2C223B344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500264   (830293) от 13.10.2021
+
+VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 1 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harrison & Daicz - La Sonrisa De María, Pt. 2 (1:57)
+02. Svendaq - World Contact (5:11)
+03. Krystian Shek - MAL-FRA (3:05)
+04. Corrado Saija - Nomos (17:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1255173C35A83DDE30DF70CE0238C0D3091F13FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501708   (830292) от 13.10.2021
+
+VA - Relax Your Base, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Fuji-san (4:54)
+02. Smooth Deluxe, Nizam Kharda - Indian Cuisine (3:09)
+03. Inventors Of The Sun - Desert Moon (4:36)
+04. Eriq Johnson - A Lonely Place (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBBB7DB8695E601FD9382A7141007993A1BA793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501924   (830290) от 13.10.2021
 
 Billy Esteban, Rialians on Earth, Cafe De Anatolia - Around the World (2020) [AAC|~338 Kbps] <Chillout, Ethno Lounge, Downtempo>
@@ -569,174 +743,6 @@ Hans Zimmer - Paul’s Dream (Dune: Music From the Soundtrack) (2021) [AAC|~320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B234B56B0AC914916109D49174755217C828D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496604   (830006) от 13.10.2021
-
-Hans Zimmer - The Dune Sketchbook: Music from the Soundtrack (2021) [AAC|~325 Kbps] <Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of the Sisters (16:26)
-02. I See You in My Dreams (18:26)
-03. House Atreides (13:54)
-04. The Shortening of the Way (11:14)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50AC9EA95903052AB95EA591E86B6B405C25FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497651   (829908) от 13.10.2021
-
-Sting - Duets (2021) [AAC|~329 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sting with Melody Gardot - Little Something (2:42)
-02. Sting with Eric Clapton - It’s Probably Me (5:02)
-03. Sting with Mylène Farmer - Stolen Car (3:22)
-04. Sting with Cheb Mami - Desert Rose (4:47)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0C97CBE4C6B288D370E424B2B3EB0423DB9619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496605   (829907) от 13.10.2021
-
-Hans Zimmer - Dune: Original Motion Picture Soundtrack (2021) [AAC|~290 Kbps] <Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream of Arrakis (3:09)
-02. Herald of the Change (5:01)
-03. Bene Gesserit (3:54)
-04. Gom Jabbar (2:00)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A921AF5429A1811854E855AEFC6134EB19D67087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496580   (829903) от 13.10.2021
-
-Metallica - Metallica (2021) [AAC|~302 Kbps] <Heavy Metal, Thrash>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Enter Sandman (Remastered 2021) (5:32)
-1.02. Sad But True (Remastered 2021) (5:25)
-1.03. Holier Than Thou (Remastered 2021) (3:48)
-1.04. The Unforgiven (Remastered 2021) (6:27)(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 15:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFE3B1CF5ACEA7278A5D7E550540031302B87C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115002   (829567) от 16.03.2017
-
-Лев / Lion (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик из трущоб, Сару, потерялся в возрасте 5 лет. Ему удалось выжить и найти новый дом в Австралии. 25 лет спустя он чудом вернулся в родной дом и встретился с матерью.Производство: США, Австралия, ВеликобританияЖанр: ДрамаРежиссер: Гарт ДэвисАктеры: Дев Патель, Николь Кидман, Руни Мара, Дэвид Уэнэм, Санни Павар, Абхишек Бхарате, Приянка Бозе, Кхуши Соланки, Шанкар Нисоде, Танништа Чаттерджи, Навазуддин СиддикуиПеревод: Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18B205F0776362E47A07E32A06F1CEC49E12E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880643   (829468) от 22.03.2015
-
-Трейсеры / Tracers (2015) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет историю парня по имени Кэм — велокурьера, находящегося в долгу перед некоей преступной группировкой. В один из дней он сбивает на своем велосипеде сексуальную незнакомку, которая соблазняет его и увлекает в мир паркура.Производство: СШАЖанр: БоевикРежиссер: Даниэль БенмаурАктеры: Тэйлор Лотнер, Мари Авгеропулос, Рафи Гаврон, Адам Рэйнер, Сэм Медина, Даг Драклер, Лучиано Акуна мл., Доа Моа, Эндрю Элвис Миллер, Тил КейтПеревод: Любительский (многоголосый закадровый) (Студия Пиратского Дубляжа)Язык субтитров: АнглийскийПродолжительность: 01:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A01E40C1E03E84D22E91B1AD974429A0CF09FF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

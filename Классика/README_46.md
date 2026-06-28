@@ -1,3 +1,32 @@
+###  Публикация: 966202   (220600) от 17.12.2015
+
+Ezietto – Memories (2015) [MP3|320 кб/с] <Instrumental, Neo-Classical, Electronic, New Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars & Warriors (original mix)
+02. Celtic Flavour (original mix)
+03. Trinity (original mix)
+04. Faraway Land (original mix)(   Читать дальше...   )Жанр: Instrumental, Neo-Classical, Electronic, New AgeПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5149B47338D697FD28915193187DCDA184A2F600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514133   (219363) от 02.12.2021
 
 VA - Morining Classic, Classical Music Anthology for Waking up Refreshed (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -716,35 +745,6 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F746852BF458B6AEDDBF6799DBA95160B52F464A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666300   (175804) от 09.10.2023
-
-Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL|tracks] <neoclassical/crossover/art-rock/ethno/progressive>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конквистадор [00:02:51]
-02. Беатриче [00:02:54]
-03. В моих садах цветы [00:03:18]
-04. Она [00:04:33](   Читать дальше...   )Жанр: neoclassical, crossover, art-rock, ethno, progressiveПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
 ```
 
 https://mybot314.ru/tekegram_catalog/

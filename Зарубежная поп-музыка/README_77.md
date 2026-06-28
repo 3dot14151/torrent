@@ -1,3 +1,32 @@
+###  Публикация: 1595997   (174007) от 08.12.2022
+
+VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|320 Kbps] <Dance, Disco, Synthpop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Easy On Me
+02. Beyonce - Break My Soul
+03. Carolina Gaitan Mauro Castillo Adassa Rhenzy Feliz Diane Guerrero Stephanie Beatriz & Encanto Cast - We Dont Talk About Bruno
+04. David Guetta & Bebe Rexha - Im Good (Blue) (Extended Clean)(   Читать дальше...   )Жанр: Dance, Disco, Synthpop, R&BПродолжительность: 01:14:51 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668723   (173317) от 13.10.2023
 
 Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -715,35 +744,6 @@ VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432717   (161958) от 19.12.2020
-
-VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Lonely (03:10)
-02. Dua Lipa - Break My Heart (03:41)
-03. Roddy Ricch - The Box (03:16)
-04. Jason DeRulo - Take You Dancing (03:10)(   Читать дальше...   )Жанр: PopПродолжительность: 05:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

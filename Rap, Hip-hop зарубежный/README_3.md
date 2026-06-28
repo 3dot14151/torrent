@@ -1,3 +1,32 @@
+###  Публикация: 1596136   (173830) от 08.12.2022
+
+Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intrx.0000
+02. My Suicide
+03. The Walking Dead
+04. Lxuder(   Читать дальше...   )Жанр: Trap, Hardcore Hip-HopПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F9FCDD58DDC485AC25A26DD95FAE14C1714187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433115   (161798) от 19.12.2020
 
 Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>

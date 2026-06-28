@@ -1,3 +1,32 @@
+###  Публикация: 1473733   (1013533) от 30.05.2021
+
+VA - Megahits Sommer 2021 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riton x Nightcrawlers - Friday (feat. Mufasa & Hypeman)
+02. Coldplay - Higher Power
+03. Nathan Evans, 220 Kid & Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix)
+04. The Weeknd - Save Your Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B9E18D864A03B6960C32CC7139A65930935FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473952   (1013382) от 31.05.2021
 
 VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
@@ -763,41 +792,6 @@ Eros Ramazzotti - All The Best (2012) [MP3|320 кб/с]<pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603201   (996864) от 15.01.2013
-
-Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hands Up
-02.Let The Sunshine In
-03.Sexual Revolution
-04.I Am
-05.My Army Of Lovers
-06.Israelism
-07.Lit De Parade
-08.Give My Life
-09.La Place De Saint Tropez
-10.Carry My Urn To Ukraine(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
 ```
 
 https://mybot314.ru/tekegram_catalog/

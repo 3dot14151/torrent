@@ -1,3 +1,29 @@
+###  Публикация: 1270911   (154303) от 21.12.2018
+
+Обои - Wallpapers - Nature Winter 03 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему ЗимаФормат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C8D35D3B2EBCB46B3B23279EB87918737B8AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270907   (154298) от 21.12.2018
 
 Обои - Wallpapers - Nature Winter 02 [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D1F6203394DF21C1BA01E46417023A3D8CB066A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547439   (151621) от 30.12.2022
-
-Обои - Бронетехника [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.Формат: JPGРазрешение файлов: 1600 x 1200 - 3008 x 2415
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E58979D68A7F0C656F141249DCC3E6C7FC999E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

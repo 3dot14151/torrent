@@ -1,3 +1,204 @@
+###  Публикация: 1873906   (1071456) от 30.05.2026
+
+The Fixx - Reach The Beach (1983) Vinyl-Rip [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Electronic, Rock, Pop, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071456.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Thing Leads To Another (3:18)
+2. The Sign Of Fire (3:51)
+3. Running (4:26)
+4. Saved By Zero (3:41)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, New WaveПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40086E2AFECB622F04086DDFD9837CF4108CF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873676   (1071436) от 29.05.2026
+
+Astralborne - Studio Albums (2 releases) (2020-2023) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astralborne - американская дэт-метал группа, основана в 2018 году в г. Толедо, штат Огайо.2020 - Eternity's End
+2023 - Across the AeonsЖанр: Melodic Death MetalПродолжительность: 01:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0222821BD53CC5CB1AA867F2A2602515C0FD67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873456   (1070996) от 28.05.2026
+
+Corrosion Of Conformity - Studio Albums (11 releases) (1984-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Sludge/Southern Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corrosion of Conformity (или C.O.C.) — американская метал-группа из Роли, Северная Каролина, образованная в 1982 году.1984/1985 - Eye For An Eye Plus Six Songs With Mike Singing
+1985 - Animosity
+1991 - Blind
+1994 - DeliveranceЖанр: Crossover/Sludge/Southern MetalПродолжительность: 10:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D993523E017ABF69F667CC124B6530AF48AE24D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872954   (1070703) от 25.05.2026
+
+Shade Empire - Studio Albums (6 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Industrial Death/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shade Empire - метал-группа из города Куопио, Финляндия, образованная в 1999 году.2004 - Sinthetic
+2006 - Intoxicate O.S
+2008 - Zero Nexus
+2013 - Omega ArcaneЖанр: Symphonic Industrial Death/Black MetalПродолжительность: 04:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94761310308E783CF619B955075BA197139D3BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873091   (1070597) от 26.05.2026
+
+Becoming the Archetype - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Death Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Becoming the Archetype — американская метал-группа, основана в Атланте, штат Джорджия, в 1999 году.2005 - Terminate Damnation
+2007 - The Physics Of Fire
+2008 - Dichotomy
+2011 - Celestial CompletionЖанр: Progressive/Melodic Death Metal/MetalcoreПродолжительность: 05:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5CC025123BA8B7303069589A2A1CD76F286C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872378   (1070467) от 22.05.2026
+
+Shadows Fall - Studio Albums (8 releases) (1997-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadows Fall — американская метал-группа из Спрингфилда, образованная в 1995 году.1997 - Somber Eyes To The Sky
+2000 - Of One Blood
+2002  - The Art of Balance
+2004 - The War WithinЖанр: Melodic Death Metal, MetalcoreПродолжительность: 06:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61FB7CA675DFC3F668FFE7EBC7F8F809FDB069C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872592   (1070284) от 23.05.2026
+
+VA - Country Harmony. 16 Star Couplings (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070284.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tanya Tucker And Glen Campbell - Dream Lover
+A2 The Wilburn Brothers - Distant Drums
+A3 George Jones And Tammy Wynette - When I Stop Dreaming
+A4 Moe Bandy And Joe Stampley - Honky Tonk Man(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD18D4D2A7DE0A56A0B8C7DAC7E635B9CCE4549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872073   (1070225) от 20.05.2026
 
 After The Burial - Studio Albums (6 releases) (2006-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metalcore/Deathcore/Djent>
@@ -543,205 +744,6 @@ Parkway Drive - металкор-группа из Байрон-Бей, Авст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C600B9113D24A043CB9F6A6DCBD43681DDDF6A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866688   (1066463) от 22.04.2026
-
-MyGrain - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue]<Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066463.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyGrain - метал-группа из Хельсинки, Финляндия, основана в 2004 году.2006 - Orbit Dance
-2008 - Signs Of Existence
-2011 - MyGrain
-2013 - Planetary BreathingЖанр: Melodic Death/Groove MetalПродолжительность: 04:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A94E845991E07127F53E8273819703F9B491F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866642   (1066351) от 21.04.2026
-
-Kalisia - Cybion (2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kalisia - метал-группа из Франции, основана в 1994 году.
-Cybion – рок-опера с научно-фантастическим сюжетом, в дэт-металлическую основу которой вплетены классика, прогрессив, джаз и электроника. В создании альбома приняли участие известные рок-исполнители, среди которых Арьен Люкассен ("Ayreon"),  Ангела Госсов ("Arch Enemy"), Пол Масвидал ("Cynic"), (   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 02:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13A4D73F726FA38F3C26208CEF6D9CA0E4F43A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866478   (1066137) от 20.04.2026
-
-Monuments - Studio Albums (4 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Metalcore, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monuments — британская прогрессив-метал группа, основана в Лондоне в 2007 году.2012 - Gnosis
-2014 - The Amanuensis
-2018 - Phronesis
-2022 - In Stasis(   Читать дальше...   )Жанр: Progressive Metal, Metalcore, DjentПродолжительность: 03:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB747E27D91A3FB4C34FA71B539F3BF813BE552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865234   (1065682) от 16.04.2026
-
-Nat King Cole - Sings The Blues (1963) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065682.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Joe Turner Blues
-A2 Friendless Blues
-A3 Harlem Blues
-A4 Chantez Les Bas(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3505966AB41C4E8E4EFC811CA2FF50F620083F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865583   (1065681) от 16.04.2026
-
-Autumn Leaves - Studio Albums (2 releases) (1997-1999) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autumn Leaves - метал-группа из города Рибе, Дания, основана в 1993 году.1997 - Embraced By The Absolute
-1999 - As Night Conquers DayЖанр: Melodic Death MetalПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE8C8D7F4020B5A3115E738A0C6CAEED42DD949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865576   (1065680) от 16.04.2026
-
-Decadence (a.k.a. Decadence Sweden) - Studio Albums (6 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Decadence (a.k.a. Decadence Sweden) - независимая хэви-метал группа из Стокгольма, Швеция, образованная в ноябре 2003 года. Отличительной чертой группы является экстремальный женский вокал.2005 - Decadence
-2005 - The Creature
-2006 - 3rd Stage Of Decay
-2009 - ChargepointЖанр: Thrash Metal, Melodic Death MetalПродолжительность: 03:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95CCF0D911B68927C5AABFEC4298E211BB7D3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864829   (1065423) от 13.04.2026
-
-Nat 'King' Cole - Unforgettable (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065423.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Unforgettable
-A2 Portrait Of Jenny
-A3 What'll I Do
-A4 Lost April(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528696673B5CF98837E429AA4BD6FA4D1022C147
 ```
 
 https://mybot314.ru/tekegram_catalog/

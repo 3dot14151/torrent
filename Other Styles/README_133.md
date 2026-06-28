@@ -1,3 +1,119 @@
+###  Публикация: 1579479   (333492) от 29.09.2022
+
+Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alchemy	4:39
+02. Kaleidoscope	3:31
+03. Venice	4:28
+04. Vision I	3:22(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A30C193089EA1EEF5F0EB1FAA705417A2812C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579494   (333365) от 29.09.2022
+
+Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascent	3:38
+02. Unity	4:20
+03. Del Mar	3:42
+04. Turn To Grey	3:54(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8338A87B33C0F11BB72B848864C5281AED06A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579566   (333362) от 29.09.2022
+
+Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purity	4:33
+02. Surrender	5:50
+03. Alten Mara	3:16
+04. Andalucia	4:01(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8D9AB7B103BAF63B459200D9731DDF987312C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579458   (333361) от 29.09.2022
+
+Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brazil
+02. June
+03. Sunless Sea
+04. November(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258841   (333022) от 01.11.2018
 
 Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music & Instrumental Christmas Music (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
@@ -630,128 +746,6 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2078926272205ADD8124903A0BFA343D7A78EEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842166   (327302) от 19.11.2014
-
-Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragon Age Inquisition Theme [00:02:52]
-02. Escape From The Fade [00:01:14]
-03. The Wrath Of Heaven [00:05:27]
-04. Calling The Inquisition [00:01:59]
-05. Champions Of The Just [00:03:56]
-06. Lord Seeker [00:02:08]
-07. In Hushed Whispers [00:04:49]
-08. Sacrifice [00:01:01]
-09. Alexius [00:02:35]
-10. In Your Heart Shall Burn [00:01:34](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBD32BB9E2F8577CC546E751A680FE02EFE8FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957195   (326721) от 18.11.2015
-
-Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimeanization Part 1
-02. In A Lifetime
-03. Temporary Visions
-04. I'm Searching For A Place Where I Can Hide(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957338   (326707) от 18.11.2015
-
-Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginnings
-02. Around the World
-03. Waltz of Life
-04. Time(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958000   (325690) от 19.11.2015
-
-Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Humming.... (03:46)
-02. So I Could Find My Way (04:27)
-03. Even In The Shadows (04:15)
-04. The Forge Of The Angels (05:15)(   Читать дальше...   )Производство: Warner Bros.Жанр: New AgeПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B2AF0CBE7BA4B1C119FE3923E84CC8A98A38A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

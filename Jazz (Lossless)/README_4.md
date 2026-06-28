@@ -143,6 +143,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610158   (1042683) от 06.02.2023
+
+Yusef Lateef - Live At Pep's (1964) 1993, GRP [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Mamie [5:27]
+02. Number 7 [9:39]
+03. Twelve Tone Blues [4:51]
+04. Oscarlypso [7:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3B76A9A96005B7E9D5C3FD3CBF154A09CDCC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610155   (1042678) от 06.02.2023
+
+Steve Lacy - Four Classic Albums (1957 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042678.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Day Dream [4:26]
+02. Alone Together [6:48]
+03. Work [5:27](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270361F7364EAC1D87674D5DDDBE43FC5299E1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437050   (1042517) от 03.01.2021
 
 Enrico Pieranunzi - Live In Paris (2001) 2CD, 2005, Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ John Coltrane - The Complete Ray Draper Quintet Sessions (1957 - 1958) 2014, Acr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4054158F7CEC2D697B9C3189C66B696033BD2BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611631   (1041163) от 12.02.2023
-
-Simone Kopmajer - With Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look of Love
-02. How Wonderful You Are
-03. Until It's Time for You to Go
-04. I Can't Make You Love Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22BDC5A4BDAD1AA093E9F2EC7825C38CC767603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438586   (1040948) от 09.01.2021
-
-Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mystery of Two [5:52]
-02. Interstellar Low-Ways [5:24]
-03. Neo Project #2 [5:04]
-04. Cosmos [2:59](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8FC2C05283354BEB44770D4296F2F02B0C98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

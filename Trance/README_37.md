@@ -1,3 +1,90 @@
+###  Публикация: 1579413   (336421) от 27.09.2022
+
+VA - Uplifting Only Top 15 September (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SounEmot & Iberian & Lyd14 - Find Our Love Again (Intro Mix)
+02. Twin View - Papillon (Sergey Salekhov Extended Remix)
+03. Dreamlife - Discover The World (Original Mix)
+04. LR Uplift - Moments of Life (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6DB1D489ABF11A04FD0E99C8B104F52230A548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330895   (336253) от 12.10.2019
+
+Talla 2XLC - Fascinated (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Xavian - From Here To Eternity (Extended Mix) (3:53)
+02. Talla 2XLC & DJ Taucher - Electric Dreams (Original Mix) (3:29)
+03. Talla 2XLC - Elevation (Extended Mix) (6:50)
+04. Talla 2XLC & Junk Project - Eternia (Extended Mix) (6:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23A26B39C86A7F4D3C5588B49CF97C6D95220BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331086   (335113) от 13.10.2019
+
+VA - Redux Derry Selection (Mixed by Paddy Kelly) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fischer & Miethig feat. ArDao - Far Above The Clouds (Extended Mix)
+02. Fischer & Miethig - Oxygenious (Extended Mix)
+03. Christopher Corrigan - Take Me Home (Extended Mix)
+04. Michel Westerhoff - Empire Of Love (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C583821B5DE508E18162E91C59F52671380799AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258683   (334583) от 31.10.2018
 
 VA - Paul Oakenfold – Four Seasons (2012)(4CD) [MP3|320 Kbps] <Trance, Progressive House>
@@ -658,93 +745,6 @@ VA - Trance Top 1000 - The Anthems (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D05C428B9FD003CA01BA25D1295397789CB355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582752   (318925) от 11.10.2022
-
-VA - Chapter 1 Uplifting Trance (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Habashi - I Am King (Original Mix)
-02. Habashi - Christine (Extended Mix)
-03. Habashi & FAWZY - Orientalism (Extended Mix)
-04. Kinngs - Feel The Energy (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6400F4AC8CF026F8C15FCC8031869DA4BE481A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582744   (318921) от 11.10.2022
-
-Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Datt - Still Alone (Original Mix)
-02. Thomas Datt - Long Distance (Original Mix)
-03. Thomas Datt - Mass Effect (Original Mix)
-04. Thomas Datt - Evaporate (Part 2) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582749   (318913) от 11.10.2022
-
-Daxson - Face The Future (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Giant Circles - Outside The Realm (Daxson Remix)
-02. Daxson & Lachi - Unmask (Album Mix)
-03. Daxson - Ethereal (Original Mix)
-04. Daxson - Hakuba (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517CCD99982E4423C087DF092867373F5BDD7A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

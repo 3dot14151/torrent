@@ -1,3 +1,177 @@
+###  Публикация: 1513465   (224185) от 29.11.2021
+
+VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troels Hammer, Clara Valente - Ai Meu Bem (4:29)
+02. Max Essa - Orange Trail (5:07)
+03. Aleceo, Sergi Kampanella - Clouds (6:06)
+04. Peter Visti, Lukas Visti - Cantamos de la Guitarra (2:52)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A5FD3A7BAABE7FBF81331F278B0E81C5A51B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513466   (224175) от 29.11.2021
+
+VA - Music for Mindfulness, vol. 3 (2019) [AAC|~317 Kbps] <Downtempo, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troels Hammer, Clara Valente - Amar Perdi (3:27)
+02. The Swan and The Lake - Herlev (3:04)
+03. Jacob Gurevitsch - In Search Of Lost Time (3:20)
+04. Ambala, Santino Surfers - Slow River (5:09)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EAA17B8923E3D431C157E104E9E880E6B90A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513476   (224163) от 29.11.2021
+
+VA - Music for Mindfulness, vol. 6 (2021) [AAC|~317 Kbps] <Downtempo, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenneth Bager, Voice Of Art, Troels Hammer - Nine Days Of Silence (3:13)
+02. Pfundheller - Lets Play A Lullabye (5:01)
+03. Jacob Gurevitsch - Song For Sol (4:54)
+04. Reinhard Vanbergen - Juliens Journey (3:39)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E372C6DFAEB1A6CADC803A7B8761817462D42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513464   (224157) от 29.11.2021
+
+VA - Music for Mindfulness, vol. 1 (2017) [AAC|~308 Kbps] <Downtempo, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantoma - Early Till Late (4:46)
+02. Troels Hammer - View of Wisdom (3:22)
+03. Nordsø & Theill, Caroline Franceska - Good Morning (6:05)
+04. The Swan and The Lake - Clouds over Østerbro (4:42)(   Читать дальше...   )Жанр: Downtempo, Chill OutПродолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87FE9B405F1BF7EA9498FC6C10E36FB3AFAB3FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513477   (224147) от 29.11.2021
+
+VA - Luxury Kingsize Lounge, Vol. 4 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Butterfly (5:37)
+02. Artur Bayramgalin - Breath of Spring (3:48)
+03. Esteban N. Garcia - Street Walk (6:03)
+04. Climatic - Solo parole (5:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A38DB453F8A3A83169D8A1ABB47065671D2F819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513521   (224137) от 29.11.2021
+
+VA - This Is Soulful House 3 (2021) [AAC|~316 Kbps] <Soulful House, Deep House, Funky House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lehmanns Brothers - I Wanna Be (Micky More & Andy Tee Extended Vocal) (5:45)
+02. Francesco Pucciarelli - Ain't No Stoppin' Us Now (Extended Mix) (5:02)
+03. Alan Scaffardi - I Loose Control (Ricky Birickyno Classic Remix) (6:28)
+04. D-Like, Bodyles, D'Andy, Simona Bencini - One Night Lady (Classic House Mix) (6:13)(   Читать дальше...   )Жанр: Soulful House, Deep House, Funky HouseПродолжительность: 02:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889FD2CDE2EE701CAB8C6C898B1E0E0D18127D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513541   (224130) от 29.11.2021
 
 VA - This Is Soulful House 1 (2018) [AAC|~335 Kbps] <Soulful House, Deep House, Funky House>
@@ -531,166 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269018   (223189) от 13.12.2018
-
-Человек на Луне / First Man (2018) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба любит смельчаков, а Нил Армстронг однозначно принадлежит к их числу. Весь мир знает его имя, но мало кому известно, какой ценой астронавту дался маленький шаг, ставший огромным скачком для всего человечества.Производство: США, ЯпонияЖанр: Драма, биография, историяРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Клер Фой, Джейсон Кларк, Кайл Чандлер, Кори Столл, Патрик Фьюджит, Кристофер Эбботт, Киран Хайндс, Оливия Хэмилтон, Пабло ШрайберПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE83E9AF2D83BF4EF08067613306691F6DBE8A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584367   (223066) от 10.12.2012
-
-ЗЛО / V/H/S (2012) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223066.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках редкой видеозаписи трое взломщиков пробираются в таинственный особняк. Хозяин ждет их у включенного телевизора и, похоже, не слишком радуется визиту. Он мертв уже несколько дней, а его странное наследие — коллекция старых видеозаписей, покоится неподалеку.Жанр: УжасыРежиссер: Мэттью Беттинелли, Дэвид Брукнер, Тайлер ДжиллеттАктеры: Кэлвин Ридер, Лэйн Хьюз, Адам Вингард, Ханна Файрман, Майк Донлан, Джо Сайкес, Дрю Сойер, Джессика Сэмс, Джо Сванберг, Софи ТакалПеревод: ДублированныйПродолжительность: 01:54:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586151   (223057) от 10.12.2012
-
-Паранорман, или Как приручить зомби / ParaNorman (2012) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Жанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль ФерландПеревод: ДублированныйПродолжительность: 01:32:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585770   (223041) от 10.12.2012
-
-Явление / The Apparition (2012) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в их доме начинают происходить странные пугающие события, молодые люди Келли и Бен выясняют, что их преследует потусторонняя сущность, случайно вызванная во время парапсихологического эксперимента в университете. Страшное нечто питается их страхами и истязает их, куда бы они ни бежали. Последняя надежда молодых людей — на эксперта по паранормальным явлениям, но может статься, что спасать их жизни от пугающей потусторонней силы уже слишком поздно — даже с его помощью…Жанр: Ужасы, ТриллерРежиссер: Тодд ЛинкольнАктеры: Эшли Грин, Себастьян Стэн, Том Фелтон, Джулианна Гуилл, Люк Паскуалино, Рик Гомез, Сюзанн Форд, Анна Кларк, Мина Серендиб, Марти МатулисПеревод: ДублированныйПродолжительность: 01:22:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342602   (223014) от 02.12.2019
-
-Самолетом, поездом, машиной / Planes, Trains & Automobiles (1987) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что было нужно преуспевающему «рекламщику» Нилу Пэйджу, так это успеть домой ко Дню Благодарения. Ведь это так просто: купить билет на самолет, совершить комфортабельный полет до родного Чикаго и уже вечером сесть за праздничный стол со всей своей семьей.
-Но случилось так, что это оказалось чудовищно трудной задачей. Путь домой станет для Нила самым невероятным (   Читать дальше...   )Производство: США / Paramount Pictures, Hughes EntertainmentЖанр: драма, комедияРежиссер: Джон ХьюзАктеры: Стив Мартин, Джон Кэнди, Лайла Робинс, Майкл МакКин, Кевин Бейкон, Дилан Бейкер, Кэрол Брюс, Оливия Бернетт, Диана Дуглас, Мартин ФеррероПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA492A247047277A1807F6F41CB291A1DF87058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425270   (222971) от 20.11.2020
-
-VA - Silent Sunset Lounge: Chillout Your Mind (2020) [AAC|~330 Kbps] <Chillout, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Wanderlust (Original Mix) (2:42)
-02. Michael e - It's Time (Original Mix) (6:05)
-03. DMTunes - Evening Glow (Original MIx) (3:49)
-04. Eskadet - Lost in Your Eyes (Original Mix) (6:05)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D2A39183179E3786111196A1813463CBFFF5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

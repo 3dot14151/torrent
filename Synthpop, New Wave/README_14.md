@@ -1,3 +1,38 @@
+###  Публикация: 486288   (89844) от 21.04.2012
+
+Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nation Of Love (7:59)
+02. Horizon Of The Galactic Zone (5:47)
+03. Summer Angel (5:06)
+04. Expanding Cosmic Awareness (8:49)
+05. Fire Of Emotion (Ambientmix) (6:26)
+06. Star Convention (Part II The Universe) (3:49)
+07. Epsilon Hunter (Discomix) (8:58)
+08. Space Affair (Discomix) (5:21)
+09. Mutant Generation (Dancemix) (5:34)
+10. Fire Of Emotion (Extended Spacemix) (6:29)(   Читать дальше...   )2009Жанр: SpacesynthПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486008   (89837) от 21.04.2012
 
 VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
@@ -740,35 +775,6 @@ Alphaville - Forever! Best Of 40 Years (2024) [MP3|320 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30E118E90767E8E0094267BE308666B41530E6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755376   (40163) от 16.10.2024
-
-Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Moshi Moshi Records [MP3|320 Kbps] <Synth-Pop, Indie Pop, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hittin Skittles [00:04:30]
-02. Marrow [00:04:49]
-03. My PC (20th Anniversary Deluxe Edition) [00:03:05]
-04. From Drummer To Driver [00:04:24](   Читать дальше...   )Жанр: Synth-Pop, Indie Pop, ElectroПродолжительность: 2 CD, 01:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

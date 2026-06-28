@@ -1,3 +1,32 @@
+###  Публикация: 1691465   (123268) от 12.01.2024
+
+VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SpaceSynth.Ru - Intro (1:20)
+02. Metatron & TDHDriver - Call of Destiny (5:44)
+03. Laserlight - On The Waves Of Memory (6:24)
+04. Cosmic Roulette - Drone Invasion (5:15)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0629E01E61F7AF1C0A9D71CF9288E77ADD3C08AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694064   (121306) от 23.01.2024
 
 Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis|480 Kbps] <Europop, Synth-pop, Disco>
@@ -716,41 +745,6 @@ Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC3BA217755FF2E2530C352C83A688EB7981121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486288   (89844) от 21.04.2012
-
-Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nation Of Love (7:59)
-02. Horizon Of The Galactic Zone (5:47)
-03. Summer Angel (5:06)
-04. Expanding Cosmic Awareness (8:49)
-05. Fire Of Emotion (Ambientmix) (6:26)
-06. Star Convention (Part II The Universe) (3:49)
-07. Epsilon Hunter (Discomix) (8:58)
-08. Space Affair (Discomix) (5:21)
-09. Mutant Generation (Dancemix) (5:34)
-10. Fire Of Emotion (Extended Spacemix) (6:29)(   Читать дальше...   )2009Жанр: SpacesynthПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

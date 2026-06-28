@@ -1,3 +1,131 @@
+###  Публикация: 1317259   (501384) от 31.07.2019
+
+David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look of Love (3:34)
+ 02. What the World Needs Now (2:48)
+ 03. (They Long to Be) Close to You (2:50)
+ 04. Arthur's Theme (Best That You Can Do) (4:32)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317235   (501367) от 31.07.2019
+
+Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Loving (2:54)
+ 02. Here Comes the Sun (3:01)
+ 03. Yesterday (2:31)
+ 04. Here, There and Everywhere (2:27)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380289   (501278) от 26.08.2011
+
+VA - The Rough Guide To The Music of South Africa, part 2 (2006) [FLAC|Lossless] <world, ethnic african>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_501278.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:27] 01. Busi Mhlongo - Yehlisan'Umoya Ma-Afrika
+[05:38] 02. Mahlatihini & The Mahotella Queens - Umuntu Ngumuntu
+[05:03] 03. Chicco - Umagubane
+[04:57] 04. Yvonne Chaka Chacka - UmQombothi
+[02:45] 05. Soweto Sring Quartet - St Agnes And The Burning Train
+[04:32] 06. Shiyani Ngcobo - Yekanini
+[02:36] 07. Miriam Makeba & The Skylarks - Ndidiwe Zintaba
+[02:49] 08. Mtabhane Ndima - Thandabantu
+[03:24] 09. Soul Brothers - Mama Ka S'Bongile
+[03:29] 10. Lesego ampolokeng & The Kalahari Surfers - Blue V's(   Читать дальше...   )2006Жанр: world, ethnic africanПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380290   (501271) от 26.08.2011
+
+VA - The Rough Guide To The Music of South Africa (1997) [FLAC|Lossless] <world, ethnic african>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_501271.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:14] 01. Izingqungqulu Zomhlaba - Nigizongena Kanjani
+[04:20] 02. Mahlathini & the Mahotella Queens - Nyamphemphe
+[08:10] 03. Noise Khanyile & the Jo'burg City Stars - Groovin' Jive No.1
+[03:27] 04. Lucky Dube - House of Exile
+[04:54] 05. Yvonne Chaka Chaka - Motherland
+[04:03] 06. Tebogo - My Kind of Jazz
+[02:54] 07. Spokes Mashiyane - Meva
+[04:03] 08. African Jazz Pioneers - Jive Township
+[04:41] 09. The Elite Swingsters - Yaze Yangala
+[07:52] 10. Bheski Mseleku - Celebration(   Читать дальше...   )1997Жанр: world, ethnic africanПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 380281   (501194) от 26.08.2011
 
 VA - The Rough Guide To The Music Of Afro-Cuba (2010) [FLAC|Lossless] <world, ethnic african>
@@ -698,140 +826,6 @@ Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935945   (497520) от 10.09.2015
-
-VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Lorenzito - Cika (feat. Mario)
-02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
-03. Northbound - Holy Road
-04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381509   (497179) от 30.08.2011
-
-VA - The Rough Guide To Irish Music (1996) [FLAC|Lossless] <world, celtic, irish>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_497179.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:54] 01. Dolores Keane - Solid Ground
-[03:17] 02. Altan - Tommy Peoples / The Windmill / Fintan McManus's
-[05:46] 03. Clannad - Coinleach Ghlas An Fhómhair
-[03:10] 04. Eileen Ivers - On Horseback
-[02:49] 05. Kevin Crawford - Season Of Mists
-[05:01] 06. Déanta - The Lakes Of Pontchartrain
-[04:37] 07. Patrick Street - The White Petticoat / The Kerry Jig
-[02:59] 08. Sliabh Notes - Terry 'Cuz' Teahan's Polka / Murphy's Polka
-[03:51] 09. Dervish - Molly And Johnny
-[04:18] 10. Joe Derrane & Carl Hession - Humours Of Lissadell(   Читать дальше...   )1996,Жанр: world, celtic, irishПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543115   (496433) от 05.09.2012
-
-Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496433.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:18) 01. Too Late
-(3:56) 02. The Tree In The Heaven
-(3:03) 03. Beautiful Bride
-(4:29) 04. In Love With You
-(4:14) 05. A Letter To Myself
-(3:40) 06. Just When I Needed You Most
-(4:54) 07. There Is Not So Easy
-(4:34) 08. Zhuyingtai
-(4:28) 09. Flower Sea
-(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543094   (496339) от 05.09.2012
-
-Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496339.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:40) 01. Preludes
-(6:34) 02. April Morning
-(6:24) 03. Bubbles
-(5:07) 04. Aurora
-(5:31) 05. Healing Waters
-(6:23) 06. Rebirth
-(5:43) 07. Bliss
-(5:28) 08. Kama
-(6:29) 09. Aqua
-(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
 ```
 
 https://mybot314.ru/tekegram_catalog/

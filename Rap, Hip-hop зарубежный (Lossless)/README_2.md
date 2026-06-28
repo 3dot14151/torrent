@@ -1,3 +1,61 @@
+###  Публикация: 1537858   (665381) от 18.03.2022
+
+Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takeover
+02. Open Ya Mind
+03. Certified (feat. Demrick)
+04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541315   (642729) от 04.04.2022
+
+Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock, Trap, Anime Core>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are (Not) Alone
+02. Otaku Pride
+03. Kawaii Suicide (feat. IN6N)
+04. Darkest Days(   Читать дальше...   )Жанр: Electronic Rock, Trap, Anime CoreПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126B0F7DD5B46DB1D6215324E49E854380EF7D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294684   (627317) от 08.04.2019
 
 2 Mello - Mindstreaming, Vol. 1 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Beats, Chillhop>
@@ -687,64 +745,6 @@ Uratsakidogi - Black Hop (2018) bonus track edition [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D77969C4B320E8863815C31D3BE5017D852BC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835956   (364504) от 31.10.2014
-
-Apathy - Connecticut Casual (2014) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connecticut Casual
-02. Back In New England (feat. Chris Webby)
-03. Don't Give Up The Ship (feat. Kappa Gamma)
-04. Locals Only! (feat. ANoyd)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109C699D3E6DED512B7813CDC00E7F4FF49C773C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255679   (361226) от 19.10.2018
-
-Travis Scott - Astroworld (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazing (04:30)
-02. Carousel (feat. Frank Ocean) (03:00)
-03. Sicko Mode (feat. Drake) (05:12)
-04. R.I.P Screw (feat. Swae Lee) (03:05)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E73EA8FC5CDA9DFDFAD333BBCA65C1C578DFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

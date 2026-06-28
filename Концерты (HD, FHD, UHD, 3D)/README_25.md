@@ -1,3 +1,117 @@
+###  Публикация: 936693   (494179) от 12.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichПродолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45237ACFA950099DED804EEC5A0676A9C67C50B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243263   (493971) от 26.08.2018
+
+Квартирник на НТВ у Маргулиса. Запрещенные барабанщики (08.25.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493971.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Запрещенные барабанщики" - российская рок-группа, созданная в Москве в апреле 1999 года музыкантами из Ростова-на-Дону и исполняющая электрический рок-н-ролл с элементами джаза, латино, фольклорных и эстрадных направлений. Группа, возглавляемая Виктором Пивторыпавло, выпустила шесть студийных альбомов.
+Музыканты исполнили свои лучшие композиции специально (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F346EF976438C3870BA59186592B435530199CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936562   (493857) от 12.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Жанр: RockРежиссер: Hal Ashby & Tom TrbovichПродолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC94FCD54FD44FA7EC8800B580312FE97023103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936944   (492231) от 13.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937213   (489551) от 14.09.2015
 
 James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
@@ -622,120 +736,6 @@ Linkin Park отыграли еще один свой концерт в рамк
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545872   (478124) от 13.09.2012
-
-The Prodigy / Live World's On Fire (2011) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478124.jpg" />
-</div>
-
-
-###  Подробнее
-
-World’s on Fire ( Мир в огне) — видеоконцерт и первый концертный альбом британской электронной группы The Prodigy, выпущенный на blu-ray 24 мая 2011 года. Фильм-концерт демонстрировался в кинотеатрах. Съёмки проходили на фестивале Warrior’s Dance. Warrior's Dance festival — эпическое супер-ударное зажигательное шоу: полтора часа от забойных классиков танцевальной музыки, наполненные оглушительными басами и зрелищным шоу. Это самое масштабное шоу The Prodigy перед 65-тысячной аудиторией, аншлаг в Milton Keynes National Bowl.Жанр: Музыка(Electronic, Breakbeat)Режиссер: Liam HowlettАктеры: The ProdigyПеревод: ОтсутствуетПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939015   (477535) от 20.09.2015
-
-Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477535.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 марта 2014 года Dream Theater отыграли свой концерт в Бостонском Опера Хаус вместе со специальными гостями из оркестра и хора Музыкального Колледжа Беркли, в стенах которого, как многие из Вас знают, и зародилась группа DT (на тот момент называвшаяся Majesty). Этот концерт был записан и заснят на видео, и выпущен 30 сентября в форматах Blu-Ray, DVD и Blu-Ray + (   Читать дальше...   )Act I
-01. The Enemy Inside
-02. The Shattered Fortress
-03. On The Backs Of Angels(   Читать дальше...   )Жанр: Progressive MetalРежиссер: Pierre & François LamoureuxПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9223EE762165C5F7964A3264796B91780435E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401161   (476660) от 02.09.2020
-
-Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Custom]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476660.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 марта Music Theories Recordings / Mascot Label Group выпускают "Ayreon - Electric Castle Live and Other Tales", 3-х LP-сет прошлогоднего концертного исполнения третьего альбома Ayreon "Into The Electric Castle".
-В течение четырех ночей в зале 013 в Тилбурге (сцена серии живых выступлений Ayreon Universe в 2017 году) Лукассен, его группа и один (   Читать дальше...   )01. Welcome to the New Dimension
-02. Isis and Osiris
-03. Amazing Flight
-04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockЯзык озвучки: EnglishПродолжительность: 02:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9BECE2F38EB0B252DFB06EA739BEFE77754167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701026   (476335) от 18.09.2013
-
-Madonna - The MDNA Tour (2013) BDRemux [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
- 02. Girl Gone Wild
- 03. Revolver
- 04. Gang Bang(   Читать дальше...   )Жанр: Музыка, Pop, DanceРежиссер: Дэнни ТуллАктеры: MadonnaПеревод: ОтсутствуетПродолжительность: 02:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE1CB851EC213E830C5052E202310569B0BC52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 995414   (884406) от 11.03.2016
+
+Acoustic Heroes - Relaxing Piano Sounds (Acoustic Bar and Lounge Music) (2014) [MP3|320 кб/с] <Piano, Acoustic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rather Be
+02. Habits
+03. Dangerous
+04. Shake It Off(   Читать дальше...   )Жанр: Piano, AcousticПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE7642704C1ED35A7E63D543659EA52ECEAFA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995306   (884258) от 11.03.2016
+
+VA - Romantic Collection-Cinema (1999) [FLAC|Lossless|image + .cue] < Soundtrack, Pop, Ballad>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Homme Et Une Femme (Francis Lai)
+02. Love Theme From The Godfather (Nino Rota)
+03. The Windmils Of Your Mind (& His Orchestra) (Henry Mancini)
+04. Love Story (Francis Lai)(   Читать дальше...   )Жанр: Soundtrack, Pop, BalladПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0BBB4E5F55CC9FDB6040C99C673B0FEB4110A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103840   (883190) от 13.02.2017
+
+Tyler Bates & Joel J Richard - John Wick / Джон Уик (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Ending Has a Beginning (01:31)
+02. Story of Wick (03:05)
+03. John Mourns (02:30)
+04. Assassins (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAD753EA974BE8759E78802CE3D856CA97FEDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103812   (883016) от 13.02.2017
+
+Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Heart (02:50)
+02. Shark Chevelle (01:18)
+03. Man Of Focus (03:25)
+04. Sumo Showdown (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103813   (882918) от 13.02.2017
 
 Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -631,122 +747,6 @@ Paul Sills - Electric Storm (2017) [MP3|320 Kbps] <New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A44756C24E527C207095F575DD0FC323331AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105638   (876549) от 17.02.2017
-
-Wychazel - In Search of Lemuria (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hidden World
-02. Sands of Time
-03. The Crystal Path
-04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622372BAF9DCC34049FD50CF0A1BAF1455CA4733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105244   (876411) от 17.02.2017
-
-J.S. Epperson - Solfeggio Suite (2011) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 174 Hz Earthing (Schumann Resonance) 04:40
-2. 396 Hz Release 12:55
-3. 417 Hz Undo 08:24
-4. 528 Hz DNA Repair 13:55(   Читать дальше...   )Жанр: New AgeПродолжительность: 1:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE40C1AE1BC7609DD8FEC19046B89F7F95E639B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377353   (876362) от 08.04.2020
-
-Enigma - Alchemist (2008) [FLAC|Lossless|image + .cue] <New Age, Abstract>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From East To West (4:12)
-02. Sitting on the Moon (4:32)
-03. Fata Morgana (2:57)
-04. The Look of Today (3:54)(   Читать дальше...   )Жанр: New Age, AbstractПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658F07003EED42B27A0A43329F1DF3D33865055C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997435   (875584) от 16.03.2016
-
-Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Folk, Dark Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Lose Yourself Forever Is Eternal Happiness
-2. You Can't Remain Here
-3. Detachment
-4. The Purified Eye of the Soul Is Placed In the Circle of Eternal Sun(   Читать дальше...   )Жанр: Folk, Dark Folk, ExperimentalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

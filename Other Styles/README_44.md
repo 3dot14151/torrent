@@ -1,3 +1,119 @@
+###  Публикация: 1120763   (800551) от 02.04.2017
+
+Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весной Волга разольётся
+02. Гони, ямщик
+03. Это было давно
+04. Вы не вейтесь, чёрны кудри(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:54.38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121596   (800506) от 02.04.2017
+
+Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Utopia
+02. As It Should Be
+03. Cosmopolitan Skies
+04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120726   (800503) от 02.04.2017
+
+Раймонд Паулс - Музыка из кинофильма 'Двойной капкан' (1986) [MP3|320 Kbps] <Pop, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотто
+02. Танец в баре
+03. Танец с накидкой
+04. Вдвоём(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121285   (800500) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121071   (800498) от 02.04.2017
 
 Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -623,122 +739,6 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A10050EC48927144818811B74EA3498EAC786BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122501   (798844) от 05.04.2017
-
-VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midori - The Rivers Of Home
-02. Medwyn Goodall - The Fire Dance
-03. Florie Brown - Garrai Na Bhfeileoig/The Hunters Purse/June Apple/Silver Spire
-04. Saor Patrol - Toomtabard(   Читать дальше...   )Жанр: New Age, Celtic, Folk, WorldПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71DCB04F7BA328304D9E1DDD9FC78729B1134D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122513   (798824) от 05.04.2017
-
-VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean Waves (2017) [MP3|320 Kbps] <New Age, Chillout, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Crystal Sounds Divine - Relaxing Ocean Waves
-02. Calming Water Cosort - Energy Flow of Nature
-03. Tropical Ocean Waves Oasis - Beautiful Ocean Waves
-04. Relaxing Nature Sounds Collection - Chakra Alignment(   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122371   (798814) от 05.04.2017
-
-Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
-02. Beverley Knight - Marvellous Party (03:46)
-03. Jamie Cullum - Forever (02:57)
-04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507287   (798447) от 04.11.2021
-
-David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798447.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
-02. Am I Blue (3:41)
-03. Go Away Little Girl (4:02)
-04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
 ```
 
 https://mybot314.ru/tekegram_catalog/

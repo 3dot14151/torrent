@@ -1,3 +1,90 @@
+###  Публикация: 1193424   (262147) от 21.12.2017
+
+VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Men-D - Vine napoi (Original Mix)
+02. Eric Maes - Circular Time (Original Mix)
+03. Zirenz, Men-D - Valhalla (Original Mix)
+04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193604   (262146) от 21.12.2017
+
+VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Denton – Curtain Call (Original Mix)
+02. Bryan Kearney – Adrenaline (Original Mix)
+03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
+04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193612   (262144) от 21.12.2017
+
+VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mantra, Ruslan Radriges & Lucid Blue – Take Me Higher (Club Mix)
+02. Nathia Kate, Robin Vane & Russian Dolls – Always (Ruslan Radriges Remix)
+03. Twin View – Bubblegun (Ruslan Radriges Remix)
+04. UltraNova – V1! Rotate! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193432   (262141) от 21.12.2017
 
 VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Female Vocal Trance Legends - Best Of The Best (2023) [MP3|320 Kbps] <Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E72CF0E8CD0AA7CF7F0AF892B85DAB28601B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628535   (254813) от 25.04.2023
-
-VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Surok - Forever Alone (Radio Edit) [3:40]
-02. Grande Piano - Message From Space (Calvin O'Commor Remix) [8:42]
-03. Sanani & Henry Caster - Code Yellow (Original Mix) [2:48]
-04. A.R.T. Conspiracy - Michael Jefferson (Earthling & Virtual Light Remix) [6:43](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FF16AEF5EFC1BF5CCB1DC893CA09590D8C97E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836472   (253099) от 11.11.2025
-
-VA - Top 11 August 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxim Kovalskiy - Road To The Dunes (DJ Grom Remix) [6:50]
-02. Henrik Nilsson - Happiness, It's A Way Of Life (Original Mix) [8:17]
-03. Masaru Hinaiji & Kayumai - Our Beats (Elissandro Remix) [6:07]
-04. Duezher - In The Alley Where I Grow Up (Original Mix) [6:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B918C253E8CD67FFC3B11B2CF022EF19C09A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836470   (253098) от 11.11.2025
-
-VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Myngo & Ourmotion - Exploration (Original Mix) [4:18]
-02. Dreary Fan - Sanctuary In My Heart (Kyousin Remix) [7:18]
-03. Stormline - Space Traveller (Original Mix) [6:41]
-04. Masaru Hinaiji - Snow Drop (Original Mix) [6:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37594C19ABEB9AAB8CB73737E3DDABCDA4B5B38E
 ```
 
 https://mybot314.ru/tekegram_catalog/

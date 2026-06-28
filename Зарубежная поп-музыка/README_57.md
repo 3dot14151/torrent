@@ -1,3 +1,32 @@
+###  Публикация: 1256083   (359035) от 20.10.2018
+
+VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Draufgänger - Cordula Grün
+02. Mickie Krause - Reiss die Hütte ab! (Chirpy Chirpy Cheep Cheep) (Version 2018)
+03. Lorenz Büffel - Beate, die Harte
+04. Almklausi & Specktakel - Mama Laudaaa (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952230   (358822) от 31.10.2015
 
 Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Classic Pop Rock>
@@ -728,35 +757,6 @@ Mylene Farmer - Interstellaires (2015) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67623C4C83805AFA98C5431EAE15146FD9FA73CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257885   (343137) от 27.10.2018
-
-VA - MNM Back To The 90s & Nillies The Party Edition (2018) 2CD [MP3|320 Kbps] <Eurodance, Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343137.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Scooter - How Much Is The Fish?
-02. 3 Doors Down - Kryptonite
-03. Leila K - Open Sesame(   Читать дальше...   )Жанр: Eurodance, Disco, PopПродолжительность: 02:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A758CB07B50C80FDC1371DC15A65F74D3CE3B95E
 ```
 
 https://mybot314.ru/tekegram_catalog/

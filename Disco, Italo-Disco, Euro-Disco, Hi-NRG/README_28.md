@@ -1,3 +1,61 @@
+###  Публикация: 1408537   (455901) от 12.09.2020
+
+The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландская диско-группа родом из Маастрихта. Образована в 1976 году братьями Джо и Джоном Бартельсомами.01. Country Boy's  (3:25)
+02. Be My Sunshine  (4:16)
+03. Disco Lights  (3:56)
+04. Grandmother's Airpig  (3:18)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7AD870A6E1B6E60011FAEA66624EF618B175DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569082   (455703) от 11.08.2022
+
+Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Hearts	4:11
+02. Jungle In My Heart	3:38
+03. I Don't Know Her Name	3:23
+04. Jenny, Come Home	3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569060   (455701) от 11.08.2022
 
 Bad Boys Blue - Heart Beat (1986) [OGG|485 Kbps] <Disco>
@@ -692,64 +750,6 @@ Ken Laszlo - Greatest Hits & Remixes (2016) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11FB203238D4F84DEF043C4C99260D17B58B7F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569806   (447191) от 15.08.2022
-
-VA - The Best Of Italo Disco Hits Vol. III (1985) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby's Gang - Challenger
-02. Miko Mission - The World Is You
-03. Charlie - Space Woman
-04. Mike Rogers - Just A Story(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569818   (447187) от 15.08.2022
-
-VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Strangers – My Delight	6:12
-02. Jimmy & Susy – Come Back	6:03
-03. Max-Him – Japanese Girl	5:58
-04. Cruisin' Gang – America Medley With Machinery	7:27(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

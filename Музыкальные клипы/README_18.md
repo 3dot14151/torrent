@@ -1,3 +1,110 @@
+###  Публикация: 682051   (628538) от 24.07.2013
+
+David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628538.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034983   (628296) от 16.07.2016
+
+Сборник - Bollywood Summermix (2016) BDRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний сборник клипов из индийских фильмов01. Bajirao Mastani (Priyanka Chopra)
+02. Bahubali (Tamanna Bhatia)
+03. Krishnam Vande Jagadgurum
+04. Arinthum Ariyamalum (Sameksha)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан, Каджол, Варун Дхаван, Крити Санон и др.Перевод: ОтсутствуетПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682205   (626553) от 25.07.2013
+
+TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626553.jpg" />
+</div>
+
+
+###  Подробнее
+
+TV Rock ft Rudy - 'In The Air' (Axwell Remix Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAD421C610E6F4DD6353911FCB38464DBA4E377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682204   (626153) от 25.07.2013
+
+Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AAFAF352FB7AC80F5C204F0BD52AAE305377F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682206   (626007) от 25.07.2013
 
 William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip 720p
@@ -591,112 +698,6 @@ Alyssa Reid ft. Jump Smokers - Alone Again(   Читать дальше...   )Ж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AD374E008576E08C2BFE220E1458938578EACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548829   (596035) от 04.05.2022
-
-Владимир Пресняков – Странная (2020) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кадре, в главной роли появляется необычная девушка, она выглядит неординарно, а сыграла ее Соня Александрова. Именно она вызвала большой интерес к данному клипу. Многие оценили игру модели, клип получился яркий, необычный, данная новинка достойна внимания. Так же отметили, что девушка отлично меняет свои образы, необычно танцует, что добавляет клипу особую изюминку. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B736FC8CA127F78096D00F95C53892A41723491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038778   (595606) от 01.08.2016
-
-The Sweet – Action (The Ultimate Story) (2015) DVDReMux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну что сказать про Свит? Для моего поколения они тоже одни из символов времени. Некоторые их треки (Co-Co, например) даже появлялись на пластинках Мелодии. Но, конечно, наиболее сильное впечатление на меня произвел их альбом Fanny Adams, который я услышал году этак в 75-ом. AC-DC - сила! :mrgreen:
-
-Одним словом, перед вами одна из моих ностальгических раздач, которая (   Читать дальше...   )Жанр: Hard rock, Glam rockПродолжительность: 00:58:44 (Music Videos) + 00:58:57 (On TV)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B373167992AB8C8796BD867D44C83D870FF52B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549637   (593352) от 07.05.2022
-
-Валерия - Чтобы все было хорошо (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Hana Road StudiosЖанр: PopПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2CA22BD76157A5B482A930471C39EE7D28FEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915362   (590341) от 09.07.2015
-
-Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное видео Carousel, Нью-Йоркской Инди-Поп певицы Melanie Martinez. Данный сингл был саундтреком к четвертому сезону сериала "Американские ужасы".Жанр: Indie-PopПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E09270F133AFA2D4E80ACB3E2A15F22D6C7989C
 ```
 
 https://mybot314.ru/tekegram_catalog/

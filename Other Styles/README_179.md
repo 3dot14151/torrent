@@ -1,3 +1,119 @@
+###  Публикация: 1768980   (32031) от 04.01.2025
+
+VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop, OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Shinoda & Emily Armstrong — Heavy is the Crown (01:42)
+02. Freya Ridings — I Can't Hear It Now (02:41)
+03. Marcus King — Sucker (03:44)
+04. Raja Kumari & Stefflon Don — Renegade (We Never Run) (feat. Jarina De Marco) (02:41)(   Читать дальше...   )Жанр: Rock, Pop, OSTПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078765   (31975) от 05.01.2025
+
+Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 14 5:28
+02. Oxygene, Pt. 15 6:41
+03. Oxygene, Pt. 16 6:50
+04. Oxygene, Pt. 17 4:21(   Читать дальше...   )Жанр: Ambient, New-Age, Synth-popПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCC42147FABDCEDA268B6C2C68DFD6B3D5ABF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369065   (31954) от 05.01.2025
+
+Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marmontel Riding On A Clef
+02. Breath Kissing Matter’s Mouth
+03. Beauty Of Magic Antagonism
+04. Fay Bewitching The Moon(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474653   (31951) от 05.01.2025
+
+Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic music, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caminos Del Inca (10:00)
+02. Machu Picchu (5:32)
+03. Adiуs A Cusco (8:08)
+04. Tayta Inti (7:26)(   Читать дальше...   )Жанр: Electronic music, New Age, AmbientПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F640F1885F84D41157C02E7C494293538D92B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945803   (31934) от 05.01.2025
 
 Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D020DD544D90406303B75CA5A0A373CFDD1CC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798064   (17665) от 20.05.2025
-
-Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling all units (4:20)
- 02. JFK (1:24)
- 03. No Survivors (3:20)
- 04. Luqa Airport (3:30)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EB070475ED1CB8A1071A5EEC6335313898483A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798138   (17663) от 20.05.2025
-
-Wardruna - Birna (2025) [FLAC|Lossless|tracks + .cue] <Nordic Folk, Ambient, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hertan (6:12)
-02. Birna (6:25)
-03. Ljos Til Jord (5:00)
-04. Dvaledraumar (15:25)(   Читать дальше...   )Производство: By Norse Music, Sony Music, Columbia – 19802848222Жанр: Nordic Folk, Ambient, Dark FolkПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A811267D7BAF30056DD7A2C40FCDE0EBAB1A4317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798609   (17256) от 23.05.2025
-
-James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soundtrack, Contemporary, Ballad>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never an Absolution    [0:03:03.05]
-02. Distant Memories    [0:02:23.72]
-03. Southampton    [0:04:01.68]
-04. Rose    [0:02:52.25](   Читать дальше...   )Жанр: Soundtrack, Contemporary, BalladПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798807   (17251) от 23.05.2025
-
-VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Jennifer Dons - Desert Groove (Original Mix) (5:24)
-02. Don Lockwood, Tibetania - Whirligig (Original Mix) (5:22)
-03. Gabriel Slick, Tibetania - Day & Night (Original Mix) (5:54)
-04. Tibetania, Willco - Cosmic Breath (Original Mix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
 ```
 
 https://mybot314.ru/tekegram_catalog/

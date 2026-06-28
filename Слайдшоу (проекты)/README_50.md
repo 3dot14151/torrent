@@ -1,3 +1,107 @@
+###  Публикация: 1143554   (634760) от 18.06.2017
+
+Проекты - Motion Array - Double Exposure Freeze Opener - 36317 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Exposure Freeze Opener After Effects template - позволяет создать любое интересное и динамичное видео. Вы можете сделать трейлер или вступление для свадьбы, дня рождения, фестиваля и любого другого события. С тремя цветовыми пресетами и видеоуроком вам будет легко создать вдохновляющее, мотивационное и стилизованное видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AF0CE7D60A6C0C133224F78C58F7C77CE796F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801406   (634272) от 02.07.2014
+
+VideoHive - Family Tree Photo Album - 7292973 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект "Генеалогическое древо".Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190DCA21A26FF5297BFA1E30473DA86E8A0417E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034295   (634044) от 13.07.2016
+
+Проекты - VideoHive - Double Exposure [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Exposure - интересный вариант слайд-шоу с двойной экспозицией.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D59F03A1A86DBEEA7A1150594266F0903FAB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034298   (634035) от 13.07.2016
+
+Проекты - VideoHive - Wonderland (Glitch Art Slideshow) [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wonderland (Glitch Art Slideshow) - Этот шаблон идеально подходит для демонстрации изображений в современном красочном стиле. Он может быть использован для корпоративных и личных целей, таких как видео-презентации, портфолио, слайд-шоу и т.д. Наслаждайтесь!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BAA9CD485450D17539DA7E5D6624BF99C37F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034297   (634033) от 13.07.2016
 
 Проекты - VideoHive - Emotional Slideshow [AEP]
@@ -578,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A825B70712F1BB59E3BFD9BCE928A87FF2AA19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683739   (623548) от 26.07.2013
-
-VideoHive - Fashion Expo - 969299 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Full HD AE динамичный и яркий шаблон проекта для ваших выразительных слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E43806D76F64DB6DE5CD99DD609529AAF7364C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144815   (623177) от 24.06.2017
-
-Проекты - VideoHive - Intro - 20166612 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект хорошо подходит для любого промо, спортивного слайд-шоу, экстремального слайд-шоу гранжа, современного новичка, городского слайд-шоу, специального мероприятия.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30E238AFA5CA5E0FF9D40E9536C993308FDAFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036031   (622299) от 19.07.2016
-
-Проекты - VideoHive - Elegance History [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegance History - элегантное слайд-шоу. Просто поместите свои фотографии или видео, и все готово!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E12CDE3F79542D0BB7F1FC80A39D58BA92BC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295057   (621944) от 11.04.2019
-
-Проекты - VideoHive - Photo Slide Show 3D New Glitch Edition (v.2) - 21647872 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621944.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Photo Slide Show 3D New Glitch Edition» - динамичный проект для создания Вашего слайд шоу с эффектом параллакса и Glitch (помеха).
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9B2F9F6948E24B0C6E8A4C3BA09D3598033FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

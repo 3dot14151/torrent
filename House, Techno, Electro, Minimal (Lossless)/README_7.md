@@ -1,3 +1,202 @@
+###  Публикация: 1382416   (1009978) от 21.06.2021
+
+Insect O. - Collection 20 Releases (1999-2021) Etui Records, Primary [colours] [FLAC|Lossless|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icebergs (05:53)
+ 02. Unrush (07:38)
+ 03. Coiba (05:37)Тип издания: Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 05:20:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE0F740AD22F212F599372F86720C173FFA94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479139   (1009867) от 22.06.2021
+
+Absis - Found Ritual (2021) Hivern Discs [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Around (07:59)
+ 02. Break Through Fear (08:23)
+ 03. Search And Find (07:12)
+ 04. Running Up Hill (06:09)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0663B7D4F91C953BBBA3556A1FEE12D675C86834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479201   (1009852) от 22.06.2021
+
+Vivian Koch - Discography 3 Releases (2019-2021) OMNIDISC, AD 93, a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know You're Here (05:15)
+ 02. Closed (04:40)
+ 03. Enter (04:43)
+ 04. Lil Birdy Starts To Fly Again (06:15)(   Читать дальше...   )Тип издания: WEBЖанр: Electro, Techno, Ambient •Продолжительность: 01:29:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2720A8C8439D2122BA34750A6EBE025CED6F7115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175743   (1009630) от 23.06.2021
+
+Christian Löffler (Christian Loffler) - Discography 36 Releases (2009-2021) Ki Records [FLAC|Lossless|tracks+.cue, tracks] <Tech House, Techno, Experimental, Deep House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronda (05:47)Тип издания: CD, WebЖанр: Tech House, Techno, Experimental, Deep House, Ambient •Продолжительность: 13:17:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1C238A057B145692C48C216226AA2DDB53749C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217877   (1009624) от 23.06.2021
+
+Daniel Avery | Stopmakingme - Discography 47 Releases (2011-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Acid, Electro, Minimal, Tech House, Ambient>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. Think About What You Love (04:56)
+ 02. Glass (04:08)
+ 03. Under The Tallest Arch (04:04)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Techno, Acid, Electro, Minimal, Tech House, Ambient •Продолжительность: 27:28:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB221BEB45B7FD936A502F32BB261D3F67E99617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479601   (1009591) от 24.06.2021
+
+DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strike Wave (04:54)
+ 02. Red Scare (04:47)
+ 03. Commanding Heights (04:52)
+ 04. Relative Form (04:39)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139573   (1009474) от 24.06.2021
+
+Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Forms, FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inflexion (06:13)
+ 02. Indefinite (06:15)
+ 03. Reduplication (05:08)
+ 04. Past Tense (06:09)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Acid, IDM, Techno •Продолжительность: 13:21:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658859ACD50B00F6B0C905BA75804D6EBF7452BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479624   (1009413) от 25.06.2021
 
 Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, House>
@@ -539,205 +738,6 @@ Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09490AA9A764F4DB01C317836928B0B7B0DA462D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484784   (1005349) от 26.07.2021
-
-Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Techno, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nebyla - Mountain Yard 05:24
-2. Pobedia - 6 a.m 04:57Жанр: Dub Techno, Deep TechnoПродолжительность: 00:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DD97325675188E0AA6DFBD0211B1117C424BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485676   (1005223) от 27.07.2021
-
-Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005223.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Change Works
-2. DominoЖанр: Techno, Minimal TechnoПродолжительность: 00:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C086B7335F7765617382500E9AF3563F12E5818F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180845   (1004928) от 29.07.2021
-
-Anton Kubikov (A. Kubikoff) - Discography 26 Releases (1999-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Techno, Ambient, Deep House, Tech House, Minimal>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killahertz - Boost (05:38)
- 02. De:Se - De's World (05:24)
- 03. Polar Lights - Joytime (04:49)
- 04. Chizh - Psy Out (06:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Techno, Ambient, Tech House, Minimal •Продолжительность: 15:49:45 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EFD8177677334A782D4BE1CB239174538ADD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486289   (1004749) от 31.07.2021
-
-VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream - Coffee Bar (Sunnys Pool Mix) (04:49)
-02. DJ Maretimo - Rio (Take Me on Mix) (05:31)
-03. Cinematic - Sunset Love (The Funky Light Mix) (04:31)
-04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (04:49)(   Читать дальше...   )Жанр: Organic House, Downtempo, LoungeПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349468   (1004492) от 01.01.2020
-
-VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavekiki – Loosing Gravity | Hraach Remix (07:03)
-02. GESPONA – Dandarah | Silar Remix (07:03)
-03. Greenage – Esperanza (07:02)
-04. Wassu – Devi | Erdi Irmak Remix (06:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487163   (1004147) от 03.08.2021
-
-Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1.16699016 x 10^-8 hertz (Niklas Paschburg Remix) (4:12)
- 02. Wherever You Are (Tinlicker Remix) (5:48)
- 03. The Clouds Silver Lining (Joachim Pastor Remix) (6:50)
- 04. Once in a Blue Moon (Eightfold Remix) (5:56)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FB16C9E8FBE4D553EC66DE693996CB368F12F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349846   (1004109) от 03.01.2020
-
-Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004109.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Stayin' Alive (Radio Mix) 3:39
-2 Night Fever (Radio Mix) 3:41
-3 Stayin' Alive (Club Mix) 5:09
-4 Night Fever (Club Mix) 5:22Жанр: HouseПродолжительность: 00:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C93B4ACE109D684B4DBBF698403FFBF5CC4A284
 ```
 
 https://mybot314.ru/tekegram_catalog/

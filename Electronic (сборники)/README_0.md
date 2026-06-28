@@ -1,3 +1,61 @@
+###  Публикация: 1855349   (1057920) от 22.02.2026
+
+Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057920.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:40] . 01-Ten O'Clock Postman
+[3:03] . 02-Angel On Wheels
+[4:37] . 03-Oh Susie
+[3:11] . 04-She Wants Me(   Читать дальше...   )Жанр: electronicПродолжительность: 03:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03381F7800EDFB318EBEC85DEBC4D0D215534F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855195   (1057808) от 21.02.2026
+
+VA - DOWN LOW 9 (2026) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Agamirov & Anton Ishutin - The Boss (Original Mix) (5:29)
+02. Jordan Burns - Weekend - Slowed Mix (3:43)
+03. MVDNES - Carnage (3:32)
+04. PØP CULTUR, HÄWK - Stoppin (2:31)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 02:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BFF369738AA36B4E7BF6D0D620704FBBA8CFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854743   (1057659) от 20.02.2026
 
 VA - 60 minutes. Old School Dance Music vol.33 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Hard House, Hands Up, Hard Trance>
@@ -687,64 +745,6 @@ VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3CADB5C69C416114CB612F244E8353317CC118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841731   (1048232) от 12.12.2025
-
-VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Azimov - Midnight Shadow
-02 - Kasimoff - Cheri Cheri Lady (Instrumental Guitar)
-03 - Umideep - Forgive My Move
-04 - Adex - Inbox(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3704A3BD44FE07249FDDB5EFFB1CC3B4A44AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841726   (1048231) от 12.12.2025
-
-Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Minha Alegria
-02 - La Bella Luna
-03 - Midnight
-04 - Oh Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806076589E1CF502B7E3CA252B868E3E3A60169A
 ```
 
 https://mybot314.ru/tekegram_catalog/

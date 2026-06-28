@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1877444   (1073926) от 
+
+Андрей Макаревич - 9 (2026) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы будем петь
+2. Песенка о добре и зле
+3. Диалог на фоне бесконечной ночи (Посвящение В.П.Аксёнову)
+4. Весенняя(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173A08326B6482404D6619A704C445FD19C3E38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874845   (1072157) от 
 
 Найк Борзов - Артишок. Часть 1 (2026) [MP3|320 Kbps] <Rock, Electronic>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E772C9F3F0887D68B7546D27FFD0E42B30BD6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857530   (1059710) от 06.03.2026
-
-Костя Кулясов & АнимациЯ - STAR'Ё (2026) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1059710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А он всё стоит
-2. Про_Бали
-3. Островки безопасности
-4. Иван(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F758F938B2A9562EBC562E158A3628D34C9AEC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1581304   (327207) от 05.10.2022
+
+Rory Gallagher - Deuce (1971) 4CD, 50th Anniversary, 2022, UMC [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Used To Be (50th Anniversary Edition)
+02. I'm Not Awake Yet (50th Anniversary Edition)
+03. Don't Know Where I'm Going (50th Anniversary Edition)
+04. Maybe I Will (50th Anniversary Edition)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4C9CA241A8053A5D6D5EC214C2DFDC3E2A01F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957792   (326776) от 18.11.2015
 
 Kelly Richey - Sweet Spirit (2013) [MP3|320 кб/с]<Blues Rock>
@@ -716,35 +745,6 @@ Hound Dog Taylor - Hound Dog Taylor And The Houserockers (1971) ) Reissue, 1990,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98C5A7B6F28DC50D7215C0B9680C332E8C0DF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333872   (301359) от 26.10.2019
-
-Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Winds In February
-02. Fame Will Eat The Soul
-03. Dark Night Of The Soul
-04. In Search Of Grace(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2358949B3A4D7532D6F771B24B74C84A2860E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

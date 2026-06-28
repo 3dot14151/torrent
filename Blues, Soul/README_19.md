@@ -1,3 +1,32 @@
+###  Публикация: 914223   (598477) от 02.07.2015
+
+Delta Deep - Delta Deep (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang the Lid (02:41)
+02. Whiskey (04:22)
+03. Down In the Delta (03:21)
+04. Treat Her Like Candy (03:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59482857D13327DAFD19F2D640568A7AAD9271FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150141   (596616) от 13.07.2017
 
 Davey And The Blu Dog - Wake up Call (2017) [MP3|320 Kbps] <Blues Rock>
@@ -716,35 +745,6 @@ Terry Et McGhee - Jazz & Blues collection (1995) [MP3|320 кб/с]<Country Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5218C55AB1BC3C945C4C56B5B910799CFEB762B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918838   (586010) от 16.07.2015
-
-Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dust My Broom (2:55)
-02.  It Hurts Me Too (3:05)
-03.  Coming Home (2:26)
-04.  Knocking At Your Door (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F02C11FFC6624B6E4109E57740ED3A29CE417E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

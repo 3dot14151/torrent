@@ -1,3 +1,119 @@
+###  Публикация: 1027834   (694697) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology
+02. Saucers over Stonehenge
+03. Suspended Animation
+04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027583   (694558) от 20.06.2016
+
+Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Tomorrow Part 1 [00:03:39]
+02. Distant Tomorrow Part 2 [00:03:31]
+03. Descension [00:05:49]
+04. Anti-Gravity [00:03:49](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027580   (694554) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology [00:05:18]
+02. Saucers over Stonehenge [00:06:47]
+03. Suspended Animation [00:05:53]
+04. Roswell (feat- Annaspaceia) [00:04:12](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027627   (694553) от 20.06.2016
+
+Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Midst of Stars [00:04:30]
+02. Carousel [00:04:00]
+03. In Bloom [00:05:31]
+04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534111   (694253) от 02.03.2022
 
 Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
@@ -623,133 +739,6 @@ VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028344   (690649) от 22.06.2016
-
-Paul Mauriat - L'avventura & Le Lac Majeur (1972) Remaster, 2016, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690649.jpg" />
-</div>
-
-
-###  Подробнее
-
-L'avventura
-01. Jesus Cristo
-02. Il Fait Beau, Il Fait Bon
-03. La Decadanse(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1584CEB4EE6BDF9BD710ED785758A38C098AEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506265   (690589) от 05.06.2012
-
-Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Age, Flute, Rock, Tribal, Blues, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wise Man 4:41
-02. Uncle Peyote 4:31
-03. Fighting without Fear 7:10
-04. Prayin for the Rain 5:19
-05. Big City Indian 5:14
-06. Thunderbird 5:27
-07. West North South East 6:28
-08. Follow Sitting Bull 5:42
-09. Sweet Illusion 4:02
-10. Fire Spirit (long version) 7:28(   Читать дальше...   )Жанр: Native American, New Age, Flute, Rock, Tribal, Blues, PopПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3CF860F936287B384D7B4802EA7D31263F447F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505416   (690583) от 05.06.2012
-
-Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Island
-02. The Seagull
-03. Song of a girl, who stand on the cliff
-04. Presentiment of a storm
-05. After the rain
-06. Traces on sand
-07. Dreams about the argo
-08. Lunar Path
-09. New LifeЖанр: Relax,New AgeПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288698   (690377) от 14.03.2019
-
-Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Red Dirt (02:20)
-2. Too Hot To Just Quit (03:29)
-3. Met My Match (02:35)
-4. The River & the Gum (04:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

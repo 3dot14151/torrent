@@ -1,3 +1,29 @@
+###  Публикация: 996437   (880946) от 13.03.2016
+
+Обои - Amazing Nature Wallpapers. Release 10 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему природы.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC5BBF399E541108485B245091F7F856AFA867D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996347   (880833) от 13.03.2016
 
 Обои - Computer Desktop Wallpapers Collection 1459-1460 [JPG]
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8149F4766D08B03706F3916405F7533256A637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377584   (851126) от 22.04.2020
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (304) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A429A179684BC169AF7FA33288D149D375CB3375
 ```
 
 https://mybot314.ru/tekegram_catalog/

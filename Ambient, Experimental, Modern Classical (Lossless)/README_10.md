@@ -1,3 +1,90 @@
+###  Публикация: 1293219   (639195) от 02.04.2019
+
+Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Room (12:30)
+ 02. Rainfall (12:00)
+ 03. Agora (12:09)
+ 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228585   (635944) от 01.06.2018
+
+Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 変わり目 (1:42)
+02. Yoku Yatta (12:40)
+03. 到着 (4:10)
+04. コントロールを取り戻す (2:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB07EB1225187B26610A30AF9DA55506E88611FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228814   (634116) от 02.06.2018
+
+Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning (01:29)
+02. Wind Journey 1 (05:29)
+03. Blue Moon (03:32)
+04. Dream Lines (05:21)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C443B67E41581A7A10956AF2B128367C9FC72EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293807   (633748) от 05.04.2019
 
 KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Abstract>
@@ -657,93 +744,6 @@ Tsode - Innerity (2019) [FLAC|Lossless|WEB-DL|24Bit] <Ambient, New Age, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518B126559DD3021F50E53EFA39BC0E6D0202EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301807   (584294) от 12.05.2019
-
-Felicia Atkinson - Hand In Hand (2017) Shelter Press [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Spoken Word>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Following You (03:46)
- 02. Valis (06:42)
- 03. Curious In Epidavros (03:07)
- 04. Adaptation Assez Facile (03:49)(   Читать дальше...   )Жанр: Ambient, Experimental, Spoken WordПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCF112F22A4E3E80553CBDE2D72BE10F716C5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302187   (582259) от 14.05.2019
-
-Chronos - Friendology Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronos – Let it Go (05:55)
-02. Chronos & Andrey Ledenev – He Creates Apples (07:34)
-03. Chronos – Keep In Your Heart (Extended Version) (09:06)
-04. Chronos & Violettune – Liquid Moments (05:57)(   Читать дальше...   )Жанр: Psychill, Psybient, Downtempo, PsydubПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D79D57EF7515E1D0FD4B272DAE4B6F8DF5E801B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302862   (579260) от 17.05.2019
-
-Huron - In The Range Of Imagination (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Glitch, Space>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hand Glider (07:05)
- 02. Misty and Cold (10:43)
- 03. Fallen Tree (09:04)
- 04. Endless Memorys (10:21)(   Читать дальше...   )Жанр: Ambient, Glitch, SpaceПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF80CF67BD38674C1D93F61F135A0FC371AFD23
 ```
 
 https://mybot314.ru/tekegram_catalog/

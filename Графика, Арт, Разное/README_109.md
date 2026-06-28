@@ -1,3 +1,55 @@
+###  Публикация: 834887   (375369) от 26.10.2014
+
+Рисованная графика - Bpresing [JPEG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375369.jpg" />
+</div>
+
+
+###  Подробнее
+
+BpresingФормат: JPEGРазрешение файлов: 946х1269-2076х1476
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A770C9CA5E8BD8F5E3352C53FD23B608111B2A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949716   (375087) от 24.10.2015
+
+Обои - 60 Amazing Sports Cars HD Wallpapers 4 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему спортивных машин (четвертая часть).Формат: JPGРазрешение файлов: 1920х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CB9E846E89270E22FAA6A0ADC91BCE0AB40488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949704   (375080) от 24.10.2015
 
 Обои - Wild animals 3 [JPG]
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E46E4EE09A5F539E6189E07C573901084FBD4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416867   (364843) от 17.10.2020
-
-Картинки - Super mix wallpapers 600 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364843.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1680x1050-8512x5664
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE2715BEB2B2A6F361A1B8EF630E58AE220EFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416876   (364754) от 17.10.2020
-
-Картинки - 500 Beautiful & Amazing Mixed Wallpapers {Pack -2} [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364754.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематику.Формат: JPGРазрешение файлов: 1920x1080-10667x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D6FF78C950A98CADFD441A6112909755D9DF97
 ```
 
 https://mybot314.ru/tekegram_catalog/

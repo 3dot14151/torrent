@@ -1,3 +1,205 @@
+###  Публикация: 1050442   (538266) от 08.09.2016
+
+VA - Cabana Lounge (Deep Chilled Holiday Moods) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew1626, Skyla J - I Pray feat. Skyla J (Original Mix)[08:28]
+02. Rene, JazzyFunk - I Wanna Know feat. Rene (Original Mix)[05:42]
+03. Fourfeet, Loui & Scibi, Lou Van - More Than Enough feat. Fourfeet [05:08]
+04. Ben Ashton - Keep Me Waiting (Original Mix) [06:05](   Читать дальше...   )Жанр: Chill House, Nu DiscoПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E954621AC476579029CC8DB9404A03DE89E84000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312098   (536502) от 02.07.2019
+
+Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (08:41)
+02. Space Walk (07:03)
+03. Ramblin' Man (07:06)
+04. Return To Patagonia (08:41)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713D3608B8EFB977F07F1137C89A42022F787896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239734   (535222) от 07.08.2018
+
+Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barrow Boot Boys (06:05)
+ 02. Lifestyle Guru (05:43)
+ 03. btdr-revisited (03:30)
+ 04. Entropy Created You And Me (02:43)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149772   (534085) от 03.07.2019
+
+The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Drone, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Space & Place (18:22)
+ 02. Docking Station (09:40)
+ 03. Colliding Stars (03:06)
+ 04. Between Space & Place (Lars Leonhard Remix) (06:56)Тип издания: CD, Web •Жанр: Dub Techno, Ambient, Minimal, Drone, Techno •Продолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3E1936F1C6B0ACC6EB0C71EBC9DED7A93F6089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239537   (533241) от 08.08.2018
+
+Modjo - Lady (Hear Me Tonight) (2000) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady (Hear Me Tonight) (Radio Edit) (3:46)
+02. Lady (Hear Me Tonight)	(5:05)
+03. Lady (Hear Me Tonight) (Roy's Universal Soldiers Mix) (5:10)
+04. Lady (Hear Me Tonight) (Remix) (7:07)Жанр: HouseПродолжительность: 00:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D3808BB30BA1846DB5360F6418E40D76555B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151960   (533230) от 03.08.2017
+
+Alex Humann - Discography 7 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Réveil Chromatique (Kirill Matveev Remix) (07:54)
+ 02. Réveil Chromatique (06:03)
+ 03. Réveil Chromatique (Kirill Matveev Trip Mix) (08:57)Тип издания: WEBЖанр: Dub Techno/AmbientПродолжительность: 00:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F7526096A5EEB68128E2F2923D9F5A9C23D3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239776   (533164) от 08.08.2018
+
+deadmau5 - Mau5ville: Level 1 (2018) EP & Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trap>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monophobia (feat. Rob Swire) (3:35)
+ 02. Getter - All Is Lost (feat. nothing,nowhere.) (5:06)
+ 03. GTA - Something Like (4:17)
+ 04. Monophobia (Rinzen Remix) (6:41)(   Читать дальше...   )Жанр: Electronic, Progressive House, TrapПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D5EC7AE5DF98A17DCC96E2CE6A82BBF7CBDA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240223   (529859) от 10.08.2018
 
 Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
@@ -545,215 +747,6 @@ VA - Fabric 59 (2011) [FLAC|Lossless]<Deep House, Tech House, Minimal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932113   (509989) от 28.08.2015
-
-Moonbeam - Atom (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbeam - Atom (Original Mix) (7:06)
-02. Moonbeam ft. Irina Makosh - Still Believe (Original Mix) (7:50)
-03. Moonbeam ft. Aelyn - Shades Of Black (Original Mix) (7:07)
-04. Moonbeam ft. Avis Vox - 13th World (Original Mix) (5:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F106F2EDDA8433DCA7E065DF604417A25F860A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538421   (509485) от 23.08.2012
-
-МС Вспышкинъ & Никифоровна - Sex (2004) [FLAC|Lossless]<Trance, Euro-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегапроект «МС Вспышкин & Никифоровна» стал настоящей бомбой 2003 года, а хит «Колбасный Цех» («Шишки») танцевальным гимном питерской молодежи. После этого артисты стали широко известны за пределами Санкт-Петербурга, благодаря ряду хитов из альбомов «Секс» и «Шишки». Никифоровна (Дмитрий Чеков) разбился на мотоцикле 22 августа 2011, Диджей МС Вспышкин (Владимир Турков) умер от инфаркта в Петербурге через 3 месяца (14 ноября 2011).01. Sex :: 04:23
-02. Колбасный Цех 3 (Шишки) :: 04:29
-03. Колбасный Цех 2 :: 04:19
-04. Дискотэка :: 03:18
-05. Хорошо :: 03:34
-06. Новогодняя (Меня Прёт) :: 05:07
-07. МС Вспышкинъ & DJ Aligator - Davai, Davai :: 05:22
-08. МС Вспышкинъ & Slim Line - I'm Back (Вспышка 2003) :: 03:49
-09. КПП :: 04:56
-10. Бессоница :: 05:22(   Читать дальше...   )Жанр: Trance, Euro-HouseФормат: CD, Album, EnhancedПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932182   (509089) от 29.08.2015
-
-VA - 538 Dance Smash 2015 Vol.3 (2015) [FLAC|Lossless]<House, Electro, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. Jasmine Thompson - Ain't Nobody
- 02. Martin Garrix vs. Matisse & Sadko - Break Through The Silence
- 03. Sam Feldt - Show Me Love (EDZ's Indian Summer Remix)
- 04. Axwell ^ Ingrosso - Sun Is Shining(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EECCB95FFE93E853B1D005E4967717487C601E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316013   (508832) от 23.07.2019
-
-VA - Five Years Of Annulled (2019) Annulled Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BLNDR - Fluid System (06:03)
- 02. Underjack - Teuthida (08:28)
- 03. Hydrangea - Lines (05:46)
- 04. Von Grall - Falling Bodies (07:12)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B73D244E41D00E74D7ACD06B080197F357848E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316522   (505975) от 26.07.2019
-
-Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzan (08:03)
-02. St.Denis Bei Licht  (06:16)
-03. The Right For Romance (06:00)
-04. Satin Drone (06:00)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08249BBAA10129AD090C83248F2FF2EC0439D96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316450   (505974) от 26.07.2019
-
-Raz Ohara And The Odd Orchestra - Kisses (2008) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kisses (Over Temperature Vocal Mix)
-02. Kisses (Over Temperature Instrumental Mix)
-03. Kisses (Pantha Du Prince Remix)
-04. KissesЖанр: Tech HouseПродолжительность: 00:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296C33E2358E7C02C88251E41AF3544FF0BA02C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316707   (505219) от 27.07.2019
-
-Sam KDC - Omen Rising (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. False Awakening (04:40)
- 02. Trial By Fire (05:32)
- 03. Breaching The Void (07:04)
- 04. Into The Ground (06:00)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C87268AEB12568046C52109C415E47DDA79A873
 ```
 
 https://mybot314.ru/tekegram_catalog/

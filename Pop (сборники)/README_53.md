@@ -1,3 +1,90 @@
+###  Публикация: 1030958   (670255) от 02.07.2016
+
+VA - Русская Дискотека ХХ Века - 15 (Именной) (2010) [MP3|160-320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веселые Ребята ( Александр Добрынин ) - Розовые Розы ( 1988 )
+02. Пахомов Константин ( Ласковый Май ) - Светлана ( 1989 )
+03. Сладкий Сон ( Сергей Васюта ) - Оля ( 1992 )
+04. Апина Алена - Призывник Мой, Леха ( 1993 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E393E7B492FD1F91005216160736A2FDAED9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030619   (670250) от 02.07.2016
+
+VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Send My Love (To Your New Lover)
+002. Lucius - What We Have (To Change)
+003. Gwen Stefani - Where Would I Be?
+004. Bahari - California(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030946   (670247) от 02.07.2016
+
+VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бархатный Сезон - Все Пройдет ( 1990 )
+02. Любэ - Не Валяй Дурака, Америка ( 1992 )
+03. Nota Bene - А Сердце Повторяло ( 1990 )
+04. Адреналин - Ковыляй Потихонечку ( 1998 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0DDBA12392B4CBE494BEA0551F9CAA1265DCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031087   (670244) от 02.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -49,67 +136,6 @@ VA - Русская Дискотека ХХ Века - 20 (Юбилейный) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08D35E82AF444D4F9E66842A4241137253FE008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339049   (668863) от 19.05.2011
-
-VA - Ах, какая Женщина! Vol. 2 [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_668863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D12A0954E627369E8726CE1D035340494BB795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338876   (668859) от 19.05.2011
-
-VA - Brazilian Hits (1959) [MP3|320 kbps]<Instrumental,Brazilian,Oldies>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_668859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Na Baixa Do Sapateiro - Leo Peracchi E Sua Orquestra     02:23
- 02. Não Tenho Lágrimas - Trio Irakitan                              02:29
- 03. Carinhoso - Luiz Arruda Paes E Sua Orquestra              02:54
- 04. Baião - Leo Peracchi E Sua Orquestra                          02:21
- 05. Delicado - Brasilia Ritmos                                         03:05
- 06. Kalú - Leo Peracchi E Sua Orquestra                           02:29
- 07. Tico Tico No Fubá - Leo Peracchi E Sua Orquestra         01:37
- 08. Copacabana - Luiz Arruda Paes E Orquestra                 03:05
- 09. Os Quindins De Yaya - Leo Peracchi E Sua Orquestra     02:31
- 10. Maracangalha - Os Brasileiros                                    02:16(   Читать дальше...)Жанр: Instrumental,Brazilian,OldiesПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCF8CF77DCA9D6684AEB3D3DA7C0B16791E65B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,32 +307,6 @@ VA - Зарубежная Дискотека ХХ Века - 50 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12920F0B89B2B619706B290866D62CCF417C0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338843   (668621) от 19.05.2011
-
-VA - Ах, какая женщина! (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_668621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604FBAC8D5CBDD495F880C74C6E24B5175F5CA18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,32 +656,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 340001   (665969) от 21.05.2011
-
-VA - Лучшие Треки Русских DJ (2011) [MP3|128 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Club | DanceПродолжительность: 12:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73B123DD09F5D39B418D6800145644CEC535E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224391   (665936) от 10.05.2018
 
 VA - Music for Car 7 (2018) [MP3|320 Kbps] <Pop>
@@ -733,6 +707,35 @@ VA - Позитивная музыкальная сотня. Версия № 3 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443CB58334C98F164D018B9FDAE99390CDCB91AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138227   (665491) от 28.05.2017
+
+VA - Музыкальный адреналин на Русском радио выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ира Левицкая - Шоколадка 3:24
+002. Тати - Забыть 3:56
+003. Миля - Выбирай Любовь 3:55
+004. Майк Павлов - Лайки 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A05C63F495E5487A62B9892B622728D7158F792
 ```
 
 https://mybot314.ru/tekegram_catalog/

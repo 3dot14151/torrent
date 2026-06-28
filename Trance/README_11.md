@@ -1,3 +1,90 @@
+###  Публикация: 1199506   (801139) от 16.01.2018
+
+Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Atragun - The Long Journey (Original Mix)
+02.Atragun -  Sunrise Boulevard (Original Mix)
+03.Atragun -  Haven (Original Mix)
+04.Atragun & Tom Bro -  Lost In Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6ED602BEEF930771F90DE25C45D0B0D6448F5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199606   (801137) от 16.01.2018
+
+VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Vintage & Morelli - While The Earth Sleeps (Extended Mix)
+02.Mango - Here We Go (Original Mix)
+03.Johan Vilborg - Seashells (Original Mix)
+04.The Midnight - Memories (Sundriver Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352DBC1A9C7D62285041E0E703792C87AD28E9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121379   (800651) от 02.04.2017
+
+VA - Ferry Corsten presents:Corstenas Countdown March (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - Ten Seconds Before Sunrise (Moska Remix) (05:07)
+02. Solid Stone & Tiffany Johnston - Tempted (Extended Mix) (05:49)
+03. Max Millian - Evolve (Extended Mix) (06:09)
+04. Dan Dobson - Pressurized (Original Mix) (06:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC582BA4E503B92AB8264DB3F7FAAB037154D95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120879   (800644) от 02.04.2017
 
 VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
@@ -656,93 +743,6 @@ Activa - Origins (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D857AE90DEEC366DBA4FB8C0938BD12F50907A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012227   (794809) от 30.04.2016
-
-VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer -  Lights (Matt Bukovski Remix) (feat. Emma Lock)  6:19
-02. NoMosk -  From Sunrise To Sunset (Original Mix)  6:37
-03. Ark Planet -  Midnight Way (Original Mix)  8:09
-04. Feel -  If You Feel Love (Feel Up Mix)  7:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A2B3E1692419F2B0DFE84B5CC8DD1F7032F8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274306   (794164) от 06.01.2019
-
-VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher – Monumental (Original Mix)
-02. Edelways – Changes (Original Mix)
-03. Plutian – Subsolar (Original Mix)
-04. DANIEL KANDI – Hong Kong (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F83646C05F567A251C4114BA83420FFE38FBD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200960   (794069) от 23.01.2018
-
-VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trance Hunter - Power Of The Code (Jens Jakob remix)
-02. Nx-Trance - Symbiont (original mix)
-03. Stella Project - Universe (Mark Eworth remix)
-04. Luca Gazzola - North Rose (Diego Morrill's Manticore mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
 ```
 
 https://mybot314.ru/tekegram_catalog/

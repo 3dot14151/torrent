@@ -1,3 +1,32 @@
+###  Публикация: 952421   (355860) от 01.11.2015
+
+VA - In the Name of the Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Malley - Feel All Right Feel All Wrong (4:09)
+02. Shay Dillon - Holdin' On (4:01)
+03. Riff Raff-N-Blue - Can't Stop (5:38)
+04. Robert Farrell - Gtr (6:04)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F037161CA1F0C0D6751B9BE0490C7ABDBAEC4A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072746   (349731) от 14.11.2016
 
 VA - Romantic Soul Jazz (2016) [MP3|320 Kbps] <Smoot Jazz, Soft Jazz>
@@ -713,35 +742,6 @@ VA - Blues Collection 13 (The End) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03617B8C9E4526DC3659456EFF979CED5839B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076629   (311536) от 26.11.2016
-
-VA - Chillout Cocktail Christmas Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Kelly - I Saw Mommy Kissing Santa Claus
-02. Carol Sudhalter - Somewhere Over the Rainbow
-03. Middle Jazz Quartet - Stolen Moments
-04. Samuele Pagliarani - We Wish You a Merry Christmas(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5024A91096D3C7662A04C1C0A6BEF48502381A
 ```
 
 https://mybot314.ru/tekegram_catalog/

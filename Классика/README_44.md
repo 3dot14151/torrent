@@ -1,3 +1,31 @@
+###  Публикация: 501697   (258824) от 27.05.2012
+
+Мишель Плассон, Дрезденский Филармонический Оркестр - Ференц Лист, Симфонические Поэмы (2010) (Диск 2)[FLAC|Lossless]<Classical Music>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прометей (Симфоническая поэма № 5)
+2. Что слышно на горе (Симфоническая поэма № 5)
+3. Праздничные звучания (Симфоническая поэма № 7)2010Жанр: Classical MusicПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501421   (258619) от 26.05.2012
 
 Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumental Guitar Rock>
@@ -777,35 +805,6 @@ Steven Ang, Tatiana Konovalova, Francesca Lee - Highlights from Verdi's Macbeth 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10055FF186D479A5EBBA443B04755F8C4D53FBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635186   (242141) от 24.05.2023
-
-Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto in Istrian Style - Overture (7:49)
-02. Concerto in Istrian Style - Intermezzo (10:07)
-03. Concerto in Istrian Style - Cadenza ad libitum (9:18)
-04. Concerto in Istrian Style - Canone e Rondo (7:22)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B042E7734A5644BB56A6F182AB321176A48E42
 ```
 
 https://mybot314.ru/tekegram_catalog/

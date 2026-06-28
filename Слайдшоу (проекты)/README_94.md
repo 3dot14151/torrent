@@ -1,3 +1,109 @@
+###  Публикация: 1085126   (215628) от 20.12.2016
+
+Проекты - VideoHive - Modern Slideshow - 19130210 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Slideshow - шаблон высокого качества, который подходит для любого мультимедийного проекта. Просто поместите ваши изображения или видео, редактируйте текст, добавляйте аудио и наслаждайтесь результатом. Этот шаблон удовлетворит любую из ваших потребностей в кинопроизводстве.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C69347FF6672B6A6D964403CB56EC096A9AB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966816   (215467) от 19.12.2015
+
+Pond5 - Old Album Photos - 58206493 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект - Ретро фотоальбом для семейного архива.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDF48FE9CCE67B6F16D11C3B6FDF4D49827A2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966842   (214555) от 19.12.2015
+
+Проекты - VideoHive - PhotoMotion - Professional 3D Photo Animator (v.1) - 13922688 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальные фотореалистичные анимационныe 3D эффекты из обычного фото. В PhotoMotion реализованы сотни интеллектуальных функций, таких как автофокус, глубина резкости, блики и другие. Все происходит в фоновом режиме и у вас есть полный контроль над процессом с помощью использования смарт-пользовательского интерфейса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180F8820FF952A5B518B2D848C3EB90B84A6649E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586820   (214249) от 28.10.2022
+
+Проекты - VideoHive - Memories Photo Slideshow | Clean Lovely Photo Slideshow - 37850434 / 37867614 [AEP, MOGRT]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214249.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Memories Photo Slideshow | Clean Lovely Photo Slideshow» -стильный элегантный проект для создания винтажного, креативного слайд шоу.
+Многие оценят по достоинству.Формат: AEP, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1C4F789BC9191D338DBAA7FF0E27DFEB13BBFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558737   (213170) от 21.06.2022
 
 Проекты - VideoHive - Realistic Photo Slideshow | Memories Slideshow - 38038422 [AEP]
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E52ABB8B406F5FF03E623C6C897380264BACB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344421   (170044) от 10.12.2019
-
-Проекты - VideoHive - Fashion Opener | Bold Typography - 23175243 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fashion Opener | Bold Typography - модный динамичный проект с текстовыми эффектами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269AA3A4F82266D1024FA79F6F32BE1946F58AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345118   (167785) от 13.12.2019
-
-Проекты - VideoHive - Travel Memories - 20160841 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с эффектом параллакса широкого спектра применения, подходящий под разные категории оформления: путешествия, отпуск, воспоминания, ваши лучшие моменты.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA23177FA1A3FAAB2FF5BD7FE3BC8DDE5B0E4CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344913   (167779) от 13.12.2019
-
-Проекты - VideoHive - Parallax Promo - 18515367 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallax Promo - создание слайдшоу с 3D эффектом.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F86CD90C5446B375EF88F132B5CA51F9CD3938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344918   (167769) от 13.12.2019
-
-Проекты - VideoHive - Neon Mood Slideshow - 19460533 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neon Mood Slideshow - Создайте невероятную атмосферу высоких технологий и погрузитесь в мир будущего.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C352EF5BEB5649C29985E4BA4D29FD9C8F44A1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

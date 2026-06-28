@@ -1,3 +1,29 @@
+###  Публикация: 989549   (915043) от 23.02.2016
+
+Звуковые библиотеки - Diginoiz - R&B Love Songs [WAV, REX]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция семплов в стиле R&B, Hip Hop and modern-pop.Формат: WAV, REX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14D512ECA9E5EEC1CBFC434280AB16B34F433B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989510   (915026) от 23.02.2016
 
 Звуковые библиотеки - North hive lab - Glitch tools [WAV]
@@ -650,32 +676,6 @@ NNM Club Sound Cleaner's - andgelo12 - Total Collection Of Cleared Music [MP3]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F04CD13B3E0475448A1B2217341A721FBAB7177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374982   (868718) от 12.04.2020
-
-Звуковые библиотеки - Fluffy Audio - Venice Modern Strings - RePack Андрей650071 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Venice Modern Strings - это сэмплированный струнный оркестр для Kontakt 5, в котором представлены 8 первых скрипок, 6 вторых скрипок, 5 альтов, 5 виолончелей и 3 контрабаса. В библиотеке представлены три вида легато: портаменто, легато со сменой пальцев и легато со сменой смычка. Они могут быть запущены либо по велосити, по MIDI CC или колесом модуляции. Кроме того, (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NKX, NKI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472E7CDE86E19B9AB5E57DBBC2E4A1022689BFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

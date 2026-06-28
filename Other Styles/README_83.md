@@ -1,3 +1,119 @@
+###  Публикация: 909676   (624070) от 19.06.2015
+
+David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Dawn [00:04:18]
+02. Sirens [00:03:11]
+03. Dreaming Desire [00:05:23]
+04. Remembering Where We Were [00:08:10](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3767B632EA8C711DD831FF8C624597F552DAD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351377   (623627) от 16.06.2011
+
+The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental, Soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Moonriver (From: Breakfast At Tiffany's)
+02 The Way We Were
+03 As Time Goes By (From: Casablanca)
+04 Love Theme (From: Romeo & Juliet)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE518609A405BDF6DE625F86AD1922368B38048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294889   (623596) от 10.04.2019
+
+А.И.Жихарев - Поющая бронза (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Композиция 01 (5:12)
+02. Композиция 02 (3:53)
+03. Композиция 03 (4:00)
+04. Композиция 04 (5:36)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F1A0736C6A8E43605B3FFF8E53746F7BE640F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542817   (623568) от 14.04.2022
+
+James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age, Tribal, World Beat>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gatekeeping
+02. Salute to Cuba
+03. Drum Dialogue
+04. Until the Ice Cracks(   Читать дальше...   )Жанр: New Age, Tribal, World BeatПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522140   (623012) от 13.07.2012
 
 Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
@@ -665,122 +781,6 @@ David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683411   (619656) от 28.07.2013
-
-Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conquest Of Paradise (4:48)
-2.  Voices (6:52)
-3.  Blade Runner (Main Titles) (3:35)
-4.  Tears In Rain (2:54)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1BA9FF71774FAC21E5DF3F78A2B92B7D2D000F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036710   (619137) от 21.07.2016
-
-VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Love is the Answer
-02. Paul Machlis - Greenwoods
-03. Ceredwen - Morwyn y Blodau (Lady of the Flowers)
-04. Eamonn Karran - Distant Sun(   Читать дальше...   )Жанр: New Age, World, CelticПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B959054252280DA631B11BC9C66AC18D25114A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230108   (619070) от 10.06.2018
-
-Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Forever (6:45)
-02. Sea of Mountains (8:10)
-03. Aniem (8:25)
-04. Forever Together (6:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F661F0F326440AD8A83B0718A253AFE53EEBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230092   (619064) от 10.06.2018
-
-Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Emptiness
-02 – The First Heartbeat
-03 – Twin Worlds
-04 – Endless(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
 ```
 
 https://mybot314.ru/tekegram_catalog/

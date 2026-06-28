@@ -1,3 +1,32 @@
+###  Публикация: 1286666   (711023) от 03.03.2019
+
+VA - 100 Hits American Anthems (2019) 5CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711023.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Survivor - Eye of the Tiger
+02. The Bangles - Hazy Shade of Winter
+03. Belinda Carlisle - (We Want) The Same Thing(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC91B377F0BE34E8D39193B3540DB8E4D6854535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131012   (710667) от 04.05.2017
 
 VA - Move on Up – Dance Music (2017) [MP3|320 Kbps] <RnB, Soul, Disco>
@@ -717,35 +746,6 @@ Dennis Garcia - Jive To Stay Alive (1977) LP [MP3|320 Kbps] <Electronic,  Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80846B6566346A74C8B2422AA728D5436D2BEDA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027574   (694842) от 20.06.2016
-
-Carrie Rodriguez & The Sacred Hearts - Lola (2016) [MP3|320 кб/с] <Pop, Folk, World>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Perfidia    02:59
-02.  Llano Estacado    03:39
-03.  I Dreamed I Was Lola Beltran    05:23
-04.  La Ultima Vez    04:28(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7343608023CB861CFE89BB765F537B49433B860
 ```
 
 https://mybot314.ru/tekegram_catalog/

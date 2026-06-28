@@ -1,3 +1,119 @@
+###  Публикация: 1210964   (778148) от 05.03.2018
+
+Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Son of Krishna (6:50)
+02. Human Nature (7:25)
+03. In Search of the Truth (8:06)
+04. Dhamma (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211108   (778069) от 05.03.2018
+
+ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свадебное путешествие (4:16)
+02. Страна дураков (3:59)
+03. Белый месяц (3:41)
+04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013172   (777975) от 03.05.2016
+
+Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merlin
+02. En tu mirada
+03. Danza Medieval
+04. Evolucion(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012985   (777961) от 03.05.2016
+
+Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pathway to the Past    06:23
+02. Celebrating Ancient Times    05:08
+03. Dance of the Spirits    04:27
+04. Festival at the Castle    08:16(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B335E12765C7BFFBE4F87FB2FB73FC9E72134C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533777   (777772) от 03.05.2016
 
 Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
@@ -629,122 +745,6 @@ Sverre Knut Johansen - Earth From Above (2016) [MP3|320 кб/с] <Ambient, New a
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF6FE63BA78E6EEAB3EA858572A2CD4C0DF8FFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014351   (776494) от 07.05.2016
-
-Orbis Mundi - Adia (2000) [FLAC|Lossless|tracks] <New Age, Folk Rock, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Violin    03:29
-02. Olushegun    03:43
-03. Orbis Mundi    03:54
-04. Theme from Orbis Mundi    03:32(   Читать дальше...   )Жанр: New Age, Folk Rock, Modern ClassicalПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37661A547F453042E57E1395BD7A02B304CEE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014389   (776486) от 07.05.2016
-
-Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay With Me    03:38
-02. Silver Lights    04:42
-03. Philadelphia    04:34
-04. Reflection Of The Soul    03:41(   Читать дальше...   )Жанр: New Age, Downtempo, Chill OutПродолжительность: 00:01:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023EAF47CA71B3DDD4A5A82F8F426F35ADF22367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014354   (776481) от 07.05.2016
-
-Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If (2:52)
-02. Song From Secret Garden (2:59)
-03. Make It With You (3:21)
-04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212057   (776430) от 10.03.2018
-
-Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пробуждения Жабъа (2:02)
-02. Жабъ и Крот (2:39)
-03. На Битву (3:55)
-04. Уж Следит За Хомяком (2:57)(   Читать дальше...   )Жанр: folk,metal,rockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501FCE0AE24F73DD6691F51DC5E4AE2635A8AA8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

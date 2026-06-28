@@ -1,3 +1,29 @@
+###  Публикация: 1035544   (626068) от 17.07.2016
+
+Сергей Матвеев | Я помогу выучить английский язык. Самоучитель (2016) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626068.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Цель пособия - помочь всем желающим выучить английский язык самостоятельно. Эффективная авторская методика позволяет довольно быстро освоить структуру английского предложения и начать строить правильные английские фразы. В пособии дается облегченный курс грамматики и достаточный объем лексики, чтобы читать несложные тексты и уметь вести беседы на разные (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB45E61785B5EEA3C7A23236481C7A7561F845D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 158706   (625200) от 18.06.2015
 
 Н.И. Фельдман-Конрад | Японско-русский учебный словарь иероглифов [1977] [DJVU]
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C27231698D96545890FFB0122F0DF8946B26D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299001   (599903) от 01.05.2019
-
-American Education Publishing | The complete book of phonics (2003) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599903.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book emphasizes the key phonics skills that children need to know as they learn to become independent readers. Lessons involve children in the process of reading, writing, listening, and speaking. Children learn to recognize frequently occurring initial and final consonant sounds, and they are introduced to initial and medial short vowel sounds. Creative activities (   Читать дальше...   )Жанр: Учебное пособие, Для детей, Развитие речи, ЧтениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15EE039AA6C17168F40B07EC9AF91024401233D
 ```
 
 https://mybot314.ru/tekegram_catalog/

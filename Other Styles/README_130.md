@@ -1,3 +1,119 @@
+###  Публикация: 1058943   (348804) от 24.10.2020
+
+Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tear Up This Town (Keane)
+02. Conor Wakes Up / Main Title
+03. Drawing
+04. The Monster Wakes Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23AA3D45AA5185F7912AD98490C8713A11D85C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468609   (348244) от 24.10.2020
+
+ТІК - 4 альбома (2007-2020) [MP3|320 кб/с] <Народная, поп, данс-поп, рок, фолк-рок>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SOSюра
+2. Вчителька
+3. Олені
+4. АЛКОголізм(   Читать дальше...   )Жанр: Народная, поп, данс-поп, рок, фолк-рокПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A95D1552413BDFD543AAFC74990B3387E65132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577511   (348057) от 22.09.2022
+
+TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tausend Tage [00:03:46]
+02. Ich vermisse dich [00:03:46]
+03. Träumen und Hoffen [00:03:40]
+04. Für immer [00:03:22](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577625   (347762) от 22.09.2022
+
+Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, Stage & Screen>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Race
+02. My Heart Will Go On
+03. Invitation To The Dance
+04. Etude In A New Form(   Читать дальше...   )Жанр: Pop, Classical, Stage & ScreenПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536BBE896BE4ECB9FF36D4F6FB7E849079077ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073046   (347512) от 15.11.2016
 
 Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Soundtrack from the Netflix Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -637,119 +753,6 @@ Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA8FD26E3DD2706D31F4CA8950DF9D8CAD96872A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180351   (342363) от 03.11.2017
-
-Clint Bajakian - Outlaws (Game Soundtrack) (1997) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outlaws
-02. Sanctuary
-03. The Shack
-04. Anna's Theme(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4959AD5E5CE49B9C05650B1CD0C8A1AACD2211FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580499   (342036) от 25.11.2012
-
-Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180277   (341973) от 03.11.2017
-
-ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane 03:16
-02. 7 Seconds 04:03
-03. Kilimandjaro (Brian Levi Remix) 03:59
-04. Ameno (The City Remix) 03:35(   Читать дальше...   )Жанр: New-Age, EtherealПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE98FF839B744A95A057E4B70B8BB5E940F81A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330298   (341283) от 10.10.2019
-
-VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Has Broken (3:36)
-02. Always On My Mind (3:51)
-03. Bright Eyes (3:40)
-04. Moon At Noon (3:52)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976D8FAF52FDDC1A4258C5A34461384E7AD5208B
 ```
 
 https://mybot314.ru/tekegram_catalog/

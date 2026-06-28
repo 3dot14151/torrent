@@ -1,3 +1,177 @@
+###  Публикация: 1541116   (232607) от 03.04.2022
+
+Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Is Trix (Intro) (0:55)
+02. Too Damn Hot (3:36)
+03. Getting Cross (2:58)
+04. Beatptized (Aclapella) (3:42)(   Читать дальше...   )Жанр: Neo CharlestonПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A0708C958680E5D374279DA1A1A3B6CC6685D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541477   (232599) от 03.04.2022
+
+VA - Vanlife Moods, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tapelapse - Daydreaming (2:10)
+02. Velvet Dreamer, Michael Buk - Midnight Lovers (Original Mix) (4:47)
+03. Chambre 2 - Le matin se reveille (Original Mix) (4:38)
+04. Weathertunes - Mystic River (Original Mix) (5:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3014DA7E84AC356C46FD5B7FFF712CF1012075C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541229   (232592) от 03.04.2022
+
+VA - After Work Chillout, Vol. 2 (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillout Lounge Ibiza - Embrace in Space (Sunset Mix) (5:46)
+02. Emotions Music - Vernal Awakening (6:40)
+03. Dama - Dream (2:44)
+04. Greg Suaves - Riding the Wind (Cut Version) (1:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B6300B9DDD87CBA81AE227FAD145E382052BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541260   (232584) от 03.04.2022
+
+VA - Sweet Morning (Chill out and Lounge Collection), Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CaPa - Julian (Original Mix) (4:39)
+02. Weathertunes - Flower Fields (Original Mix) (5:01)
+03. Weber - Back at Weber's (Original Mix) (3:43)
+04. Dreamhunter - Horizon in Blue (Original Mix) (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1655B7C54339FEBD4F66A5F99E458919484707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541485   (232565) от 03.04.2022
+
+VA - Deep-House Carnival, Vol. 2 (2022) [AAC|~316 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass - Got It on the Dancefloor (Original Mix) (4:50)
+02. House Affairs - So Cool (Original Mix) (5:21)
+03. Cedric Salander - Inside Me (Original Mix) (7:13)
+04. Benatural - Barbus (Original Mix) (5:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C010480A91AEA2BCC03CD3E665647A53BC54E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541224   (232559) от 03.04.2022
+
+VA - After Work Chillout, Vol. 1 (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Makia Blue - Thought Carousel (4:22)
+02. Dyodho - Eternity (Extended Chillout Mix) (7:30)
+03. The Big Break Lounge - Beautiful Time (4:53)
+04. Heisenwerk - Maximum Chillout (3:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F06EF84616BFD4DE0B6DEACDC61E929A71B1412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 789173   (230990) от 06.10.2022
 
 Игорь Тальков - Лирика (Часть вторая) (2003) [ALAC|Tracks]<Авторская песня>
@@ -546,168 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F5B3A3667CD12CBD58CDAFA3949B17E6AE8EAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267767   (228639) от 09.12.2018
-
-Маугли / Mowgli (2018) WEBRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228639.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о взрослении ребёнка по имени Маугли в волчьей стае в джунглях Индии. Он учится суровым законам джунглей под опекой медведя Балу и пантеры Багиры и принимает обитателей диких джунглей за своих. Всех, кроме одного: страшного тигра Шерхана. Но вскоре мальчику предстоит узнать, что в джунглях его могут поджидать куда большие опасности, чем тигр, и одна из них (   Читать дальше...   )Производство: СШАЖанр: Драма, приключенияРежиссер: Энди СеркисАктеры: Роэн Чанд, Кристиан Бэйл, Кейт Бланшетт, Бенедикт Камбербэтч, Наоми Харрис, Энди Серкис, Питер Муллан, Джек Рейнор, Эдди Марсан, Том ХолландерПеревод: Дублированный (Пифагор)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  Английские,  АнглийскиеПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A505C2AD56E9631D32A35FF5BAFC646ADABED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424409   (228504) от 16.11.2020
-
-Стрельцов (2020) WEB-DL [1080p] ATV3
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228504.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 20 годам у него есть все, о чем только можно мечтать: талант, деньги, слава, любовь. Он — Эдуард Стрельцов, восходящая звезда советского футбола и кумир миллионов. Вся страна с замиранием сердца ждет побед советской сборной на предстоящем Чемпионате мира в Швеции и дуэли Стрельцова с Пеле. Но за два дня до отъезда команды недоброжелатели ломают судьбу спортсмена. (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, спортРежиссер: Илья УчительАктеры: Александр Петров, Стася Милославская, Александр Яценко, Виталий Хаев, Виктор Добронравов, Ася Домская, Надежда Маркина, Алексей Морозов, Василий Мищенко, Алексей КолганПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF15FFF860112060593DDAC3606B847DFB0F12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341737   (228348) от 29.11.2019
-
-Огонь Кристиана Лубутена 3D / Feu: Crazy Horse Paris (2012) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый создатель туфель с красной подошвой ставит шоу в известном парижском клубе «CRAZY HORSE PARIS». По словам самого Лубутена, танцевальные номера в парижском кабаре «это памятник, памятник танцу, фантастическая идея праздника для женщин от женщин».Производство: Франция (студия KaBo)Жанр: Документальный, Мюзикл, ШоуРежиссер: Бруно ХаллинАктеры: Люмина Классика, Нука Карамель, Бейби Лайт, Кристиан Лубутен, Лив Менот, Дива Новита, Фьямма Роза, Ясна Снигура, Псикко Тико, Лоа ВаинаПеревод: Профессиональный многоголосый (CP Дистрибуция)Субтитры: ОтсутствуютПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BAD542BFFC9448C240DAAD301645FF9F25126A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424501   (228176) от 17.11.2020
-
-Monolith - Sentience (2020) [AAC|~340 Kbps] <Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sentience I: Awakening (6:14)
-02. Lucid (5:55)
-03. Departure (3:18)
-04. Skyline (4:43)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609353EFC2515DDC61495D8AB2534789CD259030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424502   (228106) от 17.11.2020
-
-Principium - Principium (2020) [AAC|~346 Kbps] <Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiver's Vision (8:04)
-02. King (4:52)
-03. The Ladder, Pt. I (5:20)
-04. The Ladder, Pt. II (3:46)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E43B99FA3E536185F61C4095C6C430F1AAF5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341616   (228087) от 29.11.2019
-
-Однажды в… Голливуде / Once Upon a Time... in Hollywood (2019) WEB-DLRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». Известный актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Леонардо ДиКаприо, Брэд Питт, Марго Робби, Эмиль Хирш, Маргарет Куэлли, Тимоти Олифант, Джулия Баттерз, Остин Батлер, Дакота Фаннинг, Брюс ДернПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Full), английские (Full, SDH)Продолжительность: 02:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7D48FD69F7DCA238ED20308F05AC69E94C1586
 ```
 
 https://mybot314.ru/tekegram_catalog/

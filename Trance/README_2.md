@@ -1,3 +1,90 @@
+###  Публикация: 1853355   (1056508) от 12.02.2026
+
+VA - Uplifting Trance Collection, vol.1 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polzn Bladz - Awkward Silence (Extended Mix) [6:52]
+02. Elatex - Lost in Keys (Extended Mix) [5:55]
+03. Polzn Bladz - Intended Outcome (Extended Mix) [7:40]
+04. DJ Willbo - Cosmic Star (Original Mix) [7:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5FCD7ECEE4CA927CF22541F131ED55CA5B3F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852384   (1056028) от 07.02.2026
+
+VA - Best of Blue Dot Trance (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Nicholas Gunn feat. Alina Renae - For You (Original Mix) [3:17]
+02. Ciaran McAuley & Kenna Childs - Oceans (Original Mix) [3:40]
+03. North Skies - Spiraling Down (Original Mix) [3:39]
+04. Harshil Kamdar & MIDI Kittyy - Set Me Free (Original Mix) [3:45](   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2703D58743F9CB36C911B7FB5919902E5870E768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852023   (1055987) от 07.02.2026
+
+VA - Top 11 September 2025 Emotional and Uplifting Trance (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andreas Puertas - Like You Do (Dub Intro Mix) [3:14]
+02. Henrik Nilsson - A Distant Star (Original Mix) [7:43]
+03. Masaru Hinaiji - Ours (Original Mix) [7:02]
+04. Ivan G.M. - Exoplaneta Su Eta Gar (SouthDreamer Remix) [7:34](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48D57B19C1295DFB1C1F160DCA53778D3DA9480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851848   (1055347) от 04.02.2026
 
 VA - Suanda Future 2026-01 (2026) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6595353EE397AD8EDD9C686D3391E16C1FA2C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844722   (1050421) от 28.12.2025
-
-VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suntim - Luminosity (Extended Mix) [5:06]
-02. Evgeny Casper - The Energy Of Sound (Extended Mix) [6:18]
-03. KaKi - Manjushage (Extended Mix) [7:13]
-04. Angel Ace - The Purpose (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844225   (1050026) от 25.12.2025
-
-VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Popov & Huvagen - Fairytale (Mixed) 02:34
-02. Alexander Popov & Whiteout & Vaileri - Need To Feel Loved (Mixed) 03:33
-03. Idy Ramy & Dawtone - Pilgrim (Mixed) 03:02
-04. Dawtone & Alex Soun - Sirma (Mixed) 04:09(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0698F83EC1BE8BC08455DDE21783E3FAF9130F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844306   (1050025) от 25.12.2025
-
-VA - Enhanced Progressive Best of 2025 (Mixed by Matt Fax) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Arp (Intro Mix) 06:51
-02. Matt Fax - Sleepwalking (feat. Leo Wood) (Mixed) 03:52
-03. Nitrous Oxide & Genie - Fly (Mixed) 04:19
-04. York, John Grand & Lea Key - Indestructible (Mixed) 04:19(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496F144213B204C52A358283854B4509E46D820E
 ```
 
 https://mybot314.ru/tekegram_catalog/

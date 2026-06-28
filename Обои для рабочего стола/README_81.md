@@ -1,3 +1,29 @@
+###  Публикация: 970598   (138342) от 31.12.2015
+
+Обои - Best Wallpapers Mixed 218 2560x1600 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на разные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C76E23838F1869BCC55292A56CA60DEDE4257A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970290   (138178) от 31.12.2015
 
 Обои - Nature & Landscape Wallpapers  part 3 2560х1440 [JPG]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F737FFEA3862D2C91B319E842783FECE07191C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596975   (130977) от 31.12.2012
-
-New year wallpapers 2013 (30.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52764B07E0F698B2FE943CF10269B27F521D3E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

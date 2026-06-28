@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1878494   (1074614) от 
+
+Рич Йонтс | Rich Yonts | 100 ошибок C++ и как их избежать | 100 C++ Mistakes and How to Avoid Them [2 книги] (2025, 2026) [PDF, EPUB, MOBI, AZW] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более десяти миллиардов строк кода C++ в настоящее время используется в реальных проектах, и 98 % разработчиков ежедневно находят и исправляют в них ошибки. Даже в критически важных приложениях встречаются баги, проблемы с производительностью и читаемостью. Эта книга поможет выявить их в коде, который вы поддерживаете, и избежать — в коде, который вы пишете.
+Познакомьтесь (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Учебная литератураПеревод: Н.ГригорьеваЯзык: Русский, английскийИздательство: Питер; Manning PublicationsФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F877A7E8A32DFFBE92761D42612F50205A8F0FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877909   (1074503) от 
+
+К. Измайлов | Базы данных на Python и ИИ (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – практическое руководство по работе с данными в Python, написанное для тех, кто хочет не просто «знать теорию», а реально работать с данными в повседневных задачах. Шаг за шагом мы пройдем полный жизненный цикл данных: от хранения в базах и написания запросов до анализа, оптимизации и осмысленной интерпретации результатов.
+Издание «Базы данных на Python (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Учебная литератураИздательство: Наука и техникаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FC7DB320B23B269C7CCE545B481639F86E400E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877920   (1074236) от 23.06.2026
+
+Джефф Януччи | Изучаем SQL за месяц, занимаясь один час в день (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074236.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQL, «структурированный язык запросов» (Structured Query Language) — это универсальное средство создания, управления и составления запросов к реляционным базам данных, таким как SQL Server, PostgreSQL и Oracle. Для аналитиков данных SQL — супер инструмент, позволяющий выйти за пределы обычных табличных редакторов и систем бизнес-аналитики. При этом язык SQL интуитивен (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Учебная литератураПеревод: С. ГусевИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0341314BDAB544AECEB73160371FAB37AB3C4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874350   (1071917) от 02.06.2026
 
 Артём Михайлов | Алгоритмы на языке Go (2026) [PDF]
@@ -607,85 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850563   (1054616) от 31.01.2026
-
-Илья Кантор | Современный учебник JavaScript [3 книги] (2026) [EPUB, PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1054616.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого учебника вы можете изучить jаvascript, начиная с нуля и заканчивая продвинутыми концепциями вроде ООП. Мы будем использовать браузер в качестве окружения, но основное внимание будет уделяться именно самому языку jаvascript. Давайте посмотрим, что такого особенного в jаvascript, чего можно достичь с его помощью, и какие другие технологии хорошо с ним (   Читать дальше...   )Жанр: ПрограммированиеЯзык: русскийИздательство: javascript.ruФормат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63B0AE81725267A9B84C735385FC9C6E8EA1603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849347   (1053554) от 22.01.2026
-
-Alex Vasilev | Python by Example (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053554.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is dedicated to teaching the Python programming language, covering all the essential topics necessary to write effective Python code. It is designed to help readers learn by example, demonstrating how to create and use Python scripts through practical tasks and illustrative examples.
-The book is organized into eleven chapters. The first chapter introduces (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849242   (1053540) от 22.01.2026
-
-Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Implementing Generative AI and Agentic AI. A Practical Guide to Developing, Deploying, and Operationalizing AI-Driven Ap ...
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI and Agentic AI together are revolutionizing the technology landscape, with profound and far-reaching impacts across industries. Organizations are increasingly adopting these technologies to drive innovation, enhance unstructured content management, and improve problem-solving capabilities. With Agentic AI, enterprises are moving towards the development (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллект, Компьютерные сетиЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
 ```
 
 https://mybot314.ru/tekegram_catalog/

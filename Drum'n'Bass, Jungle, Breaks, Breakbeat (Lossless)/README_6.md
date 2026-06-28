@@ -1,3 +1,32 @@
+###  Публикация: 949447   (376390) от 23.10.2015
+
+Infected Mushroom - Friends On Mushrooms (Deluxe Edition) (2015) [FLAC|tracks+.cue]<Psy-Trance, Dubstep, Electro House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infected Mushroom - Kafkaf (5:37)
+02. Infected Mushroom - Bass Nipple (4:54)
+03. Infected Mushroom feat. Savant - Savant on Mushrooms (6:18)
+04. Infected Mushroom - Kipod (6:55)(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D0465326B700722ACB13E78EB9FF1301F4A811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950474   (369577) от 26.10.2015
 
 Nero - Between II Worlds (2015) [FLAC|tracks+.cue]<Dubstep, Electro House>
@@ -716,35 +745,6 @@ VA - Fokuz Recap 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E684737537B8DBE11B434B7B141762C7DFAF40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445559   (238262) от 06.02.2021
-
-VA - Fokuz Recordings - 2017 Recap (2017) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edlan - Blades (05:39)
-02. The Vanguard Project - In The Ground (05:16)
-03. Air.K & Cephei - Savannah (Gerra & Stone Remix) (04:47)
-04. Need for mirrors - Vantage (05:14)(   Читать дальше...   )Жанр: JungleПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3067CA2C10D5A1552949D468D850B8AD252851B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

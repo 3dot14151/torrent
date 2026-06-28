@@ -1,3 +1,32 @@
+###  Публикация: 1211648   (777240) от 08.03.2018
+
+Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bigger balls (02:53)
+02. Saturday night diva (03:51)
+03. My longest mile (05:58)
+04. Devil's kiss (03:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB3E2325BAC9DA4D6D17196ED9E644B201B5EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014259   (776572) от 07.05.2016
 
 Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
@@ -724,35 +753,6 @@ VA - Atlantic Blues  (1991) 4 CD Box Set [MP3|320 kbps]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B08B00BA3A384F93F1A56992E8DD50F02DBBCD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017300   (761102) от 17.05.2016
-
-Muddy Waters -  Les Genies du Rock - Got My Mojo Working (1993) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Muddy Waters Twist (1:53)
- 02.  Read Way Back (2:37)
- 03.  Rock Me (3:11)
- 04.  Hey, Hey (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD4F7D3F3A400C28C4C4E68947C1E9E6D37B8C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

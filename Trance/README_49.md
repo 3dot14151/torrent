@@ -1,3 +1,90 @@
+###  Публикация: 1268787   (225234) от 12.12.2018
+
+VA - Total Trance Selections Vol.14 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nakhiya - Intersideral (Original Mix)
+02. Gerome - Sky Citizen (Original Mix)
+03. Franco Scaravaglione - Spice (Original Mix)
+04. Running Man - Amnesia (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810D313B4921CED565AAAA322E009995424CF4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268948   (225198) от 12.12.2018
+
+VA - Suanda Music Radio Top 20 (December ) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - New Era (Suanda 150 Anthem) (Original Mix)
+02. Photographer - Infinity (Steve Allen Remix)
+03. Roman Messer feat. Christina Novelli - Fireflies (Alexander Popov Remix)
+04. Attila Syah - Falcon (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F1564E33093CA71726F34A0022818F1958CAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650541   (224785) от 03.08.2023
+
+VA - Anniversary Remixes: The Complete Full Length Collection (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Cameron - Wheels Stop (Criostasis Remix) [6:51]
+02. Kenny Palmer - Quel'Danas (Paul Skelton Remix) [7:48]
+03. Kenny Palmer - Kirin Tor (Mercurial Virus Remix) [7:15]
+04. DJ Ten - Midnight Oil (Miroslav Vrlik Remix) [5:59](   Читать дальше...   )Жанр: TranceПродолжительность: 03:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440AD5F557E66866A82456B3145A956A450A6ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650710   (224641) от 03.08.2023
 
 VA - Best Of Vocal Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Uplifting Only: Fan Favorites 2016 (Mixed by Ori Uplift) (2016) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F54E30A2D35FF47993B3686F6BB7AD7BBB7798A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270299   (214314) от 18.12.2018
-
-VA - Anjunabeats The Yearbook 2018 Vol 1 (2018) 2 CD [MP3|320 Kbps] <Progressive Trance, Progressive House, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Above & Beyond - Always (Mixed) (04:00)
-02. Spencer Brown - Arps n Crafts (Mixed) (06:04)
-03. Grum - Hourglass (Mixed) (03:51)(   Читать дальше...   )Жанр: Progressive Trance, Progressive House, Tech TranceПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2ECF106475E9860D32E361469997D63B8DDE7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638294   (211940) от 09.06.2023
-
-VA - Trance Anthems (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Alex M.O.R.P.H. - Afterlife (Extended Mix) [6:52]
-02. DJ Eternity - Soul Experience (Extended Mix) [6:39]
-03. Ralphie B & Frank Waanders - Fata Morgana (Extended Mix) [7:25]
-04. Talla 2XLC - Avalon (Extended Mix) [6:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C85318DD25821A699B538270ACF80D73A67F0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639101   (211716) от 11.06.2023
-
-VA - Keep It Trance Vol. 12 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AFTERUS - Something More (Extended Mix) [6:00]
-02. Aspiration - Generate (Original Mix) [7:08]
-03. Life Explorer - Back To Earth (Extended Mix [7:22]
-04. ZQRM & Palie - Waterproof (Original Mix) [3:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9EB05290C1A2906EC57AA892F70F0654C6FE4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

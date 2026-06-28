@@ -1,3 +1,202 @@
+###  Публикация: 1484784   (1005349) от 26.07.2021
+
+Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nebyla - Mountain Yard 05:24
+2. Pobedia - 6 a.m 04:57Жанр: Dub Techno, Deep TechnoПродолжительность: 00:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DD97325675188E0AA6DFBD0211B1117C424BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485676   (1005223) от 27.07.2021
+
+Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005223.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Change Works
+2. DominoЖанр: Techno, Minimal TechnoПродолжительность: 00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C086B7335F7765617382500E9AF3563F12E5818F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180845   (1004928) от 29.07.2021
+
+Anton Kubikov (A. Kubikoff) - Discography 26 Releases (1999-2021) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Techno, Ambient, Deep House, Tech House, Minimal>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killahertz - Boost (05:38)
+ 02. De:Se - De's World (05:24)
+ 03. Polar Lights - Joytime (04:49)
+ 04. Chizh - Psy Out (06:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Techno, Ambient, Tech House, Minimal •Продолжительность: 15:49:45 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EFD8177677334A782D4BE1CB239174538ADD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486289   (1004749) от 31.07.2021
+
+VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airstream - Coffee Bar (Sunnys Pool Mix) (04:49)
+02. DJ Maretimo - Rio (Take Me on Mix) (05:31)
+03. Cinematic - Sunset Love (The Funky Light Mix) (04:31)
+04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (04:49)(   Читать дальше...   )Жанр: Organic House, Downtempo, LoungeПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349468   (1004492) от 01.01.2020
+
+VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wavekiki – Loosing Gravity | Hraach Remix (07:03)
+02. GESPONA – Dandarah | Silar Remix (07:03)
+03. Greenage – Esperanza (07:02)
+04. Wassu – Devi | Erdi Irmak Remix (06:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487163   (1004147) от 03.08.2021
+
+Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1.16699016 x 10^-8 hertz (Niklas Paschburg Remix) (4:12)
+ 02. Wherever You Are (Tinlicker Remix) (5:48)
+ 03. The Clouds Silver Lining (Joachim Pastor Remix) (6:50)
+ 04. Once in a Blue Moon (Eightfold Remix) (5:56)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FB16C9E8FBE4D553EC66DE693996CB368F12F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349846   (1004109) от 03.01.2020
+
+Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Stayin' Alive (Radio Mix) 3:39
+2 Night Fever (Radio Mix) 3:41
+3 Stayin' Alive (Club Mix) 5:09
+4 Night Fever (Club Mix) 5:22Жанр: HouseПродолжительность: 00:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C93B4ACE109D684B4DBBF698403FFBF5CC4A284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487335   (1003882) от 04.08.2021
 
 Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Ambient>
@@ -531,217 +730,6 @@ VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3D71D1C10E0CCC7E40C0B39848C75D08F36B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547986   (1000715) от 15.01.2020
-
-Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, Euro House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brooklyn Bounce (рус. «Бруклин Баунс») - немецкая музыкальная группа, работающая в стиле Hard House, Euro Trance. В начале своего творческого пути была одной из самых востребованных и популярных танцевальных команд. За двенадцать лет было продано 2 500 000[1] CD с синглами группы. Одно из самых известных произведений Brooklyn Bounce «Bass, Beats and Melody» получило (   Читать дальше...   )Жанр: Euro Trance, Hands-up, Techno, Хард-хаус, Progressive HouseПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D797157C55F5500617F2A4F2964721EBDD57EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597720   (999964) от 04.01.2013
-
-VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]<Dance, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modjo - Lady (Hear Me Tonight) [03:40]
-02. Sonique - It feels So Good [03:48]
-03. Junior Senior - Move Your Feet [02:59]
-04. Moloko - Sing It Back (Boris Musical Mix) [04:37]
-05. Stonebridge - Put 'Em High [03:25]
-06. Basement Jaxx - Rendez Vu [03:41]
-07. Wamdue Project - King Of My Castle [03:26]
-08. Bob Marley Vs Funkstar Deluxe - Sun Is Shining [03:53]
-09. The Cardigans - Love Fool (Tee's Club Radio Edit) [03:19]
-10. X-Press 2 Feat. David Byrne - Lazy [04:11](   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598662   (999668) от 05.01.2013
-
-VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:00:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601453   (997503) от 13.01.2013
-
-Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997503.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Mother Earth
-2. Sky Is The Limit (feat Donny Goines)
-3.  Sledgehammer
-4. Alchemist (feat Gino Sydal)
-5.  Dancer In The Dark
-6.  Hungry Eyes (feat Qwentalis)
-7. Sustainer
-8.  Witchcraft
-9.  Redemption
-10.  Konami Kode (feat. Donny Goines)(   Читать дальше...   )Жанр: Dubstep, Electro HouseПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603052   (997154) от 14.01.2013
-
-Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<House, Electro, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream & Shout (Dirty Main)
-02. Scream & Shout (Clean Edit)Жанр: House, Electro, PopПродолжительность: 00:08:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603418   (995891) от 19.01.2013
-
-Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Silence Never Heard (2:53)
-02. - Lost In You (feat. Janai) (5:15)
-03. - Stick By This (5:51)
-04. - Plastique (4:12)
-05. - I'm Running (feat. Soloman) (5:44)
-06. - Falling (7:00)
-07. - Grain (4:06)
-08. - Lost Highway (6:47)
-09. - Mr Miyagi (4:51)
-10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605635   (995662) от 20.01.2013
-
-David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Mountains 54 (Original Mix) (8:43)
-02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

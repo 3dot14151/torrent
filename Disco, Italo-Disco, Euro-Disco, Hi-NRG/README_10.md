@@ -1,3 +1,61 @@
+###  Публикация: 1206192   (782949) от 12.02.2018
+
+De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782949.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 875 Dollars (5:59)
+2. These Are Some Of The Things That I Think About (4:41)
+3. Smarter Harder Darker (3:54)
+4. Cause For Concern (4:59)(   Читать дальше...   )Жанр: Dance-pop, Italo-DiscoПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D803D1DC770471F2F89DA00A2A26220F615A0329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206062   (782946) от 12.02.2018
+
+The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. DJ You Know How To Make Me Dance (7:09)
+02. No One Can Find Love (7:24)
+03. Disco Concerto (15:55)
+(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F407FD611D442A0C40A214494320F1AF8E6EF4B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390655   (782632) от 16.06.2020
 
 Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco>
@@ -684,64 +742,6 @@ Linda Jo Rizzo - Magic Moments-My 35th Anniversary (2020) Singles Collection [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D234226F311C8EDDEED58279C5C621F5FE5175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392818   (769097) от 27.06.2020
-
-Dance People - Fly Away (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Away (6:43)
-02. Funk Attack (5:11)
-03. Dance People (6:33)
-04. Give Your Feet A Treat (5:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C9ED6E74883693FA4FAEEEEA76ED9A3CAA53BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278921   (767781) от 27.01.2019
-
-Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский диско проект от продюсера Джо Bisso.01. Love Is The Real Thing (7:22)
-02. My Man (8:27)
-03. If You Believe (3:24)
-04. The Mistery With Me (6:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E858EC74B667E8115B75AE8B0C5F9E598816EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 1522470   (756896) от 08.01.2022
+
+VA - Deep & Soul 1: Deep House Music for Your Soul (2020) [AAC|~325 Kbps] <Deep House, Nu Disco, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siso Em - Your Whispers (Original MIx) (7:04)
+02. Soul 96 - Love Is Colour (Original Mix) (6:14)
+03. Deep Spelle - My Heart (Alvaro Hylander Remix) (7:29)
+04. Ivan Garci - Ánimo (Original Mix) (7:58)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Soulful HouseПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132096ACC64F1737528A3E37EF4FEBA77E340BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522716   (756890) от 08.01.2022
+
+Bart&Baker - Nicolle Rochelle Sings Bart&Baker: The First Lady of Electro Swing (2016) [AAC|~331 Kbps] <Electro Swing, Nu Jazz, Breakbeat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart&Baker, Nicolle Rochelle - The Swing Phenomenon (Radio Edit) (3:51)
+02. Bart&Baker, Nicolle Rochelle, Pete Thomas, the Horns-a-plenty - Big Band (Electro Swing English Radio Edit) (2:57)
+03. Nicolle Rochelle, Sax By C.Sharp - Why Does Love Always End Up in Tears? (Original Version) (3:48)
+04. Bart&Baker, Au p'tit Bonheur, Nicolle Rochelle - I (   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, BreakbeatПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560421997090C9BAFCCE7885021E9B48AE8D16DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522480   (756888) от 08.01.2022
+
+VA - Deep & Soul 4: Deep House Music for Your Soul (2022) [AAC|~326 Kbps] <Deep House, Nu Disco, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Legend - Gently (6:41)
+02. M-Sol Project - Shine (Original Mix) (5:23)
+03. Simply Chill, Arthur Clemens - My Love to You (Extended Mix) (6:54)
+04. Schwarz & Funk - Open Your Mind (Nu Disco Mix Radio Cut) (3:00)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Soulful HouseПродолжительность: 01:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E003DBB937A6EA065AD79445260D8A36D08F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280883   (756826) от 05.02.2019
+
+Дикая жизнь / Wildlife (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пронзительная история любви Джерри и Жанетт. Это фильм о разбитом сердце, об ошибках, глупостях и утрате иллюзий, но главной движущей силой в нем остаётся любовь.Производство: СШАЖанр: ДрамаРежиссер: Пол ДаноАктеры: Джейк Джилленхол, Кэри Маллиган, Эд Оксенбульд, Билл Кэмп, Зои Маргарет Коллетти, Кейт Джонс, Лекси Анастэйша, Молли Миллиган, ДжейАр Хэтчетт, Дэррил КоксПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 01:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CEA3BB838869EEC6585649B057F57774EEA213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522601   (756768) от 08.01.2022
+
+VA - Invisible Smile: Chillout Your Mind (2022) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Next Time Soon (6:03)
+02. Dellasollounge - Come with Me (Original Mix) (3:18)
+03. Marga Sol - Butterflies (Original Mix) (6:50)
+04. Steen Thottrup - Balearic Bliss (Original Mix) (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4387692FC11D3E743B6EBFABC1D61D070983CCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280774   (756694) от 05.02.2019
+
+Хроники хищных городов / Mortal Engines (2018) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, СШАЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Хера Хильмар, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк МитчинсонПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E65C8B04D7B8F2924D8E7AA16CB45C00B89245C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522595   (756647) от 08.01.2022
 
 The Weeknd - Dawn FM (2022) [AAC|~310 Kbps] <Pop, R&B, Soul, Alternative>
@@ -538,174 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A3D06B09086B5A96220BD727C032EC3BE37B332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888557   (753662) от 15.04.2015
-
-Феникс / Phoenix (2014) HDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелли Ленц, жертва Холокоста, которой удалось выжить в концлагере. Она ранена, у неё сильно искалечено лицо. Сотрудница Еврейского агентства Лене Винтер помогает Нелли добраться до Берлина, где ей сделали пластическую операцию. Поправившись после операции, Нелли начинает искать своего мужа, Йоханнса. Когда она наконец нашла его, Йоханнес не узнал свою жену, которую считает погибшей. Тем не менее, он признает, что эта незнакомая ему женщина похожа на его «покойную» жену. И тогда Йоханнес делает деловое предложение (   Читать дальше...   )Производство: Германия, ПольшаЖанр: Драма, историяРежиссер: Кристиан ПетцольдАктеры: Нина Хосс, Рональд Церфельд, Нина Кунцендорф, Михаэль Мертенс, Имоген Когге, Керстен Блок, Уве Пройсс, Ева Бэй, Джефф Баррелл, София ЭкссПеревод: Любительский (двухголосый закадровый) (Студия Пиратского дубляжа)Язык субтитров: Немецкий, АнглийскийПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F417C068F601179E0D497AFC1A90C3160A581B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017978   (753636) от 21.05.2016
-
-Олег Дивов | Закон фронтира (2016) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753636.jpg" />
-</div>
-
-
-###  Подробнее
-
-На горах оружия, оставшегося от цивилизации, выжили только молодые и сильные. В этом новом мире все равны. За пропуск сюда каждый сполна заплатил своей памятью. Людьми, лишившимися своего прошлого, забывшими о существовании родных и друзей, овладевает жажда беспричинной агрессии. Но тот, кто хочет помнить больше, должен быть самым беспощадным убийцей и просто обязан (   Читать дальше...   )Жанр: ФантастикаФормат: m4bПродолжительность: 13:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0745D3CFA54491B03EE983F258B6D0384335DA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523097   (753618) от 10.01.2022
-
-VA - Reggaeton World, Vol. 3 (2022) [AAC|~318 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey Montana, De La Ghetto - Moribundo (4:04)
-02. Daddy Yankee - Suena Boom (3:09)
-03. Cali Y El Dandee, Mike Bahia - Tu Nombre (2:45)
-04. Chino & Nacho - La Pastillita (4:36)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66F86BBB88E03730F5D89E00720EDEDC3DE792F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523063   (753617) от 10.01.2022
-
-VA - Nightflight Dubai - 22 Premium Downbeat & Lounge Trax (2013) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persia Beatz - Abessinia (Hindi Cut) (6:52)
-02. Frank Borell - Journey to Eternity (Loungetrip Mix) (4:24)
-03. Satin Sound System - Flashback Oasis (Del Mar Mix) (6:41)
-04. Persia Beatz - Princess of Persia (Miracle Mixxx) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145C9464454D93F615173DB7C47667331720A49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523094   (753615) от 10.01.2022
-
-VA - Reggaeton Nocturno, Vol. 1 (2022) [AAC|~318 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy Yankee - Suena Boom (3:09)
-02. Joey Montana, De La Ghetto - Moribundo (4:04)
-03. Chino & Nacho - La Pastillita (4:36)
-04. Cali Y El Dandee, Mike Bahia - Tu Nombre (2:45)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6115B9B639AC0C3BB0373DC3775A30783BCA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523095   (753614) от 10.01.2022
-
-VA - Reggaeton World, Vol. 2 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jhay Cortez, Rafa Pabön - Cuando Bebe (4:14)
-02. Yaga & Mackie, Arcangel, De La Ghetto - Aparentemente (5:04)
-03. Lola Indigo, Rauw Alejandro, Lalo Ebratt - 4 besos (3:53)
-04. Chyno Miranda, Zion & Lennox - Hasta El Ombligo (3:53)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC68363FBECE6E85379BF29B371B319E7114F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

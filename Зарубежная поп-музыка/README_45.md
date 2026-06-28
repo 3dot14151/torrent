@@ -1,3 +1,32 @@
+###  Публикация: 926803   (531722) от 11.08.2015
+
+Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Enough
+ 02. Secrets
+ 03. Some Other Lover
+ 04. So Long(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6977788CF5B67BABAAFCFC7D7DDCC5DA919521ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558375   (531644) от 20.06.2022
 
 VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
@@ -720,35 +749,6 @@ VA - Simply The Best: Voices (2013) 3CD [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B2E574F60EB5EA29A9A8B5A7F2E92F30551B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314427   (519370) от 14.07.2019
-
-VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <Dance, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Technotronic - Pump Up The Jam (Edit)
-02. Mr. President - Coco Jamboo (Radio Version)
-03. Eiffel 65 - Blue (Da Ba Dee) (DJ Ponte Ice Pop Radio)
-04. Snap! - The Power(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E791380B965FC6942417ADCA09EB5B569767B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

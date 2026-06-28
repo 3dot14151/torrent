@@ -1,3 +1,111 @@
+###  Публикация: 960952   (296457) от 03.12.2015
+
+Recovery USB-flash for Acer Aspire V3-551G / Windows 8 (х64) [Русский]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, записанной на ноутбуке Acer ASPIRE V3-551G-10466G75Makk с помощью программы Acer Recovery Management. Образ флешки создан программой Acronis True Image Echo Server 9.5.8018.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47D1615C83E2504EA2E4A0899C01DA3BED5FD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262259   (294449) от 15.11.2018
+
+Microsoft Windows 10.0.17763.107 Enterprise LTSC Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft VLSC [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C159CBB3E35B741A180C0A286991DE9E0B47C4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262367   (292530) от 16.11.2018
+
+Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные Business образы от Microsoft VLSC [En/Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECB35A0B87CDE89F0575930CE38DF7B8638D335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262135   (285421) от 20.11.2018
+
+Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 October 2018 Update от 13 ноября 2018 года.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E4A1323B0230A27D090202D254907753B297DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187980   (275379) от 01.12.2017
 
 Microsoft Windows 10 10.0.16299.64 Version 1709 (Updated Nov. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [En]
@@ -596,122 +704,6 @@ windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5E7889852C1858D68B2D47DF0B66E6D2E8406FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836792   (255681) от 12.11.2025
-
-Windows 7 SP1 7601.28021 x64 3in1 by OneSmiLe [12.11.2025] [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
-• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
-• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0428A4A081EC85DDF272310F1BBB1BD6828D2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836812   (255667) от 12.11.2025
-
-Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7171 [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru
-Установлены обновления по 12.11.2025
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3742D72737AFD242FEF0F9FA06AF043ACC9212D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836813   (255636) от 13.11.2025
-
-Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.11.11) [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов от MSDN.
-ru_windows_7_professional_with_sp1_x64_dvd_621772.iso
-ru_windows_7_ultimate_with_sp1_x64_dvd_618249.iso
-ru_windows_7_enterprise_with_sp1_x86_dvd_620274.iso(   Читать дальше...   )Язык интерфейса: Русский , Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933BAFAB3AD4FC4629728B48F76E140AF8207457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836826   (255635) от 13.11.2025
-
-Windows 10 22H2 19044.6575/19045.6575 by SURASOFT (v25.11.11) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
-ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
-Были интегрированы обновления по 11 ноября 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169682C11132763EE265780119539BCBFFCC5E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

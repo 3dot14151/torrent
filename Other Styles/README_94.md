@@ -1,3 +1,119 @@
+###  Публикация: 1304653   (561840) от 27.05.2019
+
+Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabian Nights (2019) (03:13)
+02. One Jump Ahead (02:55)
+03. One Jump Ahead (Reprise) (01:00)
+04. Speechless (Part 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304604   (561714) от 27.05.2019
+
+Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Godzilla Main Title (02:35)
+03. Memories of San Francisco (02:11)
+04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044814   (561671) от 22.08.2016
+
+Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age, International>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siroun Es Hokiag  04:19
+02.  Vartani Mor Vokhbe  05:50
+03.  Oror  04:12
+04.  Alakiaz  02:03(   Читать дальше...   )Жанр: New Age, InternationalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C82C5ECC4944E3C8F99778F709AE42225E3BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304663   (561567) от 27.05.2019
+
+Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабская ночь (2019) (03:13)
+02. На миг быстрее (02:55)
+03. На миг быстрее (Реприза) (01:00)
+04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EE8F0504D912C3611E673264771590BF21BC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304662   (561563) от 27.05.2019
 
 Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -629,122 +745,6 @@ Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5470585B8BF05D70FE5E9F177427697AE44DF817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235633   (557295) от 13.07.2018
-
-Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory 03:07
-02. City Lights 03:46
-03. Dangerous Minds 03:46
-04. Victory 03:23(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87498A5B72068552E2AA6B4E8990A2D2C5981BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045623   (556912) от 25.08.2016
-
-Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sirens Of Titan (10:46)
-02. The God Particle (8:20)
-03. Return to the Moon (7:57)
-04. REM Phase (5:37)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046007   (556910) от 25.08.2016
-
-Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of the World (feat- Merethe Soltvedt)
-02. Hopes & Dreams (feat- Juliet Lyons)
-03. Gift of Life
-04. Beautiful Forever(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045742   (556845) от 25.08.2016
-
-Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic Fusion, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence  04:57
-02. Mischief  05:44
-03. Seduction  05:42
-04. Epimetheus  05:47(   Читать дальше...   )Жанр: New Age, Ethnic Fusion, DowntempoПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

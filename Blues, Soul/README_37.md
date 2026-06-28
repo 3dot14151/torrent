@@ -1,3 +1,32 @@
+###  Публикация: 967440   (158482) от 21.12.2015
+
+Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Letter (04:38)
+02. Goodbye Jeff (03:09)
+03. Willie and Laura Mae Jones (04:10)
+04. Put Me Down (03:13)(   Читать дальше...   )Жанр: Country BluesПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB0F5EFA37D9E66E7A49E5EC06BFB51ABFE01ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433191   (158112) от 20.12.2020
 
 The Blues Hopman - Snooze You Lose (2020) [MP3|320 Kbps] <Blues>
@@ -737,40 +766,6 @@ Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C638445EF08A0A7FDA009E34EA872B95260198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594643   (133138) от 27.12.2012
-
-Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-1995 - Lost In The Blues
-1998 - Almost Crazy
-2000 - Earthquakes,Thunder & Smiling Lightning
-2002 - Down To My Bones
-2003 - Tales of Love and Desperation
-2007 - Wildcats Under My Skin
-2010 - UndercoverЖанр: Blues |Продолжительность: 06:26:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

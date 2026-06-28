@@ -1,3 +1,61 @@
+###  Публикация: 1697058   (119110) от 05.02.2024
+
+Децл, МЭD DОГ, Ronny, Антон Токарев, Dino Mc47, Izachonok, Fargo, Maugli, ALEX VUCKII, Istokiya - У всех свои слёзы (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слёзы (4:09)
+02. Слёзы (3:17)
+03. Слёзы (2:49)
+04. Слёзы (2:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1695DCCDE05DC901991FA6E521F1F6819CD53E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696694   (118658) от 08.02.2024
+
+Александр Маршал - Блокпост - Сборник лучших песен (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блок-пост 'Акация' (3:01)
+02. Братишка (3:21)
+03. Приказ 'Назад' (2:32)
+04. Третий тост (5:11)(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D6073628E13ECAC1751732044B905BB990A627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698747   (118272) от 10.02.2024
 
 Emin - Now or Never (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Singer-Songwriter>
@@ -659,64 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722450   (109693) от 11.05.2024
-
-Ананда - No Title (2007) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если знал бы ты...
- 02. Тайная печаль
- 03. Я полюблю
- 04. Лишь на минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978DDCD1426DF2F33D7F350378EA7F9A2C6BAA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722451   (109691) от 11.05.2024
-
-Анжелика Агурбаш - Любовь! Любовь? Любовь... (2009) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слышишь. Я Так Тебя Люблю
- 02. Дождями
- 03. Голуби
- 04. Роза На Снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:44"51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
 ```
 
 https://mybot314.ru/tekegram_catalog/

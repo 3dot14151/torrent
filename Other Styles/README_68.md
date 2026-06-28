@@ -1,3 +1,119 @@
+###  Публикация: 1131961   (698780) от 10.05.2017
+
+VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florindo Sassone - Tierrita
+02. Los Astros del Tango - Derecho Viejo
+03. Mariano Mores - El Firulete
+04. Augusto P. Berto - De Pura Yerba(   Читать дальше...   )Жанр: TangoПродолжительность: 02:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132775   (698684) от 10.05.2017
+
+VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Licht - Dishonored 2 Main Theme (02:37)
+02. Daniel Licht - Aristocrats of Karnaca (Ambient) (01:07)
+03. Daniel Licht - Aristocrats of Karnaca (Suspense) (02:47)
+04. Daniel Licht - The Dreadful Wale (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00A03643092FF3BCEC7CDA3E2BECEA266F349A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132063   (698497) от 10.05.2017
+
+VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
+02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
+03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
+04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027189   (698462) от 18.06.2016
+
+John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From "The Nice Guys" (02:01)
+02. Kids Today (03:23)
+03. Disco Party Fight (04:00)
+04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027190   (698242) от 18.06.2016
 
 John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score>
@@ -641,122 +757,6 @@ Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:125678EB9A59A4F941E1BCB3551B3050C3A588AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027834   (694697) от 20.06.2016
-
-Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufology
-02. Saucers over Stonehenge
-03. Suspended Animation
-04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027583   (694558) от 20.06.2016
-
-Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Tomorrow Part 1 [00:03:39]
-02. Distant Tomorrow Part 2 [00:03:31]
-03. Descension [00:05:49]
-04. Anti-Gravity [00:03:49](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027580   (694554) от 20.06.2016
-
-Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufology [00:05:18]
-02. Saucers over Stonehenge [00:06:47]
-03. Suspended Animation [00:05:53]
-04. Roswell (feat- Annaspaceia) [00:04:12](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027627   (694553) от 20.06.2016
-
-Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Midst of Stars [00:04:30]
-02. Carousel [00:04:00]
-03. In Bloom [00:05:31]
-04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
 ```
 
 https://mybot314.ru/tekegram_catalog/

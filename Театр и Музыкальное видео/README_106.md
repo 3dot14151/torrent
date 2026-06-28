@@ -1,3 +1,216 @@
+###  Публикация: 266194   (308315) от 04.12.2010
+
+Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A55789F90AEA708D09E5F71540A983A37055D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584646   (307911) от 04.12.2012
+
+Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний клипЖанр: RapПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584559   (307902) от 04.12.2012
+
+Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584650   (307582) от 04.12.2012
+
+The Best of...(vol.3) (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка, Pop, Easy Listening,Prog rock, Folk rock, Big beat,DiscoПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333139   (307322) от 23.10.2019
+
+Шагреневая кожа (1975) DVDRip [Н.264]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по мотивам одноименного романа французского писателя О.Бальзака из цикла "Человеческая комедия" "Шагреневая кожа". Философская притча о разрушительной силе безудержных наслаждений.
+
+Молодой поэт Рафаэль де Валантен решает умереть после разорительного проигрыша. Подавленно он бредет по городу и забредает в антикварный магазинчик. (   Читать дальше...   )Производство: СССР / Главная редакция литературно-драматических программ ГостелерадиоЖанр: Телеспектакль, драма, экранизацияРежиссер: Павел РезниковАктеры: Олег Табаков, Екатерина Васильева, Валентин Гафт, Марина Неелова, Александр Вокач, Юрий Катин-Ярцев, Валентин Никулин, Петр Щербаков и др.Субтитры: отсутствуютПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1137144AC3A75D6C2E3BF834E60884B7B4EBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584723   (307199) от 04.12.2012
+
+Peter Gabriel / Secret World Live (1993/2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock / Art Rock / Prog RockАктеры: The Peter Gabriel BandПеревод: ОтсутствуетПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584572   (307195) от 04.12.2012
+
+Linkin Park / Road to Revolution - Live at Milton Keynes (2008) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative, RockРежиссер: Блу ЛичАктеры: Честер Беннингтон (вокал), Майк Шинода (вокал, клавишные, гитара), Брэд Делсон (гитара), Роб Бурдон (барабаны), Джо Хан (DJ, сэмплирование), Дэйв ФарреллПеревод: ОтсутствуетПродолжительность: 01:24:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260516   (307108) от 09.11.2018
+
+Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия финального выступления Стивена Уилсона в зале The Royal Albert Hall 28.03.2018г в рамках тура в поддержку альбома «To The Bone». Стивен Уилсон (Steven Wilson) – один из крупнейших представителей прогрессивного рока, выпустивший более пятидесяти альбомов на протяжении трех десятилетий своей карьеры, его последний полноформатный альбом «To The Bone» стал (   Читать дальше...   )01. Intro Truth
+02. Nowhere Now
+03. Pariah
+04. Home Invasion / Regret #9(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: James RussellСубтитры: отсутствуютПродолжительность: 02:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584196   (306842) от 04.12.2012
 
 Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) DVDRip [H.264]
@@ -505,236 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184364   (301295) от 17.11.2017
-
-Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184338   (301180) от 17.11.2017
-
-Dio - Evil Or Divine (Live in New York City) (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы Dio записанный в Roseland Ballroom (New York City) 13 декабря 2002 и выпущенный на DVD в июле 2013. Релиз содержит сам концерт, интервью, фото, закулисные съемки и видеоклип Push1. Killing The Dragon
-2. Egypt/Children of the Sea
-3. Push
-4. Drum Solo(   Читать дальше...   )Производство: Eagle VisionЖанр: Heavy Metal, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960998   (301135) от 01.12.2015
-
-New Order, Live In Glasgow (2008) DVD9 + DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301135.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
-DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
-2	Turn	4:33
-3	True Faith	5:49
-4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184348   (301086) от 17.11.2017
-
-Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301086.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )1. Intro
-2. Highway Star (Deep Purple cover)
-3. Spotlight Kid
-4. Mistreated (Deep Purple cover)(   Читать дальше...   )Производство: Eagle Vision ‎Жанр: Hard RockПродолжительность: 01:50:16+00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3AE731457A9E88ED299CAB2FC433B39E4E657D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184354   (300992) от 17.11.2017
-
-Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный альбом британской рок-группы Queen, вышедший в 2014 году. Доступен в форматах двойного CD, двойного винила, DVD, Blu-Ray.01 - Procession
-02 - Now I'm Here
-03 - Ogre Battle
-04 - Father To Son(   Читать дальше...   )Производство: Eagle VisionЖанр: Art Rock, Hard Rock, Glam RockПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F572D8E555AC98A4D6B14AD3D25AB1668F6C1AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184098   (300976) от 17.11.2017
-
-Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300976.jpg" />
-</div>
-
-
-###  Подробнее
-
-На волне успеха своего пятого альбома «.5: The Gray Chapter» Slipknot решили организовать собственный музыкальный фестиваль Knotfest на площадке одного из крупнейших музыкальных рынков мира в окружении самых преданных поклонников — в городе Мехико-Сити.01 Sarcastrophe
-02 The Heretic Anthem
-03 Psychosocial
-04 The Devil In I(   Читать дальше...   )Жанр: Nu MetalРежиссер: М. Шон Крейен (перкуссионист Slipknot)Субтитры: нетПродолжительность: 01:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFF05ECD0BDF5F164508A4BD2E3A369EE225CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961441   (300925) от 01.12.2015
-
-Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) WEBRip [H.263]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tribute To Pink Floyd в исполнении Echoes, совершенно новая трактовка всеми "избитого" и "затасканного" материала , но самое главное звучание!01. Shine On You Crazy Diamond
-02. Have A Cigar
-03. Us And Them
-04. High Hopes(   Читать дальше...   )Производство: Германия  Sonic | Pride & JoyЖанр: Progressive rockРежиссер: Pride & JoyАктеры: EchoesПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE0A6585AFC5D2099B1FD6048672A0DC5215EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961132   (300923) от 01.12.2015
-
-Квартирник у Маргулиса - СерьГа (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - Сергей Галанин и группа "СерьГа". Дата эфира: 21.11.2015.01. Хоровод
-02. Мир из пластилина (фрагмент)
-03. Дверь на замке
-04. Дом родной(   Читать дальше...   )Производство: РоссияЖанр: Концерт, RockРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92773ACC07EFCC820621396A310CDCA802B8206D
 ```
 
 https://mybot314.ru/tekegram_catalog/

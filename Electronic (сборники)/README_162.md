@@ -1,3 +1,156 @@
+###  Публикация: 951950   (358969) от 31.10.2015
+
+VA - Trance Traveling 70 (2015) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolier & Natalie Peris - Forever And A Day (Extended Mix) (04:05)
+02. Somna & Jennifer Rene - Back To Life (Hazem Beltagui Remix) (04:12)
+03. Armin van Buuren feat. Rock Mafia - Hands To Heaven (Club Mix) (05:04)
+04. ClearSky - Waves (Original Mix) (04:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A311C9B207F6347FC24CF26FF633F713992144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178139   (358843) от 27.10.2017
+
+VA - Hardstyle Top 100 (2017) [MP3|320 Kbps] <Techno, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Wildstylez & Noisecontrollers & Bass Modulators ft. Gabs - Bad Habits [03:28]
+02 DJ Isaac - Down With Me [02:28]
+03 Major Lazer & Showtek - Believer (Frontliner Remix) [03:38]
+04 Sickddellz & Exilium ft. Sebastian Hansson - Away From You [03:07](   Читать дальше...   )Жанр: Techno, DanceПродолжительность: 08:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AE3768196FDCBF1E9606623AA319D1F7AEE41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951970   (358825) от 31.10.2015
+
+VA - Sexy Girls Lounge Vol 1 (2015) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antennasia - Mannequin (Ruibyat Rework) (05:14)
+02. Michiko - Morning Delight (Original Mix) (01:26)
+03. Dave Ross - Journey in a Space Tube (Original Mix) (05:11)
+04. Voice Of Fractals - Feet on the Ground (Original Mix) (04:20)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EC5F5E0618234116A1BAE6ED53396AC4A5097B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577566   (358729) от 19.11.2012
+
+VA - Trance Eve Volume 45 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358729.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Eve Volume 45 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Vocal Trance
+Продолжительность: 04:19:22Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+002. Imperfect Hope - Unforgettable (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83ABFF0AAD5D05F0F4CCFD17A7EBA1140237BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577557   (358551) от 19.11.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358551.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 02:53:19Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+002. Rave Channel - Illusion (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD38A88CBD389F26A573AFFCCC158A9334F7BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328718   (358174) от 02.10.2019
 
 VA - Club Panorama: House Dance Party (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -608,157 +761,6 @@ Roger Shah - Live I Love Qiev (2008) [MP3|192 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07AC1BB2B8A215ABF34A1AC83C08081DC5169377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256557   (354409) от 22.10.2018
-
-VA - Record Super Chart 558 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaulin - Moonlight 2:54
-02. Fisher - Losing It 4:08
-03. Rompasso - Ignis 3:32
-04. Тима Белорусских - Мокрые Кроссы (Get Better Remix) 4:13(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28014BB1A9B132DED5BCB568483CAD05FD8E84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256525   (354270) от 22.10.2018
-
-VA - Deep House Collection Vol.188 (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Sides Of Soul - Dust (Original Mix)
-002. 5prite - Sorry I'm Oldschool  (Original Mix)
-003. Adele  - Set Fire To The Rain  (Du Saint Remix)
-004. Adriana Johnson - Stranger (Instrumental VIP Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9ECEBEA2A4FD53ADA4CB98911987913636B55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072281   (354254) от 12.11.2016
-
-VA - Hits of My Soul Vol. 18 (2016) [MP3|320 кб/с]<Dance, House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Zimmer - We Are Infinite (Original mix) (04:22)
-02. A R I Z O N A - Cross My Mind (03:37)
-03. Hellberg ft. Aaron Richards - Synchronize (VIP Mix) (04:05)
-04. Wiz Khalifa - When I'm Gone (04:09)(   Читать дальше...   )Жанр: Dance, Deep House, Electronic, House, Indie Dance, Progressive House, Trance, TrapПродолжительность: 03:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFAD68C1376893DEB31B81D47D084F0815EA616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255274   (354024) от 22.10.2018
-
-VA - Club & Chillout Music, 9CD (2018) [MP3|320 Kbps] <Club, House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354024.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. 2 Sides Of Soul - Dust (Original Mix)
-02. 4lienetic - October(   Читать дальше...   )Жанр: Club, House, ChilloutПродолжительность: 05:06:06
-
-01. Adam Port - Adam Port - Planet 9 (Original Mix)
-02. Alex Zuiev - Alex Zuiev - Moon Dream(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B93549E4EA29477F33FB72F9E68846CF8B0358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178867   (353966) от 29.10.2017
-
-VA - Jazz About Lounge (2017) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann – A New Day
- 02. Roto Moto – Phat Flannel
- 03. Zero Groove – Cavazzo
- 04. Five – Thurio(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970D8D1E677E4D163CB011151F84A98CB099B89E
 ```
 
 https://mybot314.ru/tekegram_catalog/

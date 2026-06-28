@@ -1,3 +1,119 @@
+###  Публикация: 1333400   (305401) от 24.10.2019
+
+VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arwelone - Everlasting Journey (4:45)
+02. Richard Alfaro - Eon (3:24)
+03. Kameron - Furnace (3:56)
+04. Tune Crashers & Starblaster - Angel of Attack (3:53)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 02:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB96422BC59839F193915AD93983067045742CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333370   (304948) от 24.10.2019
+
+VA - Future City Records Compilation Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aminova - Hexapheme (3:01)
+02. Limited Impressions - Crowded (5:26)
+03. Lolski - Downtown District (3:53)
+04. Crystal Bridge - The Secret Letter or Two Overboard (3:05)(   Читать дальше...   )Жанр: Synthpop, Synthwave, New WaveПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B0BC183FD142AC2B2F092123090668C2E92D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961228   (301121) от 01.12.2015
+
+Silicon Dream - Time Machine (1988) [FLAC|tracks+.cue]<Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Machine (You Are the Master of Time-Age) (5:59)
+02. Jimmy Dean Loved Marilyn - Film ab (The Holywood-Age) (3:39)
+03. Corleone Speaking (The Chicago-Age) (4:48)
+04. Holiday in St. Tropez - Eating Pizza in Ibiza (The Cola-Age) (4:20)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3749B07F0CB1FA837A1BCB99CF7155D50B3B422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261804   (301090) от 12.11.2018
+
+Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Dream 05:57
+02. Giant Star 04:19
+03. Space Wanderer 04:41
+04. Romantic Warrior 05:21(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0942956DCBEF2C3A4B6FB4854CF114AF4A6EC24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960961   (300926) от 01.12.2015
 
 C.C. Catch - Super 20 (1989) [FLAC|tracks+.cue]<Synth-pop>
@@ -622,122 +738,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D845D57435C1E3556DD79786736D9FAA954157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337175   (276314) от 09.11.2019
-
-VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stilz - Undercover (2:52)
-02. Beckett - Play (3:57)
-03. Nina - Counting Stars (4:38)
-04. Dana Jean Phoenix feat. Tape Loader - Breathe in Outer Space (6:33)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02409A96D80B0DF703A984602E747F1C85798DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337179   (274893) от 10.11.2019
-
-VA - Synthetique: A French Synthwave Compilation 1982-2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philippe Laurent - Rapide 2 (1982) (3:25)
-02. Art & Technique - Lovers (1983) (5:32)
-03. No Unauthorized - Crocodile (1984) (5:10)
-04. End Of Data - Breathless (1984) (3:10)(   Читать дальше...   )Жанр: Synthwave, New WaveПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB3113C5ACAE918F4EDE39FEDB0F1DF327E07F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188478   (274483) от 02.12.2017
-
-Midge Ure (Ex. Ultravox) - Orchestrated (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn
-02. Dancing with Tears in My Eyes
-03. Breathe
-04. Man of Two Worlds(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3AE21AA388BD78B1D74C7A8CCBF67BAA71B7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083982   (272476) от 17.12.2016
-
-Supernatural - Dreamcatcher (2002) [FLAC|Lossless|image + .cue] <Dance Pop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock You 3:14
-02. Kryptonite 3:41
-03. Supernatural 3:15
-04. Im Gonna Love You 4:46(   Читать дальше...   )Жанр: Dance Pop, Synth-popПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDBEEB7A0D6E68027D60E7FD363663982393914
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 1496604   (830006) от 13.10.2021
+
+Hans Zimmer - The Dune Sketchbook: Music from the Soundtrack (2021) [AAC|~325 Kbps] <Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters (16:26)
+02. I See You in My Dreams (18:26)
+03. House Atreides (13:54)
+04. The Shortening of the Way (11:14)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50AC9EA95903052AB95EA591E86B6B405C25FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497651   (829908) от 13.10.2021
+
+Sting - Duets (2021) [AAC|~329 Kbps] <Rock, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sting with Melody Gardot - Little Something (2:42)
+02. Sting with Eric Clapton - It’s Probably Me (5:02)
+03. Sting with Mylène Farmer - Stolen Car (3:22)
+04. Sting with Cheb Mami - Desert Rose (4:47)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0C97CBE4C6B288D370E424B2B3EB0423DB9619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496605   (829907) от 13.10.2021
+
+Hans Zimmer - Dune: Original Motion Picture Soundtrack (2021) [AAC|~290 Kbps] <Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream of Arrakis (3:09)
+02. Herald of the Change (5:01)
+03. Bene Gesserit (3:54)
+04. Gom Jabbar (2:00)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A921AF5429A1811854E855AEFC6134EB19D67087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496580   (829903) от 13.10.2021
+
+Metallica - Metallica (2021) [AAC|~302 Kbps] <Heavy Metal, Thrash>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Enter Sandman (Remastered 2021) (5:32)
+1.02. Sad But True (Remastered 2021) (5:25)
+1.03. Holier Than Thou (Remastered 2021) (3:48)
+1.04. The Unforgiven (Remastered 2021) (6:27)(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 15:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFE3B1CF5ACEA7278A5D7E550540031302B87C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115002   (829567) от 16.03.2017
+
+Лев / Lion (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик из трущоб, Сару, потерялся в возрасте 5 лет. Ему удалось выжить и найти новый дом в Австралии. 25 лет спустя он чудом вернулся в родной дом и встретился с матерью.Производство: США, Австралия, ВеликобританияЖанр: ДрамаРежиссер: Гарт ДэвисАктеры: Дев Патель, Николь Кидман, Руни Мара, Дэвид Уэнэм, Санни Павар, Абхишек Бхарате, Приянка Бозе, Кхуши Соланки, Шанкар Нисоде, Танништа Чаттерджи, Навазуддин СиддикуиПеревод: Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18B205F0776362E47A07E32A06F1CEC49E12E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880643   (829468) от 22.03.2015
+
+Трейсеры / Tracers (2015) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет историю парня по имени Кэм — велокурьера, находящегося в долгу перед некоей преступной группировкой. В один из дней он сбивает на своем велосипеде сексуальную незнакомку, которая соблазняет его и увлекает в мир паркура.Производство: СШАЖанр: БоевикРежиссер: Даниэль БенмаурАктеры: Тэйлор Лотнер, Мари Авгеропулос, Рафи Гаврон, Адам Рэйнер, Сэм Медина, Даг Драклер, Лучиано Акуна мл., Доа Моа, Эндрю Элвис Миллер, Тил КейтПеревод: Любительский (многоголосый закадровый) (Студия Пиратского Дубляжа)Язык субтитров: АнглийскийПродолжительность: 01:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A01E40C1E03E84D22E91B1AD974429A0CF09FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 880479   (829466) от 22.03.2015
 
 Трейсеры / Tracers (2015) WEB-DL [720p] ATV
@@ -551,180 +719,6 @@ VA - Models Lounge (You'll Be Falling in Love) (2021) [AAC|~325 Kbps] <Lounge, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1998308F3CC6B72ECC6A9A26B89DFC7BD6282621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500020   (828500) от 14.10.2021
-
-VA - Luxury Kingsize Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Brighter Than the Sun (7:29)
-02. Lemongrass - Magnificent (Tim Angrave Resplendent Remix) (6:14)
-03. Lounge Groove Avenue - Touch My Soul (4:13)
-04. Gold Lounge - Open Your Mind (6:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA5F78950FA2CC325B957E77722CD20FDEDAE7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502303   (828414) от 14.10.2021
-
-VA - Chillout Beats 1: Chillout Your Mind (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Diving Sun (5:22)
-02. Dacosta - Lifetime (5:02)
-03. Beamy - Sunrise (4:58)
-04. Frank Neo - Mindflow (Original Mix) (5:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7944804B6398CDDE25B54CDB550DAF243204FCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497901   (828412) от 14.10.2021
-
-Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [AAC|~337 Kbps] <Darkwave, Gothic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minotaur (5:32)
-02. Poison (3:49)
-03. Black Magic Spell (5:43)
-04. Deathhouse (5:12)(   Читать дальше...   )Жанр: Darkwave, GothicПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B38B5297B040242032A5982235A55F31ACD3215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500356   (828411) от 14.10.2021
-
-VA - Los Angeles Beach Lounge, Vol. 1 (2017) [AAC|~314 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mika Olson, Jermaine Fleur - What I Need (7:35)
-02. Boy Kiss Girl - Lean On Me (5:12)
-03. Miguel Campbell - Chemistry (5:58)
-04. Moe Turk, DJ Fuzzy, Ayman Nageeb - Outta My Head (4:52)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC063253C4F58867AD95335335798ED479DDCDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501693   (828409) от 14.10.2021
-
-VA - City Cafe: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillson, Marc Hartman - I'm Falling (4:41)
-02. Frank Neo - Waves (Original Mix) (5:55)
-03. Beamy - El Dorado (4:00)
-04. The Soul Crusaders - Down the River (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF03AFCE6713258D6149FF5804C46EBA3E27BF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502126   (828408) от 14.10.2021
-
-VA - Lounge Philosophy, Vol. 1 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzamor - Tomorrow (Original Mix) (4:33)
-02. Pat Appleton - Ageless (Original Mix) (3:55)
-03. The Funky Lowlives - Stay (Original Mix) (5:05)
-04. JEN, Razoof - Two Halves of a Whole (Manes Dub) (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1B16F7D4F56A29F8736D5127B0C0B9DC93BBC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

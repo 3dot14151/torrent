@@ -1,3 +1,90 @@
+###  Публикация: 1588424   (191626) от 04.11.2022
+
+VA - Trance 2022 Vol 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Dekay & Sarah Russell - Fragile Flame (Original Mix) (3:51)
+02. 1st in Line & Cris von X - The Light (Darren Porter Remix) (3:07)
+03. Paul Denton - Recoil (Original Mix) (2:55)
+04. Driftmoon & Ana Criado - One Little Step (Original Mix) (3:04)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085C302FB3F39E1054C53DDF3F902CB4AE8D4A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658494   (191261) от 08.09.2023
+
+VA - A State Of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191261.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - On The Beach
+01. MaRLo & Mila Josef - You Are Not Alone (Mixed) [4:55]
+02. Armin van Buuren - Motive (Mixed) (Jochem Hamerling Remix) [3:18]
+03. Push vs Crashguard - I Want To Tell You (Mixed) [2:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE5405232E36CD7A917150708A7D2DC85D0BCA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589960   (189358) от 12.11.2022
+
+VA - Vocal Trance Classics 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service & Neev Kennedy - But I Did (Radio Edit) (3:11)
+02. Ana Criado & Omnia - No One Home (Radio Edit) (3:39)
+03. The Doppler Effect - Beauty Hides In The Deep (The Blizzard Edit) (4:31)
+04. Richard Durand & Cynthia Hall - Shield Of Faith (Radio Edit) (4:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F4E795B22A76945E524ECBC9D4D11280A06FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661515   (188525) от 15.09.2023
 
 VA - Black Hole Trance Music 09-23 (2023) [MP3|320 Kbps] <Trance>
@@ -657,93 +744,6 @@ Trance Wax - Open Up The Night (2023) Extended Versions [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FBA9591AB085A71678325BFE989B736E1335C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665168   (182409) от 30.09.2023
-
-Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always You (Extended Intro Mix) [5:36]
-02. Fly Away (Extended Mix) [7:12]
-03. Let Go (Extended Mix) [6:40]
-04. Deeper Love (Extended Mix) [7:14](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9BD587CB092B5AC9B78423A21F5B7D3037154D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593055   (181804) от 25.11.2022
-
-VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
-02. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
-03. Richard Durand - Evolution (Extended Mix)
-04. Bryan Kearney - Kaia (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435836A39030E7665BE7DBA794CEE032A3FA7FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593096   (181713) от 25.11.2022
-
-VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa - My Own Way (4:01)
-02. Costa - I See His Eyes (4:17)
-03. Raz Nitzan - Called By A Whisper (4:20)
-04. Raz Nitzan - Unconditional (3:52)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B598F262A052B7930E864959D187925D4D3ADDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

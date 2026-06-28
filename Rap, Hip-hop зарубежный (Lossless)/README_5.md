@@ -1,3 +1,61 @@
+###  Публикация: 1761903   (103026) от 23.11.2024
+
+Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rollin' At Twilight [2:58]
+02 - It's My Ego [3:47]
+03 - So Sensitive [2:49]
+04 - She’s Sanctified [4:18](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762690   (102904) от 26.11.2024
+
+VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Jazzy Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Keys – Lemon Tree (1:27)
+02. Pale Jay & Chris Keys – Share a Dream (3:15)
+03. YUNGMORPHEUS – The Price (2:46)
+04. Denmark Vessey – Marionette Flex (feat. Nolan & Fly Anakin) (3:15)(   Читать дальше...   )Жанр: Hip-Hop, Jazzy Hop, Underground Hip-HopПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CF94922F03130D12C4898306F97E75DCB83BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764624   (101510) от 08.12.2024
 
 Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
@@ -694,64 +752,6 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F44D36010E488729FA2F81D4BC2948C3099F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606200   (47625) от 07.08.2024
-
-ТНМК (Танок на майдані Конго) - 13 Albums + 4 Специальных проекта + 25 Singles (1998-2024) [APE, FLAC|Lossless|tracks + .cue, image + .cue, tracks] <Hip-Hop, Rock, Jazz, Funk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1998 - Зроби мені хіп-хоп (Limited Edition) (2006)
-2001 - Неформат (Limited Edition) (2006)
-2004 - Пожежі міста Вавілон (2006)
-2005 - СилаЖанр: Hip-Hop, Rock, Jazz, FunkПродолжительность: 22:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B025BFB3E8046E957011F8E7FA0F97E244F7130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749152   (43693) от 13.09.2024
-
-Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edition [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Renaissance [1:39]
-02 - Habits [4:59]
-03 - Trouble [0:42]
-04 - Brand New Dance [3:27](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8237F9567556C6B30C1942A1A4A237A5068F2E68
 ```
 
 https://mybot314.ru/tekegram_catalog/

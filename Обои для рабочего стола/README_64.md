@@ -1,3 +1,29 @@
+###  Публикация: 577386   (357904) от 19.11.2012
+
+Stunning HD Digital Art Space Wallpapers (17.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BF425F0317AB0ADC6F1DC6A1408AABE8782508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577467   (357654) от 19.11.2012
 
 [Wallpapers] Обои для рабочего стола тачки(часть 6)
@@ -641,32 +667,6 @@ HQ Wallpapers for a desktop (20.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C20EA0629AAD6A67208BB5178C7E4C316081E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580060   (346008) от 24.11.2012
-
-Fantastic Wallpapers (23.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE43C545F2C1BFD94376FFEE122FF59677366FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

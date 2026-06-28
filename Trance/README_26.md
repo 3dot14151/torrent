@@ -1,3 +1,90 @@
+###  Публикация: 1558217   (533754) от 19.06.2022
+
+VA - Black Hole Trance Music 06-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. tyDi & JES - Just Believe (Darude Extended Remix) [6:13]
+02. D72 & Alex Holmes - Finish Line (Extended Mix) [6:15]
+03. Dennis Sheperd & Mira Feder - Torture (Extended Mix) [4:55]
+04. Solarstone - Sovereign (Extended Mix) [7:44](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169AE07DE6115B206F503C4FEEEB1C1D6A65BBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155410   (533623) от 03.08.2017
+
+VA - A World Of Trance Vol. 4 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mellari - Sputnik (Ads Peri Remix) (07:44)
+02. Spaceptima - The End Of Melancholy (Original Mix) (06:54)
+03. Yuri Pike - Heaven Of Hope (Original Mix) (feat. Maureen Sky Jones) (06:09)
+04. Alex Shevchenko - Watching The Stars (Original Mix) (07:27)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0339111D57FC470106FCEC035A1551AD730CD1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155563   (533616) от 03.08.2017
+
+VA - Uplifting Trance Generation Vol.2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Damian Wasse - Rise Of Nation (Intro Mix)  5:33
+02.  Airwave - The Quest For Beauty (Original Mix)  12:05
+03.  Dereck Recay - Dream Way (Pluton Remix)  9:15
+04.  Andre Visior & Kay Stone - Sunrise (Jens Lonnberg Radio Version)  3:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DCDB26848D6999C223994A443C33C89D2CE2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239975   (533223) от 08.08.2018
 
 Tony Igy - It's Beautiful… It's Enough... (2017) [MP3|320 Kbps] <Electronic, Dance>
@@ -655,93 +742,6 @@ VA - Black Hole Trance Music 08-18 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B51E7BCC508130988820CB1DDC25671890B0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240946   (522957) от 14.08.2018
-
-VA - Atmosfera Records: Progressive Trance Vol. 03 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunvision - The Light (Original Mix)
-02. Xpectra - Lost and Found (Original Mix)
-03. Emotion Love - Teleportation (Original Mix)
-04. Xpectra - Searching For Inspiration (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7AFD6C5DF8CBFE5B83BA09D2D8904504AECBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241117   (522204) от 15.08.2018
-
-VA - 2 Years Suanda Base (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirkie Coetzee - Aurora (Extended Mix)
-02. Ahmed Helmy - Quasar (Extended Mix)
-03. Mantra - Take Me Higher (Extended Club Mix)
-04. HamzeH - Orbit (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622618FB6B38DF537453E58212088AEA4F2A3675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241116   (522199) от 15.08.2018
-
-VA - Vocal Anthems Ibiza (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)
-02. Alexander Spark & Lucid Blue - Nothing Like The Sun (Extended Mix)
-03. Attila Syah vs. J.Puchler & Xpectra feat. Joanna Angelina - Forever (Extended Mix)
-04. Michael Milov & Claire Willis - Anywhere With You (Extended Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22F0ACC8DE244D6044912F5AE33B9122E658BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

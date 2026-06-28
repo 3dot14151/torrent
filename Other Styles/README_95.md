@@ -1,3 +1,119 @@
+###  Публикация: 1235633   (557295) от 13.07.2018
+
+Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory 03:07
+02. City Lights 03:46
+03. Dangerous Minds 03:46
+04. Victory 03:23(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87498A5B72068552E2AA6B4E8990A2D2C5981BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045623   (556912) от 25.08.2016
+
+Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sirens Of Titan (10:46)
+02. The God Particle (8:20)
+03. Return to the Moon (7:57)
+04. REM Phase (5:37)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046007   (556910) от 25.08.2016
+
+Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light of the World (feat- Merethe Soltvedt)
+02. Hopes & Dreams (feat- Juliet Lyons)
+03. Gift of Life
+04. Beautiful Forever(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045742   (556845) от 25.08.2016
+
+Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic Fusion, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence  04:57
+02. Mischief  05:44
+03. Seduction  05:42
+04. Epimetheus  05:47(   Читать дальше...   )Жанр: New Age, Ethnic Fusion, DowntempoПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045756   (556838) от 25.08.2016
 
 Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -626,122 +742,6 @@ Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A00F9A9F5C2D423210DAC6BC1C782DD9A46CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236499   (554451) от 17.07.2018
-
-Lewellynl - Reiki Gold 2 (2018) [MP3|320 Kbps] <New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pathway to Home (5:00)
-02. Reiki Truth (5:02)
-03. Reiki Love and Peace (5:06)
-04. Reiki Stillness and Rest (5:04)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F6605E2005E51AD916A489C123836EBE09B0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236473   (554444) от 17.07.2018
-
-Piano Peace - Piano Sleep Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep with Piano 03:38
-02. Twilight Piano 03:00
-03. Tranquility 03:10
-04. Peaceful Memories 03:21(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A94EC4494BE18D70AAC77BF03AC541055FEF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307552   (554182) от 13.06.2019
-
-Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Tale
-02. Father
-03. Grieving
-04. In Shock(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9270C373140AE7D62C6F1F8BCAD9F215B3A6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308112   (554176) от 13.06.2019
-
-Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Alternative>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Ghost I (02:14)
-02. For the Sun (03:29)
-03. Watch the Time (02:17)
-04. Space Ghost II (03:09)(   Читать дальше...   )Жанр: Indie Folk, AlternativeПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF4B27FFB8A818FA7B481A732D2B9B3E618BE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

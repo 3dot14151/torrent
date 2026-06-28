@@ -1,3 +1,119 @@
+###  Публикация: 1114433   (831675) от 15.03.2017
+
+Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Pacific (00:36)
+02. The Beach (01:28)
+03. Project Monarch (02:02)
+04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B967794B2AEAD2C7D0BA2557126E0B8B5687BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380275   (831572) от 04.05.2020
+
+Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namaste 04:10
+2. Evocación 06:21
+3. Caminante del cielo 05:20
+4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380592   (831567) от 04.05.2020
+
+Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 3 Main Theme
+02. Thrill of Nature
+03. Dark Force in Motion
+04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380230   (831564) от 04.05.2020
+
+Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831564.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Camelot 05:06
+2. Reflejos de luna 05:14
+3. El ritmo de la luna 05:48
+4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380759   (831453) от 04.05.2020
 
 Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
@@ -627,122 +743,6 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33BC7A98B0EEFBF1B3C8F67F946FEC0E24C5AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114707   (826060) от 18.03.2017
-
-Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colorful Voice (2:49)
-02. Give (4:25)
-03. Half Way (3:15)
-04. Hope (3:37)(   Читать дальше...   )Тип издания: CommercialПроизводство: Rayark Inc.Жанр: Pop, InstrumentalПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D72F2BBE9A7C4552BB15484BF09D55C4B5BFA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880985   (826004) от 24.03.2015
-
-James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craving
-02. Hold Back The River
-03. Let It Go
-04. If You Ever Want To Be In Love(   Читать дальше...   )Жанр: Indie Pop, Indie FolkПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381840   (824805) от 08.05.2020
-
-Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme Armikrog
-02. Hot and Beefed (The Zipkicker)
-03. Scaly Maps
-04. The Squarely Beast(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381318   (824693) от 08.05.2020
-
-Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divine Healing 04:30
-2. Yoga Exercises 02:56
-3. Art of Meditation 02:56
-4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
 ```
 
 https://mybot314.ru/tekegram_catalog/

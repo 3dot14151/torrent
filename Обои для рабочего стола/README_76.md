@@ -1,3 +1,33 @@
+###  Публикация: 500567   (257107) от 23.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 34
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257107.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 34
+Название: Computer Desktop Wallpapers Pack 34
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B59956307EE72FE6B964AEFEA1F78095A79AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500131   (256941) от 22.05.2012
 
 [Wallpapers] Texture Desktop Wallpapers Pack 8
@@ -705,35 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62FCC28B1D4B2ABA57CE3DD704C395BA0C469DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853368   (233716) от 22.05.2022
-
-Wallpapers - Чудо в перьях или 500 великолепных обоев с птицами в Full HD [JPEG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супер-подборка ярких широкоформатных обоев с разными птицами, состоящая из 5 тем и 500 файлов:
-
-Птица-говорун. Отличается умом и сообразительностью. - 100 шт.
-Роскошные цветастые обои с нашими глубокоуважаемыми попками-умниками всевозможных видов.(   Читать дальше...   )Формат: JPEGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C7DF0A0A8B505FD9D186F6AC88D0D4D0751ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

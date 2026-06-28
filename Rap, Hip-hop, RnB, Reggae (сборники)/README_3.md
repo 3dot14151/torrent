@@ -1,3 +1,32 @@
+###  Публикация: 1280002   (763527) от 01.02.2019
+
+VA - Rasta On (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763527.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kraiggi Badart - Burnin
+002. Chan I - Jungle Ghod
+003. Tomorrows Bad Seeds - Illuminate
+004. Ziggy Marley - The Storm Is Coming(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 10:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B26A2DCBA8C09706DE31A58FAF32BD9B04D85DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215154   (759611) от 25.03.2018
 
 VA - Rap Trap Nation Play (2018) [MP3|320 Kbps] <Rap, Trap>
@@ -720,35 +749,6 @@ VA - Rnb Soul Musical Collection (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE6D81391E19D7FA0EB98AA2B1CD094F7B776BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532628   (712478) от 20.02.2022
-
-VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Natty Bong - Blue Jeans
-002 Sublime Reggae Kings - Human
-003 The Reggister's & Melizza - Back to Black
-004 Stereo Dub & Lila Liu - Set Fire to the Rain(   Читать дальше...   )Жанр: ReggaeПродолжительность: 05:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E8DB97C090D8526276200F84BAAD3BE6184DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

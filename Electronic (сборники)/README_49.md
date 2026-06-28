@@ -1,3 +1,148 @@
+###  Публикация: 1008880   (813945) от 19.04.2016
+
+VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Demegni – A New Love
+ 02. Luna Lounge – Luna Serenade
+ 03. Andrea Cardillo Project – Buona vita
+ 04. Vincenzo Ricca – Chill Thrill(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008850   (813935) от 19.04.2016
+
+VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mr. Fingers - Qwazars [06:17]
+002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
+003. Borrowed Identity - Mary Jane [07:12]
+004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711820   (813819) от 14.04.2014
+
+VA - Italo Super Hits vol. 1 - 17 (2014) Часть 1[MP3|171 - 320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Lee - I Get The Feeling (Digimax Remix Alex Daal Edit) (07:49)
+02. Brian Ice - Inside My Lonely Nights (vocal version) (06:05)
+03. C. C. Catch - Jump In My Car (Baart'B Bootleg) (04:38)
+04. Cairo - Ilyen a Nyar (Crag P. Italo Disco Remix) (04:00)(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Synth-Pop,SpacesynthПродолжительность: 43:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9111B90846184F5B151D9C837FE6407383F1B001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118075   (813620) от 25.03.2017
+
+VA - Tech House Vol. 1 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Hour - Love Something (Original Mix)
+02. CLAWZ SG - Emerge
+03. D-Deck - Bento (Original Mix)
+04. Guy Gerber, Deniz Kurtel - Here Comes The Rain (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech-HouseПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10996082AB1963AA3183E283551C25C439E97853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118176   (813302) от 25.03.2017
+
+VA - Дискотека 2017: Club Dance Hits (Compiled by Zebyte) (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Quintino - Underground (Extended Mix)  3:58
+02.  Hardwell & Quintino - Baldadig  2:56
+03.  DBSTF & Maurice West - Temple (Extended Mix)  3:59
+04.  Sick Individuals & Holl ft. Rush - Helix (Extended Mix)  4:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5771F14AD014CACB8C4CBFCCDA839C3AE95C1BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008926   (812179) от 20.04.2016
 
 VA - Miami Sweet Fever: Deep And Techno House (2016) [MP3|320 кб/с] <Deep, Techno House>
@@ -600,151 +745,6 @@ VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F8CE8FB6149519ABD3FBE4871B3B0E08894C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009842   (808245) от 22.04.2016
-
-VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gal Abutbul & Sarah Russell - You Have Realised (Uplifting R 05:56
-02. Walsh & McAuley and Katty Heat - Wider Horizon (Azotti Remix) 06:18
-03. Matteo Marini & Ellie Lawson - Dreaming of a Better World (Ma 04:58
-04. Mike Saint-Jules Ft. Sandel - Broken Turn (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009706   (808238) от 22.04.2016
-
-VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonsugi - Under the Cool Rain
-002. Monroe Days - A Gentle Wind
-003. Cane Garden Quartet - Toca Me
-004. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009657   (808234) от 22.04.2016
-
-VA - Megalodon Bass (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BassBrothers - It's Right
-02. Royalston, Hannah Joy - People on the Ground
-03. Annix - Forever
-04. Anile - Jack of Clubs(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 05:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BF3E576C6A38D077143DEB661CD51C172A1CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009700   (808225) от 22.04.2016
-
-VA - Secret Club (2016) [MP3|320 кб/с] <Club, Electro, Progressive, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jayeson Andel & LTN - Clockwork (LTN Remix)
-02. Lorenz Costa - Grand Love (Club & Beach Mix)
-03. Nicky Romero Vs. Sunnery James & Ryan Marciano - Underground
-04. Tropikind - Petit Tabac(   Читать дальше...   )Жанр: Club, Electro, Progressive, Deep HouseПродолжительность: 09:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A009B781665DC372A2A76E924BDCBE270BD4106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504846   (808215) от 25.10.2021
-
-VA - Synth of Waves (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiile & Marvel83' - Forever You (6:15)
-02. 2DCAT - Don't Kill Yourself (4:09)
-03. Noizz Factor - Monolith (5:41)
-04. Ace Buchannon - Break The Cycle (4:24)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF579238F7C805DF3FDB67B189441562C19345A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

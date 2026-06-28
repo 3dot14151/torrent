@@ -259,6 +259,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823116   (117637) от 10.10.2025
+
+Заточка - Опять за старое (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Country>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_117637.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С горы
+2. Одинаковые лица
+3. Останемся (skit)
+4. Из 90-х(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66FB81EDE05E9E900127C8B22B5F49AE481FD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714620   (111575) от 12.04.2024
 
 Кравц, Красное дерево - Подгон 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -716,35 +745,6 @@ SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:139DF26EB681DAD02D8E8DD3F863E37F39E4546A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717623   (58972) от 21.04.2024
-
-White Hot Ice - Rastaman (2007) [WavPack|Lossless|image + .cue] <HipHop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Растаман
- 02. Ангел
- 03. За Окном
- 04. Вован Кожемякин(   Читать дальше...   )Жанр: HipHopПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C171FA70AEFBC8078771AA12B2DC10F291E8A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 1120016   (805140) от 29.03.2017
+
+Любовь прет-а-порте   (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Римский ловелас и гуляка Джорджио должен доказать отцу, что он и сам может всего добиться в этой жизни. Но найти себя в Италии не так-то просто: чтобы устроиться разнорабочим в Дом моды «Владимиро», парню приходится приврать по поводу своей сексуальной ориентации и приручить любимого мопса законодателя итальянской моды. Но буйная жизнь Джорджио меняется в мгновение, (   Читать дальше...   )Производство: Россия, ИталияЖанр: КомедияРежиссер: Макс НардариАктеры: Ольга Погодина, Андреа Прети, Лариса Удовиченко, Джанкарло Джаннини, Паоло Контичини, Нино Фрассика, Влад Лисовец, М. ХимичевПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7DE0C8FFA12E7FE3C5E13A0FDF1C94216191F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884696   (805058) от 04.04.2015
+
+Торт / Cake (2014) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клэр привлекательная, веселая и острая на язык женщина. В один день она узнаёт о самоубийстве одной из участниц группы психологической поддержки, собрания которой она посещает из-за синдрома хронической боли. Клэр решает узнать историю этой несчастной. Копаясь в жизни покойной, она переживает болезненный роман с вдовцом и сама становится жертвой трагедии.Производство: США / © 2014 MoveMovie - Gaumont - Mely ProductionsЖанр: драмаРежиссер: Даниел БарнзАктеры: Дженнифер Энистон, Адриана Барраса, Фелисити Хаффман, Уильям Х. Мэйси, Анна Кендрик, Сэм Уортингтон, Бритт Робертсон, Люси Панч, Крис Мессина, Мэми ГаммерПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Павел Морозов aka PashaUp / JanettaЯзык субтитров: АнглийскийПродолжительность: 01:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C463A3A3D3E0B76B96FF810B7A637C9A25A3DB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884615   (804752) от 04.04.2015
+
+Bon Jovi - Bounce (2002) [ALAC|2.0 24/88|tracks]<Rock>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undivided
+02. Everyday
+03. The Distance
+04. Joey(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2773D5CAED1B976BA989510512B0B9DDC33A2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884640   (804747) от 04.04.2015
+
+Britney Spears - In The Zone (2003) [ALAC|2.0 24/88|tracks]<Pop>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Against The Music (Featuring Madonna)
+02. (I Got That) Boom Boom (Featuring Ying Yang Twins)
+03. Showdown
+04. Breathe On Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEE6C514E7C53A32E77CC42628C984C21B821E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884628   (804678) от 04.04.2015
+
+Bon Jovi - Slippery When Wet (2005) Remastered [ALAC|2.0 24/96|tracks]<Rock>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Rock
+02. You Give Love a Bad Name
+03. Livin' on a Prayer
+04. Social Disease(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AC916CB16E45C36CC59F68D548463B449C4C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884604   (804676) от 04.04.2015
+
+Bon Jovi - This Left Feels Right (2004) [ALAC|2.0 24/88|tracks]<Rock>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanted Dead Or Alive
+02. Livin' On A Prayer
+03. Bad Medicine
+04. It's My Life(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DAAF9762FC70151B448B6AFBF8BCDAD03D2798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505392   (804633) от 27.10.2021
 
 VA - Nizza Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
@@ -544,174 +712,6 @@ VA - Trance Missiles, Vol. 4 (2021) [AAC|~338 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36CAD2A2673C844E0C11D9996E0023A5A18C44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505642   (803035) от 28.10.2021
-
-VA - Trance Missiles, Vol. 3 (2021) [AAC|~343 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. André Visior, Cathy Burton - Daylight (Radio-Edit) (4:22)
-02. Tau-Rine - Explorer (6:25)
-03. Matthias Pahl - Blow Out (Gayax Remix) (7:17)
-04. Hoyaa - Fragile (Ahmed Romel Remix) (8:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8E54F5E5029DE9B0E320D96DD3E803312B87C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505638   (803025) от 28.10.2021
-
-VA - Trance Missiles, Vol. 1 (2021) [AAC|~339 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synfoly, Misa D - Dark Light (7:12)
-02. Hypertrophy, Nicola Quilter - OMTS (Dark Moon & Invision Remix) (7:09)
-03. Dirkie Coetzee, Neo Kekkonen, Ridgewalkers - I Can See You Now (Neo Kekkonen 130 BPM Version) (5:32)
-04. Stella Project - Calypso (6:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBBF14EFD3EBB188F12D1B4452BA981DA6B839C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505644   (803023) от 28.10.2021
-
-VA - Trance Missiles, Vol. 5 (2021) [AAC|~334 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Skyer - Polar Star (6:55)
-02. Dave Joy - First Impression (Yoshi Remix) (6:27)
-03. Matthias Pahl - Blow Out (Calvin O'Commor Remix) (6:53)
-04. Ikerya Project - Survivor (7:47)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B7665403BC78CAFAE209336C4607D478F85032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120305   (803016) от 30.03.2017
-
-Идеальные незнакомцы / Perfetti sconosciuti (2016) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семеро закадычных друзей, собравшись за ужином, в шутку начинают игру — читать все смс вслух, а на звонки отвечать по громкой связи. Они и представить себе не могут, какие скелеты вылезут из их шкафов и какие удивительные открытия им предстоит сделать.Производство: ИталияЖанр: Драма, комедияРежиссер: Паоло ДженовезеАктеры: Джузеппе Баттистон, Анна Фольетта, Марко Джаллини, Эдоардо Лео, Валерио Мастандреа, Альба Рорвахер, Касия Смутняк, Бенедетта Поркароли, Элизабетта Де Пало, Томмазо ТатафьореПеревод: Дублированный (iTunes)Субтитры: Русские,  Итальянские,  АнглийскиеПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB63C91A1268AC422EBF2F3B2F359A39E9CADA00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885124   (802983) от 05.04.2015
-
-Avengers Grimm  /  Мстители: Гримм (2015) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Румпельштильцхен разрушает Волшебное зеркало и убегает в современный мир, четыре принцессы -Золушка, Спящая красавица, Белоснежка и Рапунцель - проникают на Землю вслед за ним. Хорошо обученные и наделены магическими способностями, эти девушки должны сразиться с Румпельштильцхеном и его армией рабов, прежде чем он поработит всех на Земле.Производство: СШАЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джереми ИнманАктеры: Каспер Ван Дин, Лорен Паркинсон, Лу Ферриньо, Майлин Сарли, Marah Fairclough, Райли Вандербилт, Elizabeth Peterson, Кимо Леопольдо, Andrew E. Tilles, Жюстин ХерронПеревод: Любительский (одноголосый) (datynet)Язык субтитров: АнглийскийПродолжительность: 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86B11E97C1B18ADAAB243FE7143033D00155BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884619   (802979) от 05.04.2015
-
-Bon Jovi - Have A Nice Day (2005) [ALAC|2.0 24/48|tracks]<Rock>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Nice Day
-02. I Want To Be Loved
-03. Welcome To Wherever You Are
-04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF27E56D2E73CC03505D640DBB02C8E7F55F0720
 ```
 
 https://mybot314.ru/tekegram_catalog/

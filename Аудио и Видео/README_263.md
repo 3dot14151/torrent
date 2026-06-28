@@ -1,3 +1,171 @@
+###  Публикация: 1516854   (164470) от 13.12.2021
+
+Bobby Lyle - Ivory Flow (2021) [AAC|~340 Kbps] <Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In The Flow (Radio Edit) (4:34)
+02. Living In The Flow (5:01)
+03. Bobby Lyle, Stanley Clarke - Feel The Heat (3:59)
+04. Bobby Lyle, Tatiana Ladymay Mayfield - In A Sentimental Mood (5:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714A33C7912957AE6E1CA8AF73C7612A90ACD9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516852   (164459) от 13.12.2021
+
+VA - Strong Women of Country (2021) [AAC|~333 Kbps] <Country>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmylou Harris - Queen of the Silver Dollar (Remastered Version) (4:59)
+02. Deana Carter - Ordinary (4:15)
+03. The Wreckers - Different Truck, Same Loser (Live) (3:23)
+04. Carlene Carter - I'm So Cool (2:34)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E441C54C320A549647EC42D29DCF2C9AEB46F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516850   (164441) от 13.12.2021
+
+Chicane - Everything We Had To Leave Behind (Back Pedal Brakes Remixes) (2021) [AAC|~305 Kbps] <Trance, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Chicane, Joseph Aquilina - Everything We Had To Leave Behind (Back Pedal Brakes Remix) (4:17)
+1.02. 8 (Circle) (Back Pedal Beatless Mix) (3:22)
+1.03. Capricorn (Back Pedal Brakes Remix) (3:12)
+1.04. Sailing (Back Pedal Brakes Remix) (3:31)(   Читать дальше...   )Жанр: Trance, DowntempoПродолжительность: 01:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1D5157406B0C95346B0A16DD84D4CD4A731E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516857   (164436) от 13.12.2021
+
+VA - Chillout King Ibiza: Welcome 2 My Island (2014) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skysurfer, Lovay - Circling Elements (Down by the Sea Mix) (5:11)
+02. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
+03. Floating Clouds - Sun and Water (Long Cut) (6:06)
+04. Deeparture - Summerbreeze (Bossa Mix) (5:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681B2AB40FDC45DA5AF4F3FE403CD377696701D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346200   (164369) от 18.12.2019
+
+Человек-амфибия (1961) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды талантливый ученый доктор Сальватор спас жизнь маленькому мальчику, пересадив ему жабры акулы. С этого дня Ихтиандр, так назвал своего приемного сына ученый, мог плавать под водой, как рыба, нырять на любую глубину, но ему было тяжело подолгу находиться на суше... Годы спустя по тихому морскому городу поползли слухи о странном существе, наводящем ужас на (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Фантастика, Драма, МелодрамаРежиссер: Владимир Чеботарев, Геннадий КазанскийАктеры: Владимир Коренев, Анастасия Вертинская, Михаил Козаков, Николай Симонов, Анатолий Смиранин, Владлен Давыдов, Николай Кузьмин, Михаил Медведев, Юрий Медведев, Анна НикритинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6BF0AA21C7661534AC763746403106936CADCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346329   (164266) от 18.12.2019
+
+Эверест / Abominable (2019) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманАктеры: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), Английские (Full)Продолжительность: 01:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A464BE7AF66700DD6AC2FB7FE488C69DC42E14A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346097   (164032) от 18.12.2019
 
 Текст (2019) WEB-DL  [1080p] ATV
@@ -553,177 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE97A74554F3413EE9DBFE54C1B12DC9E658F1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517128   (163327) от 14.12.2021
-
-Агент 117: Из Африки с любовью / OSS 117: Alerte rouge en Afrique noire (2021) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба заносит легендарного Агента 117 в Африку, где горячее пустыни только женщины. Вооруженный неиссякаемой уверенностью в себе и убийственной харизмой, он может справиться со всеми врагами, кроме самого себя.Производство: Франция, Бельгия / Blue Sky Films, Canal+ fr, Ciné, Gaumont, Le Tax Shelter du Gouvernement Fédéral de Belgique, M6 FilmsЖанр: комедия, боевикРежиссер: Николя БедоАктеры: Жан Дюжарден, Пьер Нинэ, Фату Н Диайе, Наташа Линдинжер, Владимир Иорданов, Жиль Коэн, Балла Хабиб Дембеле, Иван Франек, Пол Уайт, Эмиль Абоссоло МбоПеревод: Любительский двухголосыйСубтитры: русские, английские, французскиеПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06BE7D7ED2E7A2ACE1DDD37EE8145D7AD62A8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517467   (163055) от 15.12.2021
-
-Beamy - Sunrise (2021) [AAC|~351 Kbps] <Lo-Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Dreams (3:00)
-02. Daybreak (4:00)
-03. Jasmine (3:56)
-04. Raven (5:42)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13969461DBB667656723D25034DA19E03A30A747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517471   (163052) от 15.12.2021
-
-VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yantra Mantra - Dada Mantra (5:10)
-02. Smooth Deluxe, Nizam Kharda - Duktus (3:55)
-03. Aimée Sol - Can't Get Enough (6:30)
-04. Lazy Hammock - Why Aren't You Listening (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4158C416E987931B12F0A2839D432090752BDDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517469   (163049) от 15.12.2021
-
-VA - The Seeds of Lounge, Vol. 4 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eriq Johnson, Samiran Saharia - Nelumbo (5:43)
-02. Lazy Hammock - Trees (5:16)
-03. 351 Lake Shore Drive, Genius Jane - Fuji-san (4:54)
-04. Aiemo, Sandra Hakky - Dreaming Eyes (Vocal Mix) (3:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779932802EABC3D7E46774C41ECB2DF49B64CA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517470   (163029) от 15.12.2021
-
-VA - Golden Lounge (2021) [AAC|~293 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air 99 - The Magic Bonsai (2:39)
-02. Grand Central - Goosebumps (2:46)
-03. Cool Beach - Thinking of You Under a Star (2:34)
-04. Blue Blood - Magical Butterflies (1:56)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5680C3A0FC73FF3122B684A1A979F3367012485F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517340   (162991) от 15.12.2021
-
-VA - Lounge Del Mare 1: Chillout Cafe Pearls (2007) [AAC|~342 Kbps] <Electronic, Chill Out, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Lemon, Magica Fe - 11 O'clock (5:46)
-02. Jazz Connection - Passing Dolphins (4:36)
-03. Cafe Americaine - Solitude Charmante (4:21)
-04. Sofa Sweeper - Mo's Rebeat (4:05)(   Читать дальше...   )Жанр: Electronic, Chill Out, LoungeПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8B23ADB4119B9475D76745AEE5A7326B8112CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

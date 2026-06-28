@@ -1,4 +1,223 @@
 https://t.me/izofen
+###  Публикация: 1878301   (1074743) от 
+
+М.В. Виво | System Design. Проектирование мобильных систем. Подготовка к сложному интервью (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это практическое руководство от Мануэля Висенте Виво, бывшего инженера Google и Bumble. Книга учит системному мышлению при разработке архитектуры мобильных приложений, превращая хаос собеседований в прогнозируемый процесс.
+В книге вас ждет:
+- Пошаговый алгоритм: 5-шаговая схема решения архитектурных задач.
+- Практические кейсы: Разбор 7 реальных заданий с собеседований (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Деловая литература Учебная литература.Издательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAF841871E844F1BA0747F9DCAB3BD461E2C2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878421   (1074679) от 
+
+Василий Леонов | Просто о Word. Руководство для начинающих (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освойте Word легко и с удовольствием!
+Понятные объяснения, пошаговые инструкции, практические советы и наглядные иллюстрации.
+• Простое описание всех функций и возможностей Word.
+• Настройка стилей, оглавлений, сносок, ссылок и других элементов документа.(   Читать дальше...   )Жанр: Microsoft Office, Microsoft Word, Компьютер для начинающих, Офисные приложения, Продукты MicrosoftИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F451B1E6AAF0BA950CD088AC29EA4444540D0F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878494   (1074614) от 
+
+Рич Йонтс | Rich Yonts | 100 ошибок C++ и как их избежать | 100 C++ Mistakes and How to Avoid Them [2 книги] (2025, 2026) [PDF, EPUB, MOBI, AZW] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более десяти миллиардов строк кода C++ в настоящее время используется в реальных проектах, и 98 % разработчиков ежедневно находят и исправляют в них ошибки. Даже в критически важных приложениях встречаются баги, проблемы с производительностью и читаемостью. Эта книга поможет выявить их в коде, который вы поддерживаете, и избежать — в коде, который вы пишете.
+Познакомьтесь (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Учебная литератураПеревод: Н.ГригорьеваЯзык: Русский, английскийИздательство: Питер; Manning PublicationsФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F877A7E8A32DFFBE92761D42612F50205A8F0FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878267   (1074542) от 
+
+С.В. Игонин, С.Ю. Добдин | Программирование на языке C++. Учебное пособие для СПО (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074542.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основы программирования на языке C++. Описаны как базовые понятия (синтаксис, переменные, алгоритмические конструкции), так и более сложные темы (указатели, структуры,
+модульный подход). Каждый раздел сопровождается практическими заданиями для закрепления материала.
+Подготовлено с учетом требований Федерального государственного образовательного (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеИздательство: Ай Пи Эр Медиа, ПрофобразованиеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EC74A407BA6B9D45C9E50417B3C7496726975D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878315   (1074530) от 
+
+Десмонд Чжоу, Фаваз Бокхари, Алекс Сюй | Object Oriented Design. Подготовка к сложному интервью (2026) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство по подготовке к OOD-собеседованиям в ведущих IT-компаниях. Книга предлагает четкую 4-этапную схему проектирования, глубокий разбор основ ООП и SOLID, а также 14 готовых к реализации систем (парковка, кинотеатр, банкомат, ресторан, лифты и др.). Каждый кейс сопровождается сбором требований, UML-диаграммами, рабочим кодом и проработкой граничных (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Деловая литература Учебная литература.Перевод: Е.МатвеевИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6177F2061A685AA09F2B200F5FD8BAB38DD2D816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877909   (1074503) от 
+
+К. Измайлов | Базы данных на Python и ИИ (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – практическое руководство по работе с данными в Python, написанное для тех, кто хочет не просто «знать теорию», а реально работать с данными в повседневных задачах. Шаг за шагом мы пройдем полный жизненный цикл данных: от хранения в базах и написания запросов до анализа, оптимизации и осмысленной интерпретации результатов.
+Издание «Базы данных на Python (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Учебная литератураИздательство: Наука и техникаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FC7DB320B23B269C7CCE545B481639F86E400E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878184   (1074320) от 
+
+Олег Владимирович Болдырихин, Владимир Александрович Алексеев | Архитектура компьютерных систем. Учебное пособие для СПО (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие формирует полное представление об основных деталях взаимодействия между аппаратным и программным обеспечением ЭВМ. Рассмотрены устройство и порядок функционирования ЭВМ, детали работы процессора и компьютера при выполнении программ.
+Подготовлено в соответствии с Федеральным государственным образовательным стандартом среднего профессионального образования. (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеИздательство: Ай Пи Эр Медиа, ПрофобразованиеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607B96D3ABA9097CEC140913C067D4A48AD8066B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877920   (1074236) от 23.06.2026
+
+Джефф Януччи | Изучаем SQL за месяц, занимаясь один час в день (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074236.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQL, «структурированный язык запросов» (Structured Query Language) — это универсальное средство создания, управления и составления запросов к реляционным базам данных, таким как SQL Server, PostgreSQL и Oracle. Для аналитиков данных SQL — супер инструмент, позволяющий выйти за пределы обычных табличных редакторов и систем бизнес-аналитики. При этом язык SQL интуитивен (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Учебная литератураПеревод: С. ГусевИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0341314BDAB544AECEB73160371FAB37AB3C4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875437   (1072554) от 
 
 Дэнни Ини, Джош Боуэн | С любопытством к ИИ. Как мыслить шире и создавать больше с помощью искусственного интеллекта (2026) [PDF, EPUB]
@@ -474,221 +693,6 @@ K. Satirli, T. Dolezal / К. Сатирли, Т. Долезал | Terraform. С�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FD06F7C6986608B1EBBF27884CC162E895A18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867208   (1066763) от 24.04.2026
-
-Роман Душкин | Искусственный интеллект. Современный агентный подход (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о том, как проектировать и создавать интеллектуальные агенты и многоагентные системы нового поколения, сочетающие большие языковые модели, инструменты, внешние базы знаний и долговременную память для решения практических задач в реальных средах.
-Рассматриваются современные когнитивные архитектуры, иерархическое планирование, взаимодействие агентов (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B060ABF64F75DF3F11FB95AF771B26BBC286064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866788   (1066621) от 
-
-Jonah Carrio Andersson | Learning Microsoft Azure. Cloud Computing and Development Fundamentals. 1st Edition (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066621.jpg" />
-</div>
-
-
-###  Подробнее
-
-If your organization plans to modernize services and move to the cloud from legacy software or a private cloud on premises, this book is for you. Software developers, solution architects, cloud engineers, and anybody interested in cloud technologies will learn fundamental concepts for cloud computing, migration, transformation, and development using Microsoft Azure. (   Читать дальше...   )Жанр: Web Services, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A412536B7E5388E4F3214AC9352D3BF9C3B14C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866741   (1066438) от 22.04.2026
-
-A. Isaiah, K. Nissen | OpenTelemetry For Dummies (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern cloud-native applications run across countless services, regions, and runtimes, and generate mountains of telemetry that often feel more confusing than helpful, making it difficult to find the root cause when things go wrong.
-This book shows you how to bring order and clarity to observability with OpenTelemetry. It explains its core components, practical setup (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: WileyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2859381745CF9F7A16398CF114FD4B0A4A81E6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866745   (1066436) от 22.04.2026
-
-Blake Rayfield | Applied Math with Python. Solve Real-World Problems with Python-Based Solutions. 1st Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066436.jpg" />
-</div>
-
-
-###  Подробнее
-
-A step-by-step guide for using Python to transform abstract mathematical concepts into effective, on-the-ground scripts that solve real-world business problems
-
-Applied Math with Python: Solve Real-World Problems with Python-Based Solutions is a detailed, step-by-step guide for business professionals, analysts, and data scientists interested in using Python to perform (   Читать дальше...   )Жанр: Discrete Mathematics, Python Programming, MathematicsЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F2FFD491F8C2163BE13615FC28D6F57E86334A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866747   (1066435) от 22.04.2026
-
-Брент Ластер | GitHub Copilot. Программирование в паре с ИИ (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга идеально подходит разработчикам, тестировщикам, DevOps-инженерам и всем, кто так или иначе причастен к созданию ПО, независимо от уровня опыта. Вы освоите не только базовые функции, но и более мощные возможности: Copilot Edits, Copilot Agent и даже Copilot Vision, узнаете, как создавать собственные расширения и интегрировать их в свой рабочий процесс, независимо (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB96B3C31AAB4A2F232C6F0D3AAB35C21430794F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866749   (1066434) от 22.04.2026
-
-Irena Cronin | Building and Training Generative AI Models. A Practical Guide to Generative AI Development and Scaling (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066434.jpg" />
-</div>
-
-
-###  Подробнее
-
-The book starts by guiding readers on selecting the right model architecture for their application, be it text generation, image synthesis, or multimodal tasks. It then walks through essential components of model training, including dataset handling, self-supervised learning, and core optimisation techniques such as backpropagation, gradient descent, and learning (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A38BEC56C04E28847BEFFB60F16FD83572F9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866750   (1066433) от 22.04.2026
-
-Маркус Арчер | Claude AI для начинающих [2 книги] (2026) [PDF, EPUB] [RU, EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066433.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Claude AI для начинающих» — это простое, понятное руководство без профессионализмов, которое проведет вас от полного новичка до уверенного пользователя современной модели ИИ Claude AI. Из этой книги вы узнаете:
-- Что такое Клод на самом деле и чем он отличается от Google и ChatGPT.
-Как использовать Клода для написания электронных писем, планирования поездок, понимания (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: Русский, английскийИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A40C97EF30240037B82271D9FAD87EDC0E462DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866753   (1066432) от 22.04.2026
-
-David Tuffley | Beyond Coding. The Complete Guide to IT Soft Skills (2025) [PDF, EPUB, MOBI, azw3] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Out From the Crowd with Essential Soft Skills
-In today's competitive IT industry, technical skills alone are no longer enough to succeed. To truly excel and unlock new career opportunities, you need to develop a comprehensive set of soft skills that will set you apart from the rest. "Beyond Coding: The Complete Guide to IT Soft Skills" is your ultimate (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Griffith UniversityФормат: PDF, EPUB, MOBI, azw3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8FAC6F13F72D11F05502F9A1C48911F624606A
 ```
 
 https://mybot314.ru/tekegram_catalog/

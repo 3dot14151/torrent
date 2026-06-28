@@ -1,3 +1,119 @@
+###  Публикация: 1017090   (752343) от 22.05.2016
+
+Авраам Руссо - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2016) [MP3|128 кб/с] <Поп, Интервью>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752343.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Авраам Руссо - Не Моя
+2. Авраам Руссо и Иванна - Через Любовь
+3. Авраам Руссо - Песня о России
+4. Авраам Руссо и Мими - Бомба(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A82A0397783F3FEFC9A1598A0EE152393F0001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395602   (752197) от 12.07.2020
+
+VA - German Top 100 Single Charts 10.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Bläulich
+02. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
+03. UFO361 - Emotions
+04. DaBaby - ROCKSTAR (feat. Roddy Ricch)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF34847F492424F1412C4BA56ADEA08C80CD899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017870   (752184) от 22.05.2016
+
+VA - 100 пудовый хит. Выпуск 9 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752184.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Misty & Aslan - Мой Герой
+002. Willy William - Te Quiero
+003. Виктория Ланевская - Начать С Нуля
+004. Akon - Holiday(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB92087FBC3094E96FE6F89DB193B80D70E9C3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019011   (752093) от 22.05.2016
+
+VA - Летний дождь. Суперсборник от Русского радио (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752093.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. АГОНЬ - Я Буду Любить Тебя
+002. Винтаж - Немного Рекламы
+003. Виталий Козловский - Целую
+004. Aisha - Сильно Сильно(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BA1904ED52E3DE582C13B2CACC6929FA46E893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523324   (750985) от 11.01.2022
 
 VA - Music 80s - Collection от ALEXnROCK часть 1 (2021) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Shazam: Хит-парад Russia Top 100 Февраль (2019) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B335BEB33A60935DFAF9F1F8BE026FBF13B3962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217100   (744869) от 03.04.2018
-
-VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasy - Ich brenn durch mit Dir (Berlin)
-02. Wolfgang Petry - Bronze,Silber und Gold (Radio Version)
-03. Matthias Reim - Ich hab geträumt von Dir
-04. Nik P. - Dieser Ring(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56EDD7384E0AD451087D9A8E6FF3890D2A619E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020556   (743793) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 14 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Cold - I Can Hear Your Voice ( 1986 )
-02. J. D. Jaber - Don't Stop Lovin' ( Long Version 1983 )
-03. King & Queen - King And Queen ( Special Queen Remix 1995 )
-04. Fancy - Lady Of Ice ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A87151884702F7FA692D346955FC54A7D701BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020855   (743787) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 17 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - Hot Girls-Bad Boys ( 1985 )
-02. Aqua - Happy Boys & Girls ( 1997 )
-03. Silent Circle - Sib Dub Dua ( 1986 )
-04. Roy - Destiny Time ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C639B7BBF34DB041621F534AE865F2E29412C9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020548   (743784) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 13 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim Wilde - Cambodia & Reprise ( 1982 )
-02. Silicon Dream - Marcello The Mastroianni ( Radio Mix 1995 )
-03. Blue System - Sorry Little Sarah ( Maxi Version 1987 )
-04. Ottawan - Hands Up ( 1981 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97E537D81B51656A0113775AD48D33303E0927
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1374607   (872832) от 10.04.2020
+
+Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To The Battle Line (5:38)
+02. Artix Space (4:41)
+03. Power Invasion (5:55)
+04. Star Track (4:29)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998139   (866114) от 21.03.2016
+
+a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (Kygo Remix) (3:45)
+02. The Sun Always Shines On TV (Future Funk Squad's 'Radiant 4K' Remix) (5:38)
+03. Cry Wolf (Jellybean Mix) (5:14)
+04. Touchy! (House Mix) (5:21)(   Читать дальше...   )Жанр: Pop Rock, Synthpop, New WaveПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B413912F035724FABEB7E508D1E719B3B8CC1F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375651   (865490) от 14.04.2020
+
+VA - I Love Synthes12''er Dance Vol. 1-3 (2002-2004) Limited Edition, Remastered [APE|Lossless|image + .cue] <Syntheser Dance, Italo-Disco, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koto - Japanese War Game (7:53)
+02. Samoa Park - Tubular Bells & Foreign Affair (6:50)
+03. Kano - Ikeya Seki (5:44)
+04. Faxe - Time For Changes (5:24)(   Читать дальше...   )Жанр: Syntheser Dance, Italo-Disco, SynthpopПродолжительность: 03:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB5C56E0C2114EED694AC02EBAE72FBACDDF7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375744   (863603) от 15.04.2020
+
+NeoSpace - Revelation Tour (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation Tour (6:13)
+02. Neogalactic Travels (5:49)
+03. New World Order (5:01)
+04. Lost Civilization (6:08)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE529B01A76C0033B2A889B87F303D0184F46407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497991   (861356) от 24.09.2021
 
 New Arcades - In the Deepest of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
@@ -629,122 +745,6 @@ VA - Super Eurobeat Vol. 237 (2016) Extended Version [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F6D28063BC68960E68933ACDDDEA78903C83ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505717   (802940) от 28.10.2021
-
-Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Of Death And The Holy Rose (4:05)
-02. Sin In Me (7:09)
-03. Jetpack (6:27)
-04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120662   (802007) от 31.03.2017
-
-Ultrаnоire - Intrоnаut (2017) [FLAC|Lossless|image + .cue] <SynthPop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Technicolor Lies (4:11)
-02. Playing Dead (4:37)
-03. Phantom (3:49)
-04. Poisoned (3:59)(   Читать дальше...   )Жанр: SynthPop, ElectronicПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31241E859D62C5D0A9F61725DC35CB4872B693E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282114   (799989) от 23.05.2020
-
-Tesla Boy - Collection 6 Releases (2010-2020) [FLAC|Lossless|tracks + .cue, tracks] <Synthpop, New Wave, House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eintrag (0:18)
-02. Абьюзер (4:09)
-03. Музыка моя (4:45)
-04. Почаще (5:10)(   Читать дальше...   )Жанр: Synthpop, New Wave, House |Продолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AA970DD8B430AFCC325ADCDCADD9CA45064DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508230   (797985) от 07.11.2021
-
-Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redshift (8:28)
-02. Distance (8:15)
-03. Next Steps (7:31)
-04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B036BE763BACA1659E784EFA5723E6624A61C0BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

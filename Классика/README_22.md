@@ -1,3 +1,32 @@
+###  Публикация: 1029500   (680134) от 27.06.2016
+
+Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossover, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of My Fathers (3:24)
+02. Beethoven's Ode To Joy (With David Garrett) (3:44)
+03. Sanctus (Elgar's Nimrod) (3:39)
+04. Barcelona (With Alfie Boe) (4:28)(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7472867F3A9E28540ED5AEB13086AEE7EB36D7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507718   (679256) от 10.06.2012
 
 Alirio Diaz - Four centuries of the Spanish Guitar 2CD (1992) [FLAC|Lossless]<Classical, Instrumental>
@@ -724,39 +753,6 @@ Joep Beving - Prehension (2017) [MP3|320 Kbps] <Modern Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC23907ADA322133EA62DF913F78DDCC80397751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514686   (656946) от 25.06.2012
-
-Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2CD [APE|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Quartet #3 In E Minor, Op. 87 - 1. Adagio; Allegro [13:17]
-02. Double Quartet #3 In E Minor, Op. 87 - 2. Andante Con Variazioni [08:38]
-03. Double Quartet #3 In E Minor, Op. 87 - 3. Scherzo: Allegro [06:59]
-04. Double Quartet #3 In E Minor, Op. 87 - 4. Finale: Allegro Molto [07:15]
-05. Double Quartet #4 In G Minor, Op. 136 - 1. Allegro [07:23]
-06. Double Quartet #4 In G Minor, Op. 136 - 2. Larghetto [05:34]
-07. Double Quartet #4 In G Minor, Op. 136 - 3. Scherzo: Moderato; Trio [06:47]
-08. Double Quartet #4 In G Minor, Op. 136 - 4. Finale: Vivace [05:59]Жанр: ClassicalФормат: 2CDПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C773C88EBC291296164289326B653E2DFF977CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

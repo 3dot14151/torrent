@@ -1,148 +1,3 @@
-###  Публикация: 1770054   (32445) от 31.12.2024
-
-Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n' Roll>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisencolinensinainciusol (& Mina) (Le Migliori 2016)
-02. Ti Penso E Cambia Il Mondo. live (& Gianni Morandi) (Adriano (Adriano Live-Arena di Verona 2012) 2013)
-03. Solo Da Un Quarto D' Ora. live (Il Cuore, La Voce 2001)
-04. A Un Passo Da Te (& Mina) (Le Migliori 2016)(   Читать дальше...   )Жанр: Pop, Disco, Rock 'n' RollПродолжительность: 14:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117734D703082133F6C7F01F2BF5C97619B2482B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688242   (32444) от 31.12.2024
-
-Владимир Захаров (Рок-Острова) - Синглы (2023-2024) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она так любила дождь (3:32)
-02. Ты сама так хотела (3:48)
-03. На Рок-Островах (3:24)
-04. Сколько раз (4:11)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 02:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A783E1413AD4E074A825CA095761C293EA3D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770623   (32254) от 02.01.2025
-
-VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составляя очередную часть сборника и перекапывая гигобайты муз материала в поисках интересных песен, я наблюдаю как меняется навязанная мода. От мямлей и подросткового блеяния перешли на то, про что Виктор Цой когда то спел в песне Транквилизатор 😊 И ещё появилась такая дичь в поп звучании, как дисторшн. Это сильный перегруз звука, в результате людям с нормальным (   Читать дальше...   )01. Айки - Лайками
-02. W24 - Белая ночь
-03. Alenalittlestar - Давайте танцевать
-04. Павел Воля - Действуй(   Читать дальше...   )Жанр: PopПродолжительность: 03:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2FE44BA1FFC8913C06E44494A0D63D294760DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771431   (31775) от 06.01.2025
-
-VA - Disco Riviera (2025) [MP3|320 Kbps] <Disco, Eectronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Ton & Irregular Disco Workers - Dimmi Di Si (6:54)
-02. Comme Un Coeur - 1000 Miles De Jamais Vu (4:42)
-03. Palermo Disco Squad - After All These Tears (5:22)
-04. Fred Ventura & Stefano e Bene - All for You (6:05)(   Читать дальше...   )Жанр: Disco, EectronicПродолжительность: 06:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E50B7DA7DEDC4C0F042B96EDE946D7307D5440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771563   (31741) от 07.01.2025
-
-VA - Лучшие песни Love Radio за 2024 год (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31741.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo feat. Ava Max - Whatever (2:58)
-002. Alan Walker feat. Daya - Heart Over Mind (3:09)
-003. R3hab feat. VIZE & JP Cooper - Jet Plane (2:58)
-004. Юлия Паршута - КРИШНА (3:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C0AD1EAD734E093107799F23D88E0ED0F02067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771871   (31593) от 08.01.2025
 
 Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, Electronic dance>
@@ -746,6 +601,151 @@ Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C65028FB04D15306E571E3AEC8B3774B1256CC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794044   (19953) от 28.04.2025
+
+VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kendrick Lamar - Not Like Us(04:34)
+002. Future - Like That(04:28)
+003. Shaboozey - A Bar Song (Tipsy)(02:51)
+004. Post Malone - I Had Some Help(02:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5846E1FF3610FC7BA4B085D2C338E1316E1E275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795311   (19510) от 03.05.2025
+
+VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Feargal Sharkey - A Good Heart(04:28)
+002 Human League - Don't You Want Me Baby(03:57)
+003 Kim Wilde - Kids In America(03:25)
+004 Simple Minds - Don't You (Forget About Me)(04:20)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF106960D5E95A937E00EFC62386ECBD0A8B5343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795094   (19482) от 03.05.2025
+
+VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alice Cooper - School’s Out(03:30)
+002. Donna Summer - Sunset People(04:33)
+003. Faces - Ooh La La(03:34)
+004. Robbie Williams - Let Me Entertain You(04:22)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 14:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5F9AC4EF36EC90F29DAD63FD5FCB4A7D88ADA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797076   (18315) от 14.05.2025
+
+VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18315.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. East 17 - 50 Shades
+002. OneRepublic - All Fall Down
+003. Blue - All Rise
+004. OneRepublic - All The Right Moves(   Читать дальше...   )Жанр: PopПродолжительность: 12:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38EB69510646416A8314302D18D155B33FB45F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797042   (18312) от 14.05.2025
+
+VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18312.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sofia Camara - Said It All - (03:00)
+ 002. Blumele - Gomma - (03:31)
+ 003. Gobbi - Risorto - (02:43)
+ 004. The Boyz - Vvv - (03:56)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF95FF8C34A3263CA75A99CBB02770FC24F4CE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

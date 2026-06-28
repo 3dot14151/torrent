@@ -1,3 +1,113 @@
+###  Публикация: 702256   (467982) от 22.09.2013
+
+Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO - Boogie
+02. The Move -When Alice Comes Back To The Farm
+03. Emerson, Lake & Palmer - Take A Pebble
+04. Emerson, Lake & Palmer- Knife Edge(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53D3226700106C02CAFF6960AE690A0C833CD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702720   (467961) от 22.09.2013
+
+Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curved Air - It Happened Today
+02. Soft Machine - Composition Based On Three Tunes
+03. Curved Air - Vivaldi
+04. Yes - I've Seen Good People ( Part 2: All Good People )(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FC468F4A1718F52E61081731EFB6FA4FAC9406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548590   (467683) от 18.09.2012
+
+Secret - Poison (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5B27756C5716CCD2675A95E804DDDA3FBDDBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548587   (467674) от 18.09.2012
+
+MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEB27F771F800363F459902DB3342CCFB8988ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548586   (467209) от 18.09.2012
 
 DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WEBRip
@@ -594,125 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694859   (456154) от 27.09.2013
-
-LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маргарэт Лиэнн Раймс (Margaret LeAnn Rimes, род. 28 августа 1982 года) — американская исполнительница в стиле кантри, которая известна тем, что начала серьёзную музыкальную карьеру уже в 11 лет, а в 14 лет выиграла свою первую «Грэмми».
-Трек - (Не Можешь Биться с Лунным светом), саунтрек к фильму «Бар „Гадкий койот“»Жанр: PopПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389049   (456112) от 18.09.2011
-
-ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456112.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550793   (455017) от 23.09.2012
-
-Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
-  - Beat-Club
-  - Musikladen
-  - Disco
-  - Top Of The Pops
-(в хорошем качестве VH1)Slade 71-82
-
-1. Get Down And Get With It (promo) (1971)
-2. Coz I Luv You (Top Of The Pops, 1971)
-3. Hear Me Calling (Beat-Club, 28.11.71)
-4. Look Wot You Dun (promo) (1972)
-5. Mama Weer All Crazee Now (Disco, 09.12.72)
-6. Gudbye T’Jane (TOPPOP, 1972)
-7. Bangin’ Man (Disco, 26.10.74)
-8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389409   (453773) от 19.09.2011
-
-Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
 ```
 
 https://mybot314.ru/tekegram_catalog/

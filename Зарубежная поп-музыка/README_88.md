@@ -1,3 +1,32 @@
+###  Публикация: 1756125   (103564) от 19.10.2024
+
+VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Red - Something Got Me Started
+02. Cher - Strong Enough
+03. Spacehog - In the Meantime
+04. Blur - Song 2 (2012 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A272098E4E27EBBB0C71E794D49E049FD4ED054F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759779   (103260) от 10.11.2024
 
 Мика Ньютон - 2 Альбома (2005-2006) [MP3|320 Kbps] <Pop, Rock>
@@ -851,41 +880,6 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E420CD46C53959C325C4CE299CB3A779412E18EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467113   (81805) от 13.03.2012
-
-Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Personality
-02. Hell Wit Ya
-03. Most Girls
-04. There You Go
-05. You Make Me Sick
-06. Let Me Let You Know
-07. Love Is Such a Crazy Thing
-08. Private Show
-09. Can't Take Me Home
-10. Stop Falling(   Читать дальше...   )2000Жанр: PopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5683742A3C2BD657085CDC86879DF60441420E
 ```
 
 https://mybot314.ru/tekegram_catalog/

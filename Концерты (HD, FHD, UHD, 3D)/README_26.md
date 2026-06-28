@@ -1,3 +1,117 @@
+###  Публикация: 545872   (478124) от 13.09.2012
+
+The Prodigy / Live World's On Fire (2011) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478124.jpg" />
+</div>
+
+
+###  Подробнее
+
+World’s on Fire ( Мир в огне) — видеоконцерт и первый концертный альбом британской электронной группы The Prodigy, выпущенный на blu-ray 24 мая 2011 года. Фильм-концерт демонстрировался в кинотеатрах. Съёмки проходили на фестивале Warrior’s Dance. Warrior's Dance festival — эпическое супер-ударное зажигательное шоу: полтора часа от забойных классиков танцевальной музыки, наполненные оглушительными басами и зрелищным шоу. Это самое масштабное шоу The Prodigy перед 65-тысячной аудиторией, аншлаг в Milton Keynes National Bowl.Жанр: Музыка(Electronic, Breakbeat)Режиссер: Liam HowlettАктеры: The ProdigyПеревод: ОтсутствуетПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939015   (477535) от 20.09.2015
+
+Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477535.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 марта 2014 года Dream Theater отыграли свой концерт в Бостонском Опера Хаус вместе со специальными гостями из оркестра и хора Музыкального Колледжа Беркли, в стенах которого, как многие из Вас знают, и зародилась группа DT (на тот момент называвшаяся Majesty). Этот концерт был записан и заснят на видео, и выпущен 30 сентября в форматах Blu-Ray, DVD и Blu-Ray + (   Читать дальше...   )Act I
+01. The Enemy Inside
+02. The Shattered Fortress
+03. On The Backs Of Angels(   Читать дальше...   )Жанр: Progressive MetalРежиссер: Pierre & François LamoureuxПродолжительность: 02:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9223EE762165C5F7964A3264796B91780435E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401161   (476660) от 02.09.2020
+
+Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476660.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 марта Music Theories Recordings / Mascot Label Group выпускают "Ayreon - Electric Castle Live and Other Tales", 3-х LP-сет прошлогоднего концертного исполнения третьего альбома Ayreon "Into The Electric Castle".
+В течение четырех ночей в зале 013 в Тилбурге (сцена серии живых выступлений Ayreon Universe в 2017 году) Лукассен, его группа и один (   Читать дальше...   )01. Welcome to the New Dimension
+02. Isis and Osiris
+03. Amazing Flight
+04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockЯзык озвучки: EnglishПродолжительность: 02:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9BECE2F38EB0B252DFB06EA739BEFE77754167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701026   (476335) от 18.09.2013
+
+Madonna - The MDNA Tour (2013) BDRemux [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgin Mary (Intro)
+ 02. Girl Gone Wild
+ 03. Revolver
+ 04. Gang Bang(   Читать дальше...   )Жанр: Музыка, Pop, DanceРежиссер: Дэнни ТуллАктеры: MadonnaПеревод: ОтсутствуетПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE1CB851EC213E830C5052E202310569B0BC52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701371   (473926) от 19.09.2013
 
 Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRemux [1080p]
@@ -619,118 +733,6 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530D454C20E2B25ED4B69AF37C37E58BF9D2680A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941267   (462045) от 27.09.2015
-
-Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462045.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAMMSTEIN с триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление немецких индастриал-металлистов (   Читать дальше...   )01. Intro
-02. Rammlied
-03. B********
-04. Waidmanns Heil(   Читать дальше...   )Производство: Страна: GermanyЖанр: Industrial Metal, NDHАктеры: Тилль Линдеманн (Till Lindemann) — вокал, Рихард Круспе (Richard Z. Kruspe) — гитара, Кристиан Лоренц (Christian Flake Lorenz) — клавишные, Пауль Ландерс (Paul H. Landers) — Ритм-гитара, Оливер Ридель (Oliver «Ollie» Riedel) — Бас-гитара, Кристоф Шнайдер (Christoph «Doom» Schneider) — ударныеПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8932F8BA3E323A00BDC3E2390ACAEB6E8403359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941118   (462042) от 27.09.2015
-
-Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концертного тура Мадонны - самого успешного тура 2012 года.
-Концертный тур Мадонны в поддержку альбома MDNA, который прошел в 2012-м году и стал самым коммерчески успешным концертным туром года. Поп-звезда объехала 29 стран, включая Россию, и дала 88 концертов, прошедших при полном аншлаге.
-The MDNA Tour — девятый концертный тур американской певицы Мадонны (   Читать дальше...   )Производство: США, Universal Music, Interscope RecordsЖанр: Документальный, МузыкаРежиссер: Дэнни Б. Тулл, Стефан СеннурАктеры: Мадонна, Кевин Антунес, Монте Питтман, Rickey Pageot, Brian Fraiser-Moore, Кили Дин, Ники Ричардс, Эдриан Гало, Брахим Заибат, Chaz BuzanПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6BBFF76DE87D1AF54910799CCB6CEB95603265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407578   (461869) от 09.09.2020
-
-Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерты METALLICA с Симфоническим оркестром Сан-Франциско, состоявшиеся 6 и 8 сентября 2019 года, стали историческими во многих отношениях. Они стали первыми выступлениями в только что открытом зале "Chase Center", первыми совместными выступлениями группы и оркестра с 1999 года, и на них впервые можно было услышать симфонические версии песен, увидевших (   Читать дальше...   )Производство: Universal MusicЖанр: Thrash-Metal, Heavy-MetalРежиссер: Ben Griffin, Dana MarshallПродолжительность: 02:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945EBD6498030EDA6F1E585398CCBF97FBD4B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941273   (461767) от 27.09.2015
-
-Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
-02. B*********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC3AD7417E148EC4BF3D3560EF5EE807177E7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

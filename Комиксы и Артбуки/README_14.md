@@ -1,3 +1,30 @@
+###  Публикация: 1435350   (143774) от 28.12.2020
+
+Кэти Бёрнетт, Арни Феннер | Артбук Spectrum / Spectrum: The First Annual Collection of the Best in Contemporary Fantastic Art (1994) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук Spectrum: Первая ежегодная коллекция лучших произведений современного фантастического искусства.
+В этой богато иллюстрированной книге представлены работы современных создателей бестселлеров в области фэнтези и научной фантастики. Представлено более 100 художников, отобранных жюри из отмеченных наградами профессионалов. Предисловие написано лауреатом Пулитцеровской (   Читать дальше...   )Жанр: АртбукФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E7F2B1BB7626881AE5DEB9766C600AD77C1DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435348   (143094) от 28.12.2020
 
 Ubisoft | Артбук по игре Assassin’s Creed Вальгалла / The Art of Assassin's Creed Valhalla (2020) [PDF] [EN]
@@ -662,34 +689,6 @@ Blue Brain Games | Артбук по игре The House of Da Vinci / The House 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E859F308FD0BF4BE3CD56A8E9754562B2E9C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704271   (114546) от 03.03.2024
-
-Eidos Montreal | Артбук по игре Deus Ex: Human Revolution / Deus Ex: Human Revolution - Design Work (2011) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Deus Ex: Human Revolution".
-
-Серия артбуков по играм "Deus Ex": Артбук Deus ExЖанр: АртбукЯзык: АнглийскийИздательство: Square EnixФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68F745DAAE8ED839DF6B22278DBA41B912CDAB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

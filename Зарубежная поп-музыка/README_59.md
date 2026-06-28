@@ -1,3 +1,32 @@
+###  Публикация: 1419876   (335488) от 30.10.2020
+
+VA - Bravo the Hits 2020 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335488.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Weeknd - Blinding Lights
+02. David Guetta & Sia - Let's Love
+03. Jason Derulo - Take You Dancing(   Читать дальше...   )Жанр: PopПродолжительность: 02:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2266EBEC9A4F94FBA503F86FC4F609F8420B3A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955244   (335150) от 10.11.2015
 
 Grimes - Art Angels (2015) [OGG| 454-526 кб/с]<Synthpop, Indie Pop, Dream Pop, Dance>
@@ -713,35 +742,6 @@ Sarah Brightman - La Luna (2000) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB608A038921A0A06570FA50D6F5E3FABD70BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582248   (324599) от 08.10.2022
-
-Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel
-02. One Day Like This
-03. Glosoli
-04. Lento E Largo From Symphony No. 3, Op. 36 (Symphony Of Sorrowful Songs)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C28080549BD9D1F713E66D37DB245E76BD9DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

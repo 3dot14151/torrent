@@ -1,3 +1,90 @@
+###  Публикация: 203755   (1030357) от 19.02.2021
+
+VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Paco De Lucia - Entre Dos Aguas		      (06:01)
+02. Paul Mauriat - L'Amour Est Bleu	 	      (02:34)
+03. David A Stewart feat. Candy Dufler - Lily Was Here (04:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314749   (1030354) от 19.02.2021
+
+VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance De Amour 	(03:21)
+02. Johnny Guitar 	(02:29)
+03. La Ragazza Di Bube 	(02:42)
+04. Love Story 		(02:31)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994238C1081A2478B61B2A605BF55418CB804AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286660   (1030343) от 19.02.2021
+
+Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 When The Rain Begins To Fall       (03:53)
+02 I Just Called To Say I Love You    (03:48)
+03 Self Control			      (03:52)
+04 No More Lonely Nights	      (04:02)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255905   (1030342) от 19.02.2021
 
 Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
@@ -655,93 +742,6 @@ Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4A2FE3ACAE93BC6A6E4B55F0E62169C2C4646A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 19013   (1027979) от 04.03.2021
-
-The Best of Paul Mauriat 10 CD
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027979.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01 BEGIN THE BEGUINE '90
-02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452519   (1027705) от 06.03.2021
-
-Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, Nordic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synkverv (4:51)
-02. Kvitravn (6:18)
-03. Skugge (6:38)
-04. Grá (3:32)(   Читать дальше...   )Производство: Sony Music, Columbia, Fimbulljóð Productions – 19439724702Жанр: Folk, Ambient, Nordic Folk, Dark FolkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB676E7919376F6373E0F53F6FB8EA3FF017919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452789   (1027363) от 08.03.2021
-
-Romantic Piano Music Masters - Спокойное фортепиано: Инструментальные баллады, Женский день (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спокойное фортепиано (2:35)
-02. Как ты (2:41)
-03. Жажда (2:51)
-04. Вальс ветра (2:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
 ```
 
 https://mybot314.ru/tekegram_catalog/

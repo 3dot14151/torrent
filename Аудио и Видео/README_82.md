@@ -1,3 +1,177 @@
+###  Публикация: 1521343   (766226) от 01.01.2022
+
+VA - Odd Echoes, Vol. 4 (2021) [AAC|~347 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fur Coat, Julian Wassermann - Buried Lakes (6:03)
+02. Aacht - Verum (7:35)
+03. Zâgitar, Massano - Rising (8:19)
+04. Raphael Mader - Different Path (6:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BCF4B0F5F7817A4D003E87E6F8D99C24587494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521182   (766225) от 01.01.2022
+
+VA - Perspectives Best of 2021 (2021) [AAC|~332 Kbps] <Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aki Bergen & Richter - Children (Extended Mix) (8:59)
+02. C-Jay, LOM (AR), Stephane Gervais - Dormarch (D-Formation & Masella Remix) (8:04)
+03. Far Distance - Hyperspace (Rauschhaus Remix) (6:51)
+04. Clay Smith - Rave Culture (6:19)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C157D62AF26922E207E021ACAD9FDC697BF207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521338   (766220) от 01.01.2022
+
+VA - Odd Echoes, Vol. 1 (2019) [AAC|~322 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fur Coat - Aquarius (7:25)
+02. ENØS - Asgard (8:03)
+03. Black Peters - Trust (7:27)
+04. Pisetzky - Arsenide (6:14)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A8130ACCBC352E459C10B0BEB01951D94A82A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521176   (766219) от 01.01.2022
+
+Scott Bradlee's Postmodern Jukebox - The Essentials II (2018) [AAC|~326 Kbps] <Vocal Jazz, Swing, Vintage, Jazz-Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Bradlee's Postmodern Jukebox, Haley Reinhart - Black Hole Sun (4:33)
+02. Scott Bradlee's Postmodern Jukebox, Nicole Atkins - Heroes (4:09)
+03. Scott Bradlee's Postmodern Jukebox, Kenton Chen - Closer (4:16)
+04. Scott Bradlee's Postmodern Jukebox, Casey Abrams - What Is Love (4:32)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, Jazz-PopПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707B71DA2CB5885B239160902705E0ABC47C0D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521174   (766218) от 01.01.2022
+
+Scott Bradlee's Postmodern Jukebox - The Essentials (2016) [AAC|~321 Kbps] <Vocal Jazz, Swing, Vintage, Jazz-Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Bradlee's Postmodern Jukebox, Robyn Adele Anderson, The Tee Tones - We Can’t Stop (3:59)
+02. Scott Bradlee's Postmodern Jukebox, Morgan James - Maps (3:43)
+03. Scott Bradlee's Postmodern Jukebox, Haley Reinhart - Creep (4:43)
+04. Scott Bradlee's Postmodern Jukebox, Kate Davis - All About That Bass (3:38)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, Jazz-PopПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0932996DAAD630ECE40A744F59DBA69E97C9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521178   (766184) от 01.01.2022
+
+Scott Bradlee's Postmodern Jukebox - The Essentials III (2021) [AAC|~316 Kbps] <Vocal Jazz, Swing, Vintage, Jazz-Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Bradlee's Postmodern Jukebox, Joey Cook, Adanna Duru, Nina Ann - Feel It Still (3:45)
+02. Scott Bradlee's Postmodern Jukebox, Rogelio Douglas, Jr. - I Still Haven't Found What I'm Looking For (3:18)
+03. Scott Bradlee's Postmodern Jukebox, Haley Reinhart - Habits (3:36)
+04. Scott Bradlee's Postmodern Jukebox, Therese Curatolo, Olivia Kuper Harris, Sara Niemietz (   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, Jazz-PopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A221D018B4DC9052E5288483217AF9616174B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521109   (766183) от 01.01.2022
 
 VA - Vocal Trance Classics 2021 (2021) [AAC|~337 Kbps] <Trance, Vocal Trance>
@@ -557,165 +731,6 @@ VA - Parousia (2018) [AAC|~333 Kbps] <Organic House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:870230569086241926A185C58CC7355F8F87D6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394088   (765344) от 03.07.2020
-
-Щегол / The Goldfinch (2019) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765344.jpg" />
-</div>
-
-
-###  Подробнее
-
-История юного Теодора Деккера, потерявшего мать во время теракта в Метрополитен-музее. Чудом оставшись в живых после взрыва, Тео получает от умирающего старика редкую картину кисти Карела Фабрициуса и кольцо. С этого момента начинается его погружение в подпольный мир искусства.Производство: США / Amazon Studios, Color ForceЖанр: ДрамаРежиссер: Джон КраулиАктеры: Энсел Элгорт, Оакс Фигли, Анайрин Барнард, Финн Вулфард, Сара Полсон, Люк Уилсон, Джеффри Райт, Николь Кидман, Уилла Фицджералд, Эшли КаммингсПеревод: Дублированный (Лицензия)Субтитры: Русские (Full, Forced), Украинские (Forced), Английские (Full)Продолжительность: 02:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0644961ECBBF8E8A00D8CA34ADAA8E196B6BDD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394117   (765340) от 03.07.2020
-
-Щегол / The Goldfinch (2019) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765340.jpg" />
-</div>
-
-
-###  Подробнее
-
-История юного Теодора Деккера, потерявшего мать во время теракта в Метрополитен-музее. Чудом оставшись в живых после взрыва, Тео получает от умирающего старика редкую картину кисти Карела Фабрициуса и кольцо. С этого момента начинается его погружение в подпольный мир искусства.Производство: США / Amazon Studios, Color ForceЖанр: ДрамаРежиссер: Джон КраулиАктеры: Энсел Элгорт, Оакс Фигли, Анайрин Барнард, Финн Вулфард, Сара Полсон, Люк Уилсон, Джеффри Райт, Николь Кидман, Уилла Фицджералд, Эшли КаммингсПеревод: Дублированный (Лицензия)Субтитры: Русские (Full, Forced), Украинские (Forced), Английские (Full)Продолжительность: 02:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01D358730D74512C0D879A06CB816D1E0EEA8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521426   (765303) от 02.01.2022
-
-VA - Monada Gems: Tranquillus (2021) [AAC|~313 Kbps] <Organic House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.ONDE - Hava (6:16)
-02. Aluna - Bobinsana (8:25)
-03. Thea - Fly Like an Eagle (San Miguel Remix) (9:31)
-04. Soneiro Collective - Ra Ma Da Sa (San Miguel Extended Remix) (9:19)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97633CA4B7B69089939607C1582978CCF39DBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126420   (765281) от 18.04.2017
-
-Зверопой / Sing (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое животное мечтает стать звездой. Слониха, баран, бык, и даже хрюшка, буквально все рвутся к славе. Кто знает, кому улыбнется капризная фортуна и чей портрет украсит завтра обложки глянцевых журналов. Все как у людей...Производство: США, Великобритания, ЯпонияЖанр: Мультфильм, драма, комедия, семейный, музыкаРежиссер: Кристоф ЛурделеАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт Дженнингс, Питер СерафиновичПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06FC5686A3DFC7C9BF0E13108271332B7A5C65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279642   (765250) от 30.01.2019
-
-Братья Систерс / The Sisters Brothers (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-беспредельщики по фамилии Систерс по заданию таинственного Командора должны прикончить некоего Уорма, золотоискателя-авантюриста. Фартовые по жизни охотники за головами гонятся за новой жертвой, не подозревая, что их разведчик не так-то прост… Начинается игра на выживание: острый ум против безбашенной силы.Производство: Франция, Испания, Румыния, США, БельгияЖанр: Драма, комедия, криминал, приключения, вестернРежиссер: Жак ОдиарАктеры: Джон Си Райли, Хоакин Феникс, Джейк Джилленхол, Риз Ахмед, Ребекка Рут, Эллисон Толман, Рутгер Хауэр, Кэрол Кейн, Патрис Коссоно, Зак ЭбботтПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D84AD9714C0684B32D6B8872F04D8D2335C1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214381   (764824) от 21.03.2018
-
-Убить Гюнтера / Killing Gunther (2017) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764824.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света — хакера, взрывника, (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив БачичПеревод: Многоголосый закадровый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1659CD1C517087A544DEA0082A43C47530991D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1098794   (908728) от 30.01.2017
+
+Enterprise - Enterprise (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor (4:10)
+02. Que Sera, Sera (3:19)
+03. In The Year 2525 (2:30)
+04. Cuando, Cuando, Cuando (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ADB54D5153ECBB482DCC0F948BC1613ED10C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369211   (903531) от 23.03.2020
+
+VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Burn This City (Flashback Ri-Mix) (6:22)
+02. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
+03. Carino Cat feat. Fred Ventura - The Carino Crew (4:57)
+04. Romantic Gladiators - Hero (Warrior Version) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Nu-DiscoПродолжительность: 02:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136E4008BEC31CE340F0FA9C49D547225DADEE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100729   (899370) от 04.02.2017
 
 VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disco>
@@ -681,64 +739,6 @@ The Disco Tramps - Disco 12 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Jazz, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AEEA06171483DF705CA58F0718A4A1B98B7855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375267   (867195) от 13.04.2020
-
-Yan Tregger - Catchy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On (3:28)
-02. Catchy (4:13)
-03. Gimmicky (3:08)
-04. Sunny Wing (3:08)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781708687E29F01498F94C2B58860F305482A8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375313   (867186) от 13.04.2020
-
-Guy De Lo And His Orchestra - The Pink Panther Discostar (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pink Panther (From Philadelphia) (4:08)
-02. Give Me Some Mo! (6:46)
-03. Simone (4:22)
-04. The Pink Panther (Discostar) (3:00)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421365476D77162DF64A22B65D04430E223DC388
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 588126   (218437) от 12.12.2012
+
+Abstract HD Wallpapers (10.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBBC880A01413D2C1A9D5BD7588330067284CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966638   (218436) от 18.12.2015
 
 Обои - Wallpapers with Tropical Islands [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0037E63243E4B2E4112BE1ECE28FA7492FDFE33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270911   (154303) от 21.12.2018
-
-Обои - Wallpapers - Nature Winter 03 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему ЗимаФормат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C8D35D3B2EBCB46B3B23279EB87918737B8AA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

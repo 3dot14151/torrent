@@ -1,3 +1,119 @@
+###  Публикация: 1417263   (360579) от 19.10.2020
+
+Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scuta Scalamanta & Nicholas Croft - Ocean Wave (3:11)
+02. Scuta Scalamanta, Damon Baxter & Peter Diggens - Droid Hunter (3:17)
+03. Scuta Scalamanta, Damon Baxter & Peter Diggens - Yakuza (2:40)
+04. Scuta Scalamanta - Power Kid (3:08)(   Читать дальше...   )Жанр: Synthwave, ElectroПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255898   (359025) от 20.10.2018
+
+Electric Youth - Innerworld (2014) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Before Life (2:09)
+ 02/12. Runaway (3:40)
+ 03/12. WeAreTheYouth (3:12)
+ 04/12. Innocence (3:52)(   Читать дальше...   )Жанр: Synthpop, New Wave, ElectropopПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7996CBE3F78FB243FCF534E00B8C618787B993D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417695   (355754) от 21.10.2020
+
+Scarlet Fantastic - Beyond Pluto (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Europop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Pluto (4:17)
+02. Du Quesne (4:53)
+03. Lucky 7 (3:24)
+04. Beyond Pluto (Hifi Sean Remix) (5:48)(   Читать дальше...   )Жанр: Europop, SynthpopПродолжительность: 00:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921095455386C9D2D012E044789042F0F667BE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952389   (355568) от 01.11.2015
+
+Hurts - Surrender (2015) [FLAC|tracks+.cue]<Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrender
+02. Some Kind of Heaven
+03. Why
+04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F361853CE6E1B156187726735E0D86FB880A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952225   (355567) от 01.11.2015
 
 Depeche Mode - Remixes for the Masses EP. by Techni-ka (2014) [FLAC|tracks|WEB-DL]<Synthpop>
@@ -629,122 +745,6 @@ Jeremiah Kane - Ronin (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industria
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F4E934CBF4646E1491A8AA99ADAB1321C3B36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581275   (327216) от 05.10.2022
-
-Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edelo (Intro) [00:01:41]
-02. Disco on The Baltic Sea [00:03:17]
-03. Changed Plans [00:02:38]
-04. Brutal Resonance [00:03:42](   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D81AA87551C9A64D5B49798762D490F137C936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582030   (323481) от 09.10.2022
-
-Occams Laser - Occult 91 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prometheus (00:03:20)
-02 - Charred (00:04:06)
-03 - Kindling (00:04:09)
-04 - Scintillation (00:02:18)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA25A0FCC908CB5C232812573CB0BAA9B9D100C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259189   (323386) от 02.11.2018
-
-Tesla Boy - Remedy (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes
- 02. Compromise
- 03. Different
- 04. Glow(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C07DF50CA430884DD6AE857581DEDFFFB65ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075147   (323155) от 21.11.2016
-
-The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLAC|Lossless|image + .cue] <Synthpop, New-Wave, Art-Pop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life On Your Own [4:13]
-02. Human (Extended Version) [5:06]
-03. I Need Your Loving (DJ Edit) [2:54]
-04. Love Is All That Matters (Edit) [2:59](   Читать дальше...   )Жанр: Synthpop, New-Wave, Art-Pop, ElectronicПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9818682C6A6FA8A055B3138E22080AF4A11734AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

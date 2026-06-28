@@ -1,3 +1,174 @@
+###  Публикация: 1519415   (147344) от 25.12.2021
+
+VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beije - Searching (7:36)
+02. Distic - Totem Bird (6:59)
+03. Jelly For The Babies, Mariner + Domingo - Two of Us (7:25)
+04. Discognition - Montezuma (7:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BABFC80809C12A918E4D2A325DCB2A21C168B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519402   (147334) от 25.12.2021
+
+VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burns - Talamanca (3:07)
+02. Obskür - Bayside (Radio Edit) (3:17)
+03. John Summit, Echoes - Human (3:39)
+04. Diplo, SIDEPIECE - On My Mind (3:09)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288F6DF8083B9703415A659E66A73078F4E7105B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519414   (147322) от 25.12.2021
+
+VA - Selador Selected Works 2021 (2021) [AAC|~325 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiz Pattison, Micah Paul Lukasewich, Robert Babicz - Beam Of Light (Robert Babicz Ambient Version) (5:35)
+02. Anthony Pappa, Jamie Stevens, Framewerk - Here We Go (Framewerk Remix) (9:12)
+03. Robert Babicz - Galactic Traveller (Original Mix) (5:16)
+04. Dave Seaman, Charles Webster - Racket Abuse (Charles Webster Remix) (6:24)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 04:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207D413B668CD541A6F7672AF9A1E3A368DA810F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087090   (147321) от 26.12.2016
+
+28 панфиловцев  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенью 1941-го года немецкие части, стоявшие возле Волоколамска, отделяло от Москвы каких-нибудь два часа по шоссе. Однако, на этом шоссе стояла 316-я стрелковая дивизия под командованием генерала И. В. Панфилова. Этот военачальник обладал настолько высоким авторитетом среди личного состава, что бойцы дивизии сами называли себя панфиловцами. А дивизию — панфиловской.Производство: РоссияЖанр: Военный, драмаРежиссер: Ким Дружинин, Андрей ШальопаАктеры: Александр Устюгов, Яков Кучеревский, Азамат Нигманов, Олег Фёдоров, Алексей Морозов, Антон Кузнецов, Алексей Лонгин, Максим Белбородов, Дмитрий Мурашев, Виталий КоваленкоПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04B1B7D137D9071000CF1AD00DDB72B0DCC42A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519409   (147312) от 25.12.2021
+
+VA - Best Of 2021: The Selection Safe Music (2021) [AAC|~313 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deepshakerz - Jambala (Tribe Mix) (5:46)
+02. James Meid - Like Never (5:09)
+03. Rone White, Rowen Clark - Forever Young (The Deepshakerz Rework) (5:04)
+04. Richard Ulh - Wooky (6:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455F4547CD68268DF4BB6C8987EBC65D40C4190F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519401   (147294) от 25.12.2021
+
+VA - Sweet Morning (Chill out and Lounge Collection), Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Silk and Smooth (Original Mix) (4:00)
+02. Corrado Saija - Closing Eyes (Vanelitne) (3:24)
+03. Pier-O - Dawn (Original Mix) (5:12)
+04. Circles Of Sound - Open Spaces (Original Mix) (6:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A9BF035E7CE2FB3CA0E66C98C3BEAD77A9A2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347228   (147173) от 25.12.2019
 
 Эдмонд Гамильтон | Звёздный волк (2019) [M4B|AAC]
@@ -532,177 +703,6 @@ VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62D5379FF1EC635CB84CC5F9AA478494D046528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519773   (145877) от 26.12.2021
-
-VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Funky House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin McKay, Wayne Hernandez - Hit The Road Jack (2:36)
-02. Westend - Get This Party Started (2:40)
-03. Roog - Move On Up (3:38)
-04. Dillon Nathaniel, Kevin McKay - Jump Around (2:29)(   Читать дальше...   )Жанр: House, Deep House, Tech House, Funky HouseПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086886   (145866) от 27.12.2016
-
-Тролли / Trolls (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь в увлекательное приключение, которое заведет ее далеко от привычного ей мира, Розочка объединяет усилия с самым мрачным троллем на свете по имени Цветан для достижения успеха в своей смелой миссии спасти ее друзей из тисков зловещих бергенов и их лидера, короля Хрящ Старший. Невероятные приключения Розочки проверят ее силу, покажут ее истинную суть и (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Майк МитчеллАктеры: Анна Кендрик, Джастин Тимберлэйк, Зои Дешанель, Кристофер Минц-Плассе, Кристин Барански, Расселл Брэнд, Гвен Стефани, Джон Клиз, Джеймс Корден, Джеффри ТэмборПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFF8F76F99F883495ED641BAEE6F3BEF3B6052F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519955   (145864) от 26.12.2021
-
-VA - Sofa King Sick, Chapter 1 (2019) [AAC|~321 Kbps] <Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M-Zine - Reverie (Original Mix) (4:58)
-02. Submarine, Scepticz - Shingoki (Original Mix) (7:04)
-03. DLR, Black Barrel, Hydro - Things Change (Original Mix) (5:44)
-04. Ill Truth - Catch A Break (Original Mix) (5:05)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A1BE4FB95731A1EF5E3DDF444EADB260F11357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519656   (145857) от 26.12.2021
-
-VA - Deep Reflections, Session 1 (Deep House Vibes) (2021) [AAC|~316 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nenad J. - Sunset Flight (Original Mix) (7:48)
-02. Soulfreqtion - 67 Rising (Original Mix) (7:55)
-03. Deep Spelle - My Heart (Ilias Katelanos Remix) (7:22)
-04. Stefano DG - Touch Me (Original Mix) (5:17)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099FE9865F64E5A7087C21E8A5CEBA166DEF9F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519766   (145849) от 26.12.2021
-
-VA - Bercana Ritual (2020) [AAC|~338 Kbps] <Organic House, Deep House, Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiss-i Elektro - Soul of Istanbul (5:38)
-02. Alkiviades - Hermes (5:49)
-03. Akuba - Gaia (7:47)
-04. Kurup - Maré Alta (7:37)(   Читать дальше...   )Жанр: House, Organic House, Afro House, Deep House, Melodic House & TechnoПродолжительность: 02:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D798B6E27FCB31378A0FFAFB761E2E8E4F43DAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519967   (145844) от 26.12.2021
-
-VA - Dream Into 2022 (2021) [AAC|~312 Kbps] <Deep House, Organic House, Progressive House, Indie Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiorella (fr) - Sanctuary (6:20)
-02. Blanka Barbara - Poem for Osiris (5:43)
-03. Kiantek - Kepler (Ben Eidani Remix) (6:16)
-04. Alnath - Expecto (5:25)(   Читать дальше...   )Жанр: House, Deep House, Organic House, Progressive House, Indie DanceПродолжительность: 04:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E284712C8A8C06D47DE9EAEA3AF6CABDDF3C9F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

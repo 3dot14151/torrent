@@ -1,3 +1,119 @@
+###  Публикация: 1250297   (426886) от 27.09.2018
+
+VA - Золотая коллекция - Песни Нашего Кино (1998) 2CD [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Берегись автомобиля' - Вальс (3:41)
+02. 'Карнавальная ночь' - Песенка о хорошем настроении (2:45)
+03. 'Карнавальная ночь' - Песенка про пять минут (3:47)
+04. 'Бриллиантовая рука' - Остров невезения (2:12)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DDA2250D4BD1F9C5D8514D7BFAF3D1AF98B4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250140   (426764) от 27.09.2018
+
+Tariverdiev (Микаэл Таривердиев) - Film Music (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys and the Sea - part one / Мальчики и море (часть 1) - 01:35
+02. Boys and the Sea - part two / Мальчики и море (часть 2) - 02:03
+03. Dance at the Stadium / Танец на стадионе - 02:59
+04. Waltz (From 'The Long day') / Вальс (из к/ф "Длинный день") - 03:28(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799F2B9DD1D67ABECBF260A1BE9203B4C3590B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064325   (426080) от 20.10.2016
+
+VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gears of War (04:31)
+02. 14 Years After E-Day (02:55)
+03. Jacinto Prison (02:50)
+04. Attack of the Drones (02:08)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 05:28:09 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570286   (425414) от 25.08.2022
+
+Russ Davies - The Watch Soundtrack (2022) [FLAC|Lossless|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodboys Anthem (The Watch Theme Tune)
+02. The Noble Dragon
+03. Zero
+04. Vimes’ Theme(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1393096F40C449152AE6060AE23D2A43FDDE729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946683   (425156) от 14.10.2015
 
 Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
@@ -647,122 +763,6 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84E24A4D5AE5CEC33B60C97626B3451F5D019999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065426   (418584) от 23.10.2016
-
-Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motion Picture Soundtrack) 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Sorcerer's Secret (02:38)
-02. The Hands Dealt (02:57)
-03. A Long Strange Trip (02:29)
-04. The Eyes Have It (00:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA85F395227F64A1CE16591D078F66F0171343BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947670   (417967) от 17.10.2015
-
-Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering
-02. New Morning
-03. My Secret
-04. Over the Fields(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C508E49CF2331B7668B3D9382775A7132EAE785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947456   (417867) от 17.10.2015
-
-Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+.cue]<Rock, Blues Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Recruit [01:32]
-02. Tracks And Lines [03:01]
-03. Realization [02:41]
-04. Kristen And Jim [03:40](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A847B5198B971615E705045411051B472D50F3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947575   (417815) от 17.10.2015
-
-VA - Autumn Piano Bar Music Emotional Piano Bar Music Collection Liquid and Sensual Music Relaxing Piano Songs for Dinner Party (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Piano Music Oasis - Autumn Piano Bar
-02. Piano Lounge Festival - Piano Lounge Ambient
-03. Piano Bar Music Oasis - Sentimental Journey
-04. Brunch Piano Music Zone - Restaurant Music(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A938A342182109ECB7FD900D687EC679155BA445
 ```
 
 https://mybot314.ru/tekegram_catalog/

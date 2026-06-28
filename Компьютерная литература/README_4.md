@@ -1,3 +1,221 @@
+###  Публикация: 1859051   (1060903) от 14.03.2026
+
+Н.В. Русин | Освоение STM32 самостоятельно #1. 3-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта первая книга из серии «Освоение STM32 самостоятельно». Она адресована прежде всего тем, кто начинает знакомиться с микроконтроллерами (далее сокращенно МК) серии STM32, заинтересованными в том, чтобы научиться программировать эти МК как можно быстрее и эффективнее. Но, безусловно, книга будет полезна и тем кто уже имеет некоторый опыт в работе с МК и хочет быть (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64932BA7E4C1332C3A651284464754673107653C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859061   (1060899) от 14.03.2026
+
+Usman Abdur Rehman | Web Forms with React. Build Robust and Scalable Forms with React Hook Form. First Edition (2025) [PDF, EPUB, RTF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Set up web forms from scratch using the most popular React form library in use today, React Hook Form. This book is a succinct and practical guide to building robust, scalable and reusable forms. From social media and YouTube video posts, to product listings on e-commerce sites, most information on the web is entered through forms. In this book, you’ll learn how (   Читать дальше...   )Жанр: Database Storage & Design, Artificial Intelligence, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA737C8D1FEC315291B7E0719BFE6D1F3497DB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858939   (1060761) от 13.03.2026
+
+Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Python book, learn programming the fun way (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn Python coding concepts the fun way through humour, storytelling, and beginner-friendly examples that make your first step into the world of Python programming enjoyable.
+
+Key Features:
+Follow an adorable, illustrated teaching cat with sharp coding instincts as your guide.(   Читать дальше...   )Жанр: Object-Oriented Design, Introductory & Beginning Programming, Python ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD82BF4C118D2256F8DA6CF0CEB0B98C90D9655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858936   (1060760) от 13.03.2026
+
+Valentine G. Nachi, Donald A. Tevault | Linux Shell Scripting for Hackers. Automate and scale your hacking process with bash scripting (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take your ethical hacking skills to the next level by mastering bash script and building your own hacking tools.
+
+Key Features:
+Automate reconnaissance, exploitation, and post-exploitation workflows using bash scripting for ethical hacking.(   Читать дальше...   )Жанр: Privacy & Online Safety, Computer Network Security, Internet & TelecommunicationsЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD9240823559EA22366F1C7FE6B890DD409E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858935   (1060759) от 13.03.2026
+
+Rich Yonts | 100 C++ Mistakes and How to Avoid Them (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how to handle errors, inefficiencies, and outdated paradigms by exploring the most common mistakes you’ll find in production C++ code.
+100 C++ Mistakes and How To Avoid Them reveals the problems you’ll inevitably encounter as you write new C++ code and diagnose legacy applications, along with practical techniques you need to resolve them.
+Inside 100 C++ Mistakes (   Читать дальше...   )Жанр: C++ Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143FDE80BF1B136DE0FC3247B4B7F505B429D95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858932   (1060758) от 13.03.2026
+
+Tobias Scheible | Hacking Hardware. The Practical Guide to Hands-On Hardware Pentesting, Red Team Tools, and Prevention for USB, Wi-Fi, Bluetooth, RFID. New Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Defend your system against hardware-based security breaches by thinking like a hacker! With this guide, master the tools you need to develop preventative IT security tests and measures. Learn how to perform penetration tests step by step, and then evaluate and correct vulnerabilities. Get up to speed on awareness training methods and hacking tools for protecting (   Читать дальше...   )Жанр: Computer Hacking, Computer Hardware & DIY, Computer ScienceЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF50A6D6E8583AEE69F9059722613EA40958EADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858930   (1060757) от 13.03.2026
+
+И.М. Гостев | Операционные системы. Учебник и практикум для вузов. 2-е издание (2024) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060757.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время компьютерные науки стремительно развиваются. Новые версии операционных систем появляются каждые полтора-два года, поэтому было принято решение о включении в данный курс такого материала, который не будет устаревать. Содержание курса представляет собой некоторые наиболее общие принципы построения операционных систем, которые были разработаны более (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮрайтФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DBBA21A9049FD3517A954CEFE3F94B006643B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858926   (1060755) от 13.03.2026
+
+Dan Gookin | PCs & Laptops For Dummies (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060755.jpg" />
+</div>
+
+
+###  Подробнее
+
+A one-stop guide to making the most of your desktop PC or laptop computer
+
+PCs and Laptops For Dummies is the essential user's guide to the features your PC or laptop has to offer―and how to use them successfully. With this book as your coach, you can jump over technological hurdles with ease, navigating the hardware and software of your personal computer. (   Читать дальше...   )Жанр: PC Hardware, Microsoft OS Guides, Computer Operating SystemsЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411E5BCF5B5C167673F41F984FDB11231E3DB8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858923   (1060754) от 13.03.2026
 
 А.И. Турабова | Геймдизайн на практике. Как начать зарабатывать (2024) [PDF, FB2]
@@ -470,230 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:308780AA0A50544E00A8AA7A5A38638BEC804A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856333   (1059090) от 28.02.2026
-
-Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том серии «Программирование: введение в профессию» включает две основные части.
-
-В первую часть книги вошли избранные сведения из истории вычислительной техники, обсуждение некоторых областей математики, непосредственно используемых программистами (таких как алгебра логики, комбинаторика, позиционные системы счисления), математических основ программирования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МАКС ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FEDDA9D56C479C9681607C1A4CF08EA9ED181A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856324   (1058953) от 27.02.2026
-
-Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058953.jpg" />
-</div>
-
-
-###  Подробнее
-
-AI-powered applications are rapidly becoming the new normal. Personal productivity assistants, coding agents, smarter search, and automated reporting tools are popping up everywhere. The LangChain ecosystem, and standards like MCP are driving this new gold rush. This book helps you claim your spot.
-
-This is your hands-on guide to creating real, production-ready language (   Читать дальше...   )Жанр: Artificial Intelligence, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FACBF5B8E728A6E81A307E40048636B6DB6847C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856302   (1058946) от 27.02.2026
-
-Tilman M. Davies | The Book of R. A First Course in Programming and Statistics. 2nd Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058946.jpg" />
-</div>
-
-
-###  Подробнее
-
-This long-awaited second edition folds years of updates into its beginner-friendly lessons on using R for data and statistical analysis.
-
-The Book of R is a comprehensive, beginner-friendly guide to R, the world’s most popular programming language for statistical analysis. Even if you have no programming experience and little more than a grounding in the basics of (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Probability & Statistics, Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C0084613BEC0D53A96A394E1FB99AD4874A579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856341   (1058939) от 27.02.2026
-
-Mabrouk Mahdhi | Mastering ASP.NET Core 10. Web Applications Made Easy with the Biggest Update Yet. First Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058939.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASP.NET Core 10 is finally here. Dive into the most encompassing update to Microsoft’s framework for developing web apps using the all-new .NET 10 framework. This book continues the legacy of the classic, bestselling ASP.NET Core manual but with 100% new material. Create modern, high-performance web apps with ease.
-
-In this completely new manual, gain a deeper understanding (   Читать дальше...   )Жанр: Microsoft .NET, Web Development & Design Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4D35B14D394D5E7B44A958260C29E5851E8B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856211   (1058656) от 27.02.2026
-
-Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Excel 2019 Levels 1&2 (2020) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058656.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Benchmark Series is designed for students to develop a mastery skill level in Microsoft Word, Excel, Access, and PowerPoint. Its graduated, three-level instructional approach moves students to analyse, synthesise, and evaluate information. Multi-part, projects-based exercises build skill mastery with activities that require independent problem solving, which (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Office Guides, Software Suite BooksЯзык: АнглийскийИздательство: Paradigm Education SolutionsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD9C25D42392F67A870614634DB2686683BA19A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856212   (1058655) от 27.02.2026
-
-Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master Microsoft Excel's many capabilities (English Edition) (2023) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Improve your daily work efficiency and productivity using Microsoft Excel
-Key Features
-Get familiar with some of the most useful basic and advanced features in Excel.
-Discover important Excel functions that can quickly and easily perform calculations and analysis.(   Читать дальше...   )Жанр: Microsoft Excel Guides, Computer ScienceЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF2F6A3B44437ABF28B27E9A6FEDBA9DBE2078F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856213   (1058654) от 27.02.2026
-
-Ritu Arora | Mastering Advanced Excel - With ChatGPT Integration. Learn Formulas and Functions, Advance Pivot Tables, Macros, VBA Coding, ChatGPT Integration with exercises (English Edition) (2023) ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash the power of Excel for advanced data analysis, automation, and productivity
-Key Features:
-Build a solid foundation in Excel by learning the basics, including the creation and formatting cells, sheets, and workbooks.
-Explore advanced Excel techniques, including formulas, data analysis, and VBA macros.(   Читать дальше...   )Жанр: Microsoft VBA, Microsoft C & C++ Windows Programming, Microsoft Certification GuidesЯзык: АнглийскийИздательство: BPB PublicationsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC333B6CD659A6B91DEC9881D69D397AB31F79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856214   (1058653) от 27.02.2026
-
-Robinson Cortez | Microsoft Office 365 Bible 2024. Harness the Full Power of Office 365 for Seamless Workflows, Enhanced Collaboration, and Unparalleled Success (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ready to ascend to the pinnacle of productivity with Microsoft Office 365? Look no further than "Office 365 Bible" – your gateway to becoming a virtuoso of Word, Excel, Outlook, PowerPoint, Publisher, Access, OneNote, and OneDrive.
-Inside, You'll Discover:
-Word Wizardry: Forge flawless documents with advanced formatting, collaborative prowess, and savvy (   Читать дальше...   )Жанр: Компьютерная литература, Microsoft OfficeЯзык: АнглийскийИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844518D162CC5718CEA43D23A9124CA341DACACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

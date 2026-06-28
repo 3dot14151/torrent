@@ -1,3 +1,90 @@
+###  Публикация: 1349731   (1003775) от 04.01.2020
+
+Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sementes de Esperanca (4:48)
+02. Vaga Lume (4:48)
+03. Brisa de Lavanda (4:04)
+04. Domingo no Parque (4:27)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491770F7605D5ECA58790D427F220DE421A8777E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350628   (1002467) от 09.01.2020
+
+Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jago jharna jago (3:34)
+02. Param pitare (5:41)
+03. Aum dhatre namaha (5:11)
+04. Mау i have a god-beauty (4:51)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351984   (1001645) от 12.01.2020
+
+Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets of Cobblestone
+02. Luminosity
+03. Dancing Light
+04. Fancy Free(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710427   (1000966) от 14.01.2020
 
 Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
@@ -655,93 +742,6 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357704   (970632) от 06.02.2020
-
-Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of His Eyes the Peace V (7:05)
-02. After of Your Life (6:34)
-03. Mea Maxima Culpa (6:25)
-04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745413   (968177) от 14.01.2014
-
-David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:07)
-02. Along the Shore (6:37)
-03. Swirling Pools (6:16)
-04. Beachcomber (5:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745789   (967218) от 15.01.2014
-
-VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilary Stagg - Inspirations (6:32)
-02. Paul Machlis - Nightblossom (3:43)
-03. Gary Malkin - The First Night (2:37)
-04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

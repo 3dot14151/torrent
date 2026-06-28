@@ -1,3 +1,86 @@
+###  Публикация: 1252945   (388031) от 07.10.2018
+
+A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Klangendum (46:21)Жанр: Ambient, Techno Ambient, TechnoПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFED7EBADF082E63A0C23604FAA258F8F3DC2F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414216   (387878) от 07.10.2020
+
+Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fragment I 18:12
+2. Fragment II 40:06
+3. Fragment III 05:38Жанр: Ambient, Drone, MinimalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7316D946771F1693DF40AA554F3125B3D049E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414241   (387876) от 07.10.2020
+
+Mathieu Karsenti - Downstream Blue (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pales 06:24
+2. Loosen 05:36
+3. Further 05:12
+4. Only Light 04:42Жанр: Ambient, Electrocoustic, MinimalПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35879B58D8CAD3CAF473C2D8D20EEB5C59F7AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414242   (387743) от 07.10.2020
 
 Federico Mosconi - Il Tempo Della Nostra Estate (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electroacoustic, Minimal>
@@ -655,91 +738,6 @@ Above & Beyond - Flow State (2019) [FLAC|Lossless|tracks + .cue] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809ACB37C9146DB47B7E4FFF21A3A32214BD44F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302520   (361208) от 01.10.2019
-
-Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Midtempo, Goa Trance>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Celephaïs (06:55)
-2. Hypnos (08:46)
-3. Polaris (09:09)
-4. Dreamlands (11:27)(   Читать дальше...   )Жанр: Psybient, Midtempo, Goa TranceПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328873   (359062) от 02.10.2019
-
-地球 - ジャングル (2019) Hiraeth Records (Remaster) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Vaporwave>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ジャングル Part 1 (15:41)
-02. ジャングル Part 2 (16:35)Жанр: Ambient, VaporwaveПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81E7CF43234F3B3EBDB30E02A77C9564A3E2E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417656   (355730) от 21.10.2020
-
-Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Leftfield, Avant-garde Jazz, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts (06:30)
- 02. The Field of Repentance (07:54)
- 03. Death and Civilisation (06:51)
- 04. Due Poli (07:01)(   Читать дальше...   )Жанр: Experimental, Leftfield, Avant-garde Jazz, AmbientПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0F30690BA21120734314DFAE69F264F56B50DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

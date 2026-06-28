@@ -1,3 +1,119 @@
+###  Публикация: 1148287   (604260) от 05.07.2017
+
+VA - ZYX Italo Disco New Generation vol.8 (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven42 Feat. Mirko Hirsch - Strong To Fight (Extended Version) (00:06:17)
+02. Lenroy - You Are The Girl (Extended Edit) (00:07:10)
+03. Magic System DJ - Angels (Extended Version) (00:06:30)
+04. Cristina Manzano - Only Dreams (Extended Edit) (00:07:02)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E6BACF86C65AC091F7A85CC9FE4DE526499568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231552   (603198) от 21.06.2018
+
+Italoconnection - Metropoli (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon (5:00)
+02. Humanize (3:55)
+03. Sleeping (4:39)
+04. King of the Night (3:39)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467FE3BC3DD30DFA5BD04C1AABDE0C33CD8A447C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231943   (603175) от 21.06.2018
+
+Donna Summer - Love to Love You Donna (2013) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love To Love You Baby (Giorgio Moroder Feat. Chris Cox Remix) (4:21)
+ 02. Dim All The Lights (Duke Dumont Remix) (6:01)
+ 03. Hot Stuff (Frankie Knuckles And Eric Kupper As Director's Cut Signature Mix) (6:00)
+ 04. I Feel Love (Afrojack Remix) (6:00)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2D3EB6C301A8AF9E7682B90771E5C91E1D4777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548074   (599882) от 02.05.2022
+
+Modern Talking - Les Essentiels (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco,Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother Louie
+02. You're My Heart You're My Soul
+03. Cheri Cheri Lady
+04. You Can Win If You Want(   Читать дальше...   )Жанр: Euro-Disco,EuropopПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636F0CA4E86D35595C14D94451ECB035AEF60385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 805912   (598760) от 19.07.2014
 
 Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-Pop>
@@ -666,139 +782,6 @@ K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA502B0D44C9C79436174333E9FDAFDAEEA09D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809496   (587448) от 01.08.2014
-
-T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Cover Lover (Extended Version) 6:13
-02. Count On Me (Extended Version) 6:31
-03. How Old Are You (Mixed By Luis Rodriguez) 6:36
-04. Move It 4:34
-05. Carry Me (Maxi Version) 5:05
-06. H.A.P.P.Y. Radio (Extended Version) 6:20
-07. Count On Me (Instrumental Dub Version) 5:09
-08. Under Cover Lover (Instrumental) 5:35
-09. Count On Me (Single Version) 3:57
-10. Under Cover Lover (Radio Version) 3:41(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE9F36E642B4B4E6A6143092726DB75EE039295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040302   (587412) от 04.08.2016
-
-Chic - Dance, Dance, Dance: The Best Of Chic (1991) [FLAC|Lossless|image + .cue] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dance, Dance, Dance (Yowsah, Yowsah, Yowsah) (8:22)
-2. Everybody Dance (12" remix) (8:27)
-3. Strike Up the Band (4:33)
-4. Chic Cheer (4:42)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5921679C946E9ECBD8023355F318D73D1CAAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809566   (586472) от 02.08.2014
-
-VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
-02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
-03. New Baccara - Call Me Up (Maxi Version) (5:04)
-04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
-05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
-06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
-07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
-08. Lian Ross - It's Up To You (Maxi Version) (5:38)
-09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BA06A0C10FA15DED02AC845393F9672FB6A95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809556   (586424) от 02.08.2014
-
-Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do The Rap 3:35
-02. Cartooney Tunes (Incl.Happy Birthday) 4:24
-03. La Bamba 4:14
-04. I'm Rock And Rollrpecker 2:28
-05. Communication Outer Space 3:09
-06. Woodpeckers From Space 5:57
-07. Give Me That Banana 4:07
-08. Do You Like Surfing ? 3:21
-09. Sky Rider 3:13
-(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

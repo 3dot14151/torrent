@@ -1,3 +1,32 @@
+###  Публикация: 910876   (613820) от 24.06.2015
+
+VA - Русский Рэп Избранное (1998-2015) [MP3|96-320 кб/с]<Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01) Тони Бодрый, Jason, Hammy - Из подземелья.
+02) PRO-SPEKT - Нравы.
+03) Третий Путь - Лица.
+04) Da B.O.M.B. - 2 Мира.(   Читать дальше...   )Жанр: RapПродолжительность: 05:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1867D0B01CF741CE8417B4E2F018FDAB86220A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038046   (609908) от 26.07.2016
 
 VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) (2016) [MP3|320 Kbps] <R&B>
@@ -717,35 +746,6 @@ VA - International Riddim: Summer dancehall (2019) [MP3|320 Kbps] <Dancehall, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3A0BB556EBA42E57889F3601FF08814418C141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319457   (482709) от 12.08.2019
-
-VA - Rap Victorious (2019) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482709.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Future - Afterlife
-002. Emune - By Da Note
-003. Rich The Kid - World Is Yours
-004. Mike Stud - Saved From The City(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 10:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95726F9020F8EE98DD92C2F601426A6EF90DE7AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

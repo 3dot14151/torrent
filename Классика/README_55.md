@@ -1,3 +1,32 @@
+###  Публикация: 1776243   (28270) от 08.02.2025
+
+Bach 333: The New Complete Edition (222CD) (2018) [FLAC|Lossless|tracks + .cue] <classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sacred Cantatas (CDs 1-48)
+Sacred & Secular Vocal (CDs 49-105)
+Organ Works (CDs 106-125)
+Keyboard Works (CDs 126-146)Жанр: Classical, baroqueПродолжительность: 282:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9525E0595670DA2DC5CC4057E7C7E08EDEC493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780177   (26999) от 20.02.2025
 
 Johann Sebastian Bach - Die kompletten Werke von (Edition Bachakademie) (2011) 172 CDs [FLAC|Lossless|tracks + .cue] <Classical>

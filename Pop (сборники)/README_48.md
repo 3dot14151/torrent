@@ -1,3 +1,119 @@
+###  Публикация: 1027651   (696416) от 19.06.2016
+
+Аида Николайчук - Мы под одним небом (2013) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мы под одним небом (03:09)
+02 - Не обещай (04:26)
+03 - Люди - миражи (03:16)
+04 - На твоей планете (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B34A85EFD19ED9B1A9F4D530D76CB01E6AC04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027550   (696287) от 19.06.2016
+
+VA - Музыкальная энергия страсти. Популярный сборник (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста feat. Алёна Омаргалиева - Я Поднимаюсь Над Землей
+02. Алексей Завьялов feat. Анна Колесник - Счастье Мое
+03. Олег Голубев - Ты Мой Рай
+04. Митя Фомин - Следуй За Солнцем(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EAF57E9AAF43F1256843D621170BE9F7EFC730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027540   (696203) от 19.06.2016
+
+VA - 80s Super Pop 100 hits (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me 03:49
+02. Bucks Fizz - The Land Of Make Believe 03:47
+03. Men At Work - Down Under 03:43
+04. Aztec Camera - Somewhere In My Heart 03:59(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06B65991FB34297A15B97577335FD7B7A074782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288335   (695661) от 11.03.2019
+
+VA - Pop Slam Radio: Spring Edition (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kygo, Imagine Dragons - Born To Be Yours
+002. The Prince Karma - Later Bitches
+003. Vegedream - Ramenez La Coupe À La Maison
+004. Angèle, Romeo Elvis - Tout Oublier(   Читать дальше...   )Жанр: PopПродолжительность: 08:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786463C6CE138C587540B645208CAB33233A3F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133259   (695191) от 12.05.2017
 
 VA - Музыкальный адреналин на Русском радио (2017) [MP3|256 Kbps] <Pop>
@@ -620,122 +736,6 @@ VA - Весна Танцевальная (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69773E143C0952BC9A06776F5B02065F1E23F4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134218   (690883) от 14.05.2017
-
-VA - Back In Disco (2017) [MP3|320 Kbps] <Electronic, Disco>
-
->>След.
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gilla - Zieh Mich Aus (4:18)
-02. 'M' - Pop Muzik (4:54)
-03. Adolf Stern - More...I Like It (4:48)
-04. Amii Stewart - Jealousy (6:42)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03166784990FD38BE9F519F41E8AFB5539FF332B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288949   (689804) от 14.03.2019
-
-VA - Shazam Хит-парад Russia Top 100 Март (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_689804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zivert - Life
-002. Artik & Asti Feat. Артем Качер - Грустный Дэнс
-003. Ilkay Sencan - Do It
-004. Ariana Grande - 7 Rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B3677FC572AB9388EC0426372306A3210B3AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221893   (689310) от 27.04.2018
-
-VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A' La Carte - Price Of Love (3:58)
-02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
-03. Afric Simone - Todo Pasara Maria (3:16)
-04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221957   (689178) от 27.04.2018
-
-VA - American Pop Rock Music (2018) [MP3|256 Kbps] <Pop-Rock, Folk, Step Country>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689178.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой подборке главное не музыкальный стиль, а именно то самое неповторимое настроение, которое невозможно больше никогда почувствовать, кроме как весной, самым ярким и торжественным временем года, которого ждут все без исключения001. The Native Howl - Thunderhead
-002. The Whiskey Charmers - Straight and Narrow
-003. Carrie Rodriguez/Chip Taylor - Was That for Me
-004. Lucette - River Rising(   Читать дальше...   )Жанр: Pop-Rock, Folk, Step CountryПродолжительность: 06:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A05A6306026AC97EE4A5B3CC55AAD7DC43E121
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,233 @@
+###  Публикация: 597924   (998999) от 07.01.2013
+
+Дискотека 80-х / Авторадио (2013.01.01) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фестиваль "Дискотека 80-х" прошел в одиннадцатый раз под лозунгом "Rock&Dance" и преподнесет зрителям еще больше сюрпризов - суперзвездный состав артистов, новые имена, а главное - неординарное захватывающее шоу.
+Никогда ранее на фестивале "Авторадио" так широко не были представлены рок-музыканты. Каждое имя - эпоха, легенда, символ (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 04:33:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600340   (998896) от 08.01.2013
+
+Osibisa - Live At The Marquee 1983 (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт одной из первых африканских групп, добившихся мировой известности(об участии их перкуссионистов в записи LP Uriah Heep "Look at Yourself", в частности, известно немногим), в лондонском клубе Marquee 5 апреля 1983 года.
+Несмотря на свое лондонское происхождение группа "Osibisa" была основана чернокожими музыкантами – тремя африканцами и (   Читать дальше...   )01. Fire
+02. Life
+03. Ayioko
+04. Paper / Match(   Читать дальше...   )Жанр: Концерт, Progressive Rock, JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F3BA316232B6E55881088D210AE1DCF8E6272B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600409   (998826) от 08.01.2013
+
+VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Награждение группы Led Zeppelin за выдающийся вклад в мировую и американскую культуру. Зал Kennedy Center Honors 2012г. при церемонии были исполнены каверы лучших песен группы.01. Foo Fighters - Rock and Roll
+02. Kid Rock - Babe I'm Gonna Leave You, Ramble On
+03. Lenny Kravitz - Whole Lotta Love
+04. Heart (with Jason Bohnam) - Stairway to HeavenЖанр: Концерт, RockПродолжительность: 00:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0A7F725C1A30B0D6ACE2901B192DAA8F85C178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600406   (998798) от 08.01.2013
+
+Рождественские встречи Аллы Пугачевой  (2013.01.07) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Рождественские встречи" - ежегодный концерт-фестиваль, который с 1988 года в конце декабря проводит Алла Пугачева. С тех пор, проект считается одним из самых популярных у зрителей и одним из самых престижных для многих представителей отечественного шоу-бизнеса. В разные годы "Рождественские встречи" подарили нам многих звезд – Владимира Преснякова (   Читать дальше...   )Жанр: Тв-ШоуПродолжительность: ~ 02:22:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600306   (998790) от 08.01.2013
+
+Adele - Live At The Royal Albert Hall (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Adele в The Royal Albert Hall состоявшийся 22 сентября 2011 года...01. Hometown Glory
+02. I'll Be Waiting
+03. Don't You Remember
+04. Turning Tables
+05. Set Fire To The Rain
+06. If It Hadn't Been For Love
+07. My Same
+08. Take It All
+09. Rumour Has It
+10. Right As Rain(   Читать дальше...   )Жанр: R&B, Soul, Gospel, BluesПродолжительность: 01:41:43 + 00:08:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600262   (998768) от 08.01.2013
+
+Стинг. Рождественский концерт в Кафедральном соборе Дарема / Sting - A Winter's Night... Live From Durham Cathedral (2009) HDTV 1080i
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Даремском кафедральном соборе Христа и Святой Девы Марии.
+Стинг:
+"Мне очень приятно находиться в этом месте – в Кафедеральном соборе Дарема, и особенно приятно, что сегодня я выступаю на своей Родине. У меня редко появляется возможность посетить места, где я вырос, и сегодняшний концерт для меня – своеобразное возвращение домой. Символично, что это происходит зимой, потому что это самое загадочное время года. Время, когда мы ощущаем историческую связь с поколениями, жившими до нас; с семьями, из которых мы вышли; мы вспоминаем о наших корнях, обращаемся к зову сердца, который ведёт нас домой – к теплу домашнего очага, домой, где мы чувствуем себя в безопасности. И это чувство, питаемое нашей памятью, выросшее из детских впечатлений, неизменно ассоциируется именно с горящим камином, с детской колыбелью, с семьей, с церковными торжествами. Поэтому мне доставляет особую радость петь сегодня вечером в этом прекрасном Соборе в честь этого загадочного времени года, которое дарит нам снег, мороз и длинные (   Читать дальше...   )Жанр: Folk/ClassicalПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600169   (998759) от 08.01.2013
+
+Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Adele в The Royal Albert Hall состоявшийся 22 сентября 2011 года...01. Hometown Glory
+02. I'll Be Waiting
+03. Don't You Remember
+04. Turning Tables(   Читать дальше...   )Жанр: R&B, Soul, Gospel, BluesПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600635   (998559) от 09.01.2013
+
+Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600638   (998531) от 09.01.2013
 
 Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
@@ -501,234 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604401   (995990) от 18.01.2013
-
-Лучшие клипы / The best videos of all time (Rock) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ac Dc - Heatseeker
-02. Queen - We Are The Champions
-03. Ac Dc - T.N.T.
-04. Alice Cooper - Along Came A Spider(   Читать дальше...   )Жанр: Музыка, Rock, Glam rock, Hard rockПродолжительность: 02:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AAA22B4811144D8911AD5E22BC06E7F182F8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605384   (995809) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carrie Underwood - Cowboy Casanova
-02. Caitlin Rose -  Own Side
-03. Chad Brownlee - Carried Away
-04. Chris Cagle -  What A Beautiful Day(   Читать дальше...   )Жанр: Музыка, CountryПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334837832A4569BF43B28D1E8CAAB4232D137AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604785   (995794) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Blues) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvin Youngblood Hart - Illinois Blues
-02. B.B. King - Rock Me Baby
-03. Blues Brothers & Ray Charles - Shake a tailfeather
-04. Big Bad Blues -  Furthur(   Читать дальше...   )Жанр: Музыка, Blues, Blues-rockПродолжительность: 01:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B17F7A6C30583BD1AE734FC6E026A4B3A2ACE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605457   (995789) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Glamrock) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accept - Teutonic Terror
-02. Aerosmith - Crazy
-03. Alice Cooper - Bed of nails
-04. Antony Bellicourt - Glam Rock(   Читать дальше...   )Жанр: Музыка, GlamrockПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720963E7CE5D0B53030A6C78FCEBF540E7424B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605139   (995761) от 19.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал 2 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, RockРежиссер: Актеры: Zodiac, Gorky Park, Silent Circle, Bad Boys Blue, Вячеслав Бутусов, C.C.Catch, Chris Norman, Boney MПеревод: ОтсутствуетПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594FC61CD192717B0C3F0616FA894E32D6F0DD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605119   (995749) от 19.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал 1 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, RockРежиссер: Актеры: Zodiac, Gorky Park, Silent Circle, Bad Boys Blue, Вячеслав Бутусов, C.C.Catch, Chris Norman, Boney MПеревод: ОтсутствуетПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5C0AACF013F9CFD24BC4A381B31FD9C1135F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
 ```
 
 https://mybot314.ru/tekegram_catalog/

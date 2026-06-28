@@ -1,3 +1,117 @@
+###  Публикация: 1163307   (450102) от 05.09.2017
+
+Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chi mai (From "Maddalena")
+02. Il colore dei suoi occhi (From "La disubbidienza - La désobéissance")
+03. Sotto la pioggia (From "La califfa - The Lady Caliph / The Queen")
+04. Four Interludes (From "Cinema paradiso")(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B9B16F0EAC48D5BDB547F84B3294349D4DBD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392412   (450050) от 16.09.2018
+
+Канцлер Ги - 17 альбомов (2002-2017) [MP3|97-320 kbps]<Нео-Фолк/блюз>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя исполнительницы - Майя Вячеславовна Котовская — автор и исполнитель песен. Основатель проекта «Брэган Д’Эрт».
+	Родилась 24 июня 1979 года в Свердловске (ныне Екатеринбург). Пишет песни и музыку с 1995 года. Окончила музыкальную школу по классу фортепиано, гитару освоила самостоятельно в 2000 году. Увлекается музыкой (фолк, соул, джаз), историей Средних (   Читать дальше...   )Жанр: нео-фолк,фьюжн,блюзПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943430   (449448) от 03.10.2015
+
+Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give to You
+02. Backlash
+03. Crawl
+04. Rigor Mortis(   Читать дальше...   )Жанр: Soundtrack (Unofficial)Продолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E046BBAD6288C979AECCE0114FE6F257BFEDBE26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409132   (449328) от 15.09.2020
+
+Christopher Phillips - Piano Chill: Songs of James Taylor (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire and Rain (3:59)
+ 02. Your Smiling Face (3:46)
+ 03. You've Got a Friend (4:34)
+ 04. Don't Let Me Be Lonely Tonight (3:39)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AF426F9337669EA6D3252AB26F7CF8F7EE3A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943133   (449289) от 03.10.2015
 
 Tommy Tallarico - Evil Dead: Hail To The King (2000) [MP3|~190 кб/с]<Score>
@@ -657,122 +771,6 @@ Nile Rodgers & VA - Путешествие в Америку / Coming to America
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C7273C99214364A3C022DF70826F2A92EF5828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943914   (444762) от 05.10.2015
-
-Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulbound
-02. Reflections
-03. Awakening
-04. Mystic Forest(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7B9B9DA590FC76F2B83E23D5EC4AF516C8623B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322412   (444570) от 31.08.2019
-
-Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444570.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.A New Beginning (4:06)
-2.When Morning Comes (3:04)
-3.Deep Waters (3:24)
-4.Sweet Surrender (3:00)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283902C9A962F62FF389241D0E5E313A0DF5FC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061944   (444452) от 12.10.2016
-
-Geoff Hall - Understanding the Signs (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Run [00:04:33]
-02. To Go Alone [00:03:44]
-03. Understanding the Signs [00:02:19]
-04. Toward a Perfect Moment [00:04:54](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3734AF58969444D149F3E7086DEDC3A71F1129E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164036   (443674) от 08.09.2017
-
-Ennio Morricone - Le Meilleur de Ennio Morricone (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Classical, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa 02:37
-02. Cinema Paradiso : Toto et Alfredo 01:42
-03. Le Bon, la Brute et le Truand : L'Extase de l'Or 03:23
-04. Il etait une fois la Revolution 04:37(   Читать дальше...   )Жанр: Soundtrack, Classical, InstrumentalПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FB1B903845563C44BC96B931B4A48BB9B5ECF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

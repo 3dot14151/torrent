@@ -1,3 +1,90 @@
+###  Публикация: 1599742   (159635) от 24.12.2022
+
+VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milad E & David Deere - Metamorphic (Original Mix) (3:09)
+02. Andrew Mirt & Natune - My Fairytale (KWONE Extended Remix) (4:25)
+03. Paul Echo - The Journey (Extended Mix) (5:34)
+04. POPOFF & Ria Joyse - Full Of Love (Extended Mix) (5:36)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0591115DE24797BD9C42C2C0ACD3000B1C08B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599577   (159621) от 24.12.2022
+
+VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly - Got To Give (3:59)
+02. Metta & Glyde - Build A Bridge (3:41)
+03. Stargazers - Stand Me Up Alive (3:47)
+04. Raz Nitzan - Moon Phases (3:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042D478D9F863491601DA4B77CD86083E5EE7AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967685   (158491) от 21.12.2015
+
+VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Tayle feat. Poppy - The Way Back Home (Solid Stone Remix) (6:23)
+02. Genix - Makoto (Original Mix) (5:19)
+03. Ferry Tayle feat. Sarah Shields & Ludovic H - The Most Important Thing (LTN Remix) (5:48)
+04. Mhammed El Alami - Arton (Original Mix) (6:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF42A8CBC3FCEB2E16C887A03A08E213FC70935C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967747   (158380) от 21.12.2015
 
 VA - A State Of Trance Year Mix 2015 (Mixed By Armin Van Buuren) (2015) [MP3|320 кб/с] <Trance, Progressive Trance, Progressive House>
@@ -658,93 +745,6 @@ VA - Black Hole Trance Music 12-18 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78031D2271F811288108303C2E56930AC5A255E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272217   (145595) от 26.12.2018
-
-VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - A State of Trance: Year Mix 2018 (Intro: License To DJ)
-002. Omnia - Cyberpunk (Original Mix)
-003. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
-004. Audien feat. Cecilia - Higher (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9657E9B255E8A451FFE9BD646FA3744ECF915C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272442   (144729) от 27.12.2018
-
-VA - The Best of Suanda Progressive (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roman Messer & DJ Xquizit ft. Osito - Empire of Our Own (LTN Extended Sunrise Remix)
-02.LTN - Wind & Cloud (Denis Sender Extended Remix)
-03.Alexander Chekomasov - Azimut (Extended Mix)
-04.Mivase - Hypnotised (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2B0872DA296CEA37E5140A3B83E2D39EE22FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272303   (144715) от 27.12.2018
-
-VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tycoos - 717 (Extended Mix)
-02. Paul Boyle - Believe (Extended Mix)
-03. Cris Grey - Parallel Dimension (Extended Mix)
-04. Ozo Effy & RYDEX - The Eridium (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA11143627058BFFC0C5F3306C71341D90EB2C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

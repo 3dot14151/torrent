@@ -1,3 +1,119 @@
+###  Публикация: 940731   (466746) от 25.09.2015
+
+The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407419   (466398) от 07.09.2020
+
+The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407299   (466396) от 07.09.2020
+
+The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Sitiera
+02. Recuerdos
+03. No Vale la Pena
+04. Poder Vivir(   Читать дальше...   )Жанр: Latin, Country, TejanoПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407418   (466395) от 07.09.2020
+
+The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161473   (465644) от 29.08.2017
 
 Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
@@ -627,122 +743,6 @@ Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568718   (459623) от 09.08.2022
-
-The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Tonight I Celebrate My Love
-03. Body Talk
-04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246839   (459168) от 12.09.2018
-
-Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Valse
-02 Serenade
-03 Faulkner's Sleep (D-Moll)
-04 Field(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162340   (458912) от 01.09.2017
-
-Тюргэн Кам - Ahoi (2011) [MP3|320 Kbps] <Rock, Folk, Modern Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Легенда
-02. Энесай (Ahoi)
-03. Самагалдай
-04. Моя тайга(   Читать дальше...   )Жанр: Rock, Folk, Modern EthnicПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75BC3E69794625E5324AEB03F72679FF86303B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408279   (458008) от 11.09.2020
-
-Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best of My Love (4:12)
- 02. Peaceful Easy Feeling (4:08)
- 03. Hotel California (4:29)
- 04. Take It to the Limit (3:33)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

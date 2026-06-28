@@ -1,3 +1,119 @@
+###  Публикация: 1349483   (1004395) от 01.01.2020
+
+VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Spacedisco, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavel Kuznetsov - Introduction (1:15)
+02. TDHDriver - To the Heaven (5:28)
+03. AlimkhanOV A. - Pulsar (4:08)
+04. Laserlight - Intergalactic Flight (7:40)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Spacedisco, SynthdanceПродолжительность: 02:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF6917DF26C3F8D7A7D5A9969E51BA027CBC899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487208   (1003857) от 04.08.2021
+
+W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashbacks (feat. Dora Pereli) (4:38)
+02. California Days (feat. Dora Pereli) (3:19)
+03. Sunset To Sunrise (feat. Dora Pereli) (3:36)
+04. Crossroads (feat. Dora Pereli) (4:20)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF151BE958C55F1254001F1C0285563A2BFB2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350743   (1002988) от 07.01.2020
+
+Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third Strike
+02. Joy Kill
+03. Feeder
+04. Silent(   Читать дальше...   )Жанр: SynthPop, SynthWaveПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4877E13A9945CECA8C7CE26110D634E9056CFF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351167   (1002479) от 09.01.2020
+
+The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002479.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Love Is Blind (Radio-Version) 3:51
+2 Love Is Blind (Long-Version) 5:40
+3 Love Is Blind (Club-Mix) 6:35
+4 On The Other Side 4:22Жанр: Synth-popПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353372   (991871) от 18.01.2020
 
 Chromatics - Closer to Grey (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie Pop, Dreampop>
@@ -628,122 +744,6 @@ Banks - Goddess (2014) Deluxe Version [FLAC|Lossless|tracks + .cue] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B820760C208083E18BE32496B148C509A3538BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358873   (966285) от 10.02.2020
-
-Rupesh Cartel - Mainland (2005) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966285.jpg" />
-</div>
-
-
-###  Подробнее
-
-2.01 Days Like This 3:45
-2.02 If I Ever Grow (Shattuck Plaza) 5:14
-2.03 Nowhere Fast 4:27
-2.04 Retainer (Quarks) 7:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37254F892E8975847D50BCDCB0AE8A4BCCCA800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977559   (965474) от 21.01.2016
-
-VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pet Shop Boys , - West End Girls (5:19)
-02. Toni Basil , - Mickey (3:59)
-03. Bad Manners , - Special Brew (3:20)
-04. Kelly Marie , - Feels Like I'm In Love (3:57)(   Читать дальше...   )Жанр: Synth-pop, Disco, HouseПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FD68BC8298FC3E590F03DF1262FAAA1CA11E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359588   (964129) от 12.02.2020
-
-Depeche Mode - Spirit (2017) 2CD, Dlx. Ltd. Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cover Me (Alt Out) (4:27)
-02. Scum (Frenetic Mix) (5:26)
-03. Poison Heart (Tripped Mix) (4:16)
-04. Fail (Cinematic Cut) (5:38)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2803B251D60952CB239612104C4A66789C529170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360128   (961880) от 14.02.2020
-
-Boytronic - The Original Maxi-Singles Collection (2014) [FLAC|Lossless|image + .cue] <Synth-pop, Euro-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 You (Extended Version) 7:10
-2 Diamonds And Loving Arms (Special Front-Mix) 6:56
-3 Man In A Uniform (Continental-Mix) 5:17
-4 Hold On (Deaf Dumb & Blind Mix 115 Bpm) 6:22(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880E41B7841959876D6DA8A96479666F929A3A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

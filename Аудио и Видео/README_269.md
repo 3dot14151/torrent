@@ -1,3 +1,174 @@
+###  Публикация: 854260   (151734) от 28.12.2014
+
+В изгнании / Outcast (2014) HDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма разворачивается в Китае, в Средние века. Наследник императорского престола становится целью убийства у своего презираемого старшего брата и вынужден бежать. Единственное, что остается молодому принцу, – это защита его сестры при помощи воина-крестоносца (Хейден Кристенсен), которому, в свою очередь, придется смириться с собственными демонами и, сплотившись с некогда легендарным воином, ныне ставшим бандитом (Николас Кейдж), вернуть принца на его законное место на троне...Жанр: БоевикРежиссер: Ник ПауэллПродюсер: Джереми Болт, Тоув Кристенсен, Леонард ГловинскиАктеры: Николас Кейдж, Хейден Кристенсен, Лю Ифэй, Рон Смуренбург, Энди Он, Джавед Эль Берни, Фернандо Чиен, Престон Бэйкер, Байрон Лосон, Томер ОзПеревод: Любительский (двухголосый закадровый) (Пиратская студия)Язык субтитров: АнглийскийПродолжительность: 01:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8DA2DC729C391FA29E64F38CBFE5B529D3F1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518732   (151733) от 22.12.2021
+
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahramji, Mashti - Awareness (7:31)
+02. Smooth Deluxe, Nizam Kharda - Shahmukhi (3:49)
+03. Yantra Mantra - Kabhi Kann, Kabhi Naa (4:23)
+04. Ensemble Ethnique - Aruna Chala (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518726   (151715) от 22.12.2021
+
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gushi, Raffunk - The Way to You (Intro) (1:48)
+02. HAUA, Marat Taturas - Ufa (5:54)
+03. Bahramji, Beach Messiah - New Yeah (9:15)
+04. Dudubeat - Urartu (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49591F1E1E3687111E2AB698C0794AE3D44C2A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518748   (151706) от 22.12.2021
+
+VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyron Hapi - Euphoria (2:54)
+02. Will Sparks - Stand By Me (4:28)
+03. Kild - Reality (3:10)
+04. Two Minds Project - The Garden (3:51)(   Читать дальше...   )Жанр: Electro House, Future House, Hard Techno, Hard Dance, TranceПродолжительность: 02:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48D050202E2F3389A848520B09724557D845BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518730   (151697) от 22.12.2021
+
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Esteban - Dilala (4:49)
+02. Dudubeat - Prinz Igor (3:46)
+03. DJ MNX - Buddha Sphere (4:40)
+04. Yantra Mantra - Jangal (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287E4B7D77F5AAF42D7B93E46C0E45375309EA60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518813   (151682) от 22.12.2021
+
+VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Dellasollounge - Can't See You (Original Mix) (2:48)
+03. Patiotic - Not an Exit (2:37)
+04. Lemongrass - Sur La Mer (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518970   (151627) от 22.12.2021
 
 VA - Calm Down: Urban Chillout Music (2021) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
@@ -563,170 +734,6 @@ VA - 5 Years of Delights: Earthly Reflections (2021) [AAC|~321 Kbps] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56BCC298869C7ADA8527442E5BDFF185E14849FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271552   (149857) от 23.12.2018
-
-Одержимость / Possession (2002) WEB-DL [1080p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149857.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух ученых, которые узнают, что Рэндольф Эш, поэт Викторианской эпохи имел тайную внебрачную связь с другой менее известной поэтессой. Ученые начинают исследовать роман из прошлого, читая любовные письма влюбленных, чтобы собрать из осколков полную картину, и вскоре понимают, что сами не могут жить друг без друга…Производство: США, Великобритания / Focus Features, USA Films, Warner Bros. PicturesЖанр: Драма, Мелодрама, ДетективРежиссер: Нил ЛаБутАктеры: Гвинет Пэлтроу, Аарон Экхарт, Джереми Нортэм, Дженнифер Или, Лина Хиди, Холли Аирд, Тоби Стивенс, Тревор Ив, Том Хикки, Джорджия МакКензиПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английские, французские, немецкие, итальянские, испанскиеПродолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519179   (149850) от 23.12.2021
-
-VA - Connecting The Dots (Denis Stockhausen) (2021) [AAC|~297 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Stockhausen - Connecting The Dots, Continuous Mix (1:21:01)
-02. Dubstar - Shining Through 1 (6:31)
-03. Michael Mayer, Matias Aguayo - Slow (6:16)
-04. Mikkel Metal - Rain (6:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7593988F3EDED27C522E14889DF4FB8F57717DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519181   (149805) от 23.12.2021
-
-VA - New Year’s Eve Songs - NYE Party 2022 (2021) [AAC|~324 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Levitating (3:24)
-02. Joel Corry, Mabel - I Wish (3:02)
-03. Ed Sheeran - Shivers (Dillon Francis Remix)Жанр: PopПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3895CCF2BB833ADFC93C2447C3844607667122B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271416   (149804) от 23.12.2018
-
-Сорняки / Mauvaises herbes (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваэль (Керон), бывший беспризорник, зарабатывает на жизнь мелким мошенничеством со своей приёмной матерью и соучастницей Моник (Катрин Денёв). Когда этот нетрадиционный дуэт обманывает не того парня, Виктора (Андре Дюссолье), старого знакомого Моники, в настоящее время отвечающего за организацию поддержки для проблемных подростков, у него нет другого выбора, кроме (   Читать дальше...   )Производство: Франция / Païva Films, Mars Films, StudioCanalЖанр: КомедияРежиссер: КеронАктеры: Керон, Катрин Денёв, Андре Дюссолье, Луизон Бливе, Альбан Ленуар, Ингрид Доннадье, Лоран ПонсПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Французские (Forced, SDH), Английские (Forced, Full)Продолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450F2BD23197E3F7F50A88541C33724E8AC17B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086304   (149732) от 25.12.2016
-
-Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Beginning To Look A Lot Like Christmas (3:57)
-02. Let It Snow! Let It Snow! Let It Snow! (3:01)
-03. Santa Claus Is Coming To Town (2:07)
-04. Jingle Bell Rock (3:47)(   Читать дальше...   )Жанр: Pop, Jazz, Holiday, Christmas, Swing, Easy Listening, VocalПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF1352AFD9FF1412420CB19DAF032A15D215F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271470   (149212) от 23.12.2018
-
-Облачный атлас / Cloud Atlas (2012) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149212.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении всей истории человечества людей весьма волновал вопрос - что происходит после смерти? Существует ли продолжение, или нет? Фантастический фильм «Облачный атлас», снятый по мотивам одноименного бестселлера Дэвида Митчелла, рассказывает шесть историй реинкарнации одной души, причем две из которых происходят в будущем времени. Масштабная экранизация удивительной (   Читать дальше...   )Производство: Германия, Гонконг, США, Сингапур / A Company Filmproduktionsgesellschaft, ARD Degeto Film, Anarchos PicturesЖанр: Фантастика, Драма, ДетективРежиссер: Лана Вачовски, Том Тыквер, Лилли ВачовскиАктеры: Том Хэнкс, Холли Берри, Джим Бродбент, Хьюго Уивинг, Джим Стёрджесс, Ду На Пэ, Бен Уишоу, Джеймс Д`Арси, Жу Жу, Кит Дэвид, Дэвид Гяси, Сьюзен СарандонПеревод: Дублированный, авторский одноголосыйСубтитры: Русские, английские, немецкие (Вшитые, отключаемые)Продолжительность: 2:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848D4B4D9A6D526583C6EA9BE12A7B8248BAAB04
 ```
 
 https://mybot314.ru/tekegram_catalog/

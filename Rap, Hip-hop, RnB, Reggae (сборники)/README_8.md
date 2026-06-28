@@ -1,3 +1,32 @@
+###  Публикация: 1337684   (272562) от 12.11.2019
+
+VA - Reggae On The Roof Vol. 07 (2019) [MP3|320 Kbps] <Reggae, SKA, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272562.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Upsetters - Tipper Special
+002.  Dizzy Vc & Gb - Vibe
+003. Burna Boy - Anybody
+004. Kapo Di'kaprio - Mary Jane(   Читать дальше...   )Жанр: Reggae, SKA, ReggaetonПродолжительность: 11:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F07DDF3CF3D03B77D53668B1103EEFD1CBE330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337932   (271578) от 13.11.2019
 
 VA - Street Workout (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
@@ -716,35 +745,6 @@ VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203AFE88C7B25B1FDFD09838009872D0BD52AD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270161   (157562) от 19.12.2018
-
-VA - German Top 40 DBC Deutsche Black Charts 14.12.2018 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kitschkrieg - Standard (Feat. Trettmann, Gringo, Ufo361 & Gzuz)
-02. DJ ClimeX, Ce'cile - Grip
-03. DJ Snake, Selena Gomez, Ozuna, Cardi B - Taki Taki
-04. Anderson. Paak, Kendrick Lamar - Tints (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFCE6C0667CEDA9BF7A1792C9A1BCD6D9F520ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

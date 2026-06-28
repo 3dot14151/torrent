@@ -1,3 +1,32 @@
+###  Публикация: 1027574   (694842) от 20.06.2016
+
+Carrie Rodriguez & The Sacred Hearts - Lola (2016) [MP3|320 кб/с] <Pop, Folk, World>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Perfidia    02:59
+02.  Llano Estacado    03:39
+03.  I Dreamed I Was Lola Beltran    05:23
+04.  La Ultima Vez    04:28(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7343608023CB861CFE89BB765F537B49433B860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288631   (694312) от 12.03.2019
 
 VA - Ballermann Hutten Mix 2019 (2018) [MP3|320 Kbps] <Pop>
@@ -719,35 +748,6 @@ Masterboy - немецкая eurodance-группа, образованная в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135317   (682914) от 18.05.2017
-
-Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Reine De Saba (3:08)
-02. Tombe La Neige (2:56)
-03. Love Me With All Your Heart (3:01)
-04. You Don't Have To Say You Love Me (2:31)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 45 RPM, LP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

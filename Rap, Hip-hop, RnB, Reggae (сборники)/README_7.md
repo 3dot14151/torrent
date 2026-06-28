@@ -1,3 +1,32 @@
+###  Публикация: 1417911   (353255) от 22.10.2020
+
+VA - 100 Greatest 00s R&B Hits (2020) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mario - Let Me Love You
+002. Ja Rule - Always On Time
+003. Nelly - Dilemma
+004. Usher - U Remind Me(   Читать дальше...   )Жанр: R&BПродолжительность: 06:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C558199B5D605673C53D99B140429067B361130F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256719   (351894) от 23.10.2018
 
 VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
@@ -717,35 +746,6 @@ VA - Новинки Русского Рэпа vol 2 (2019) [MP3|320 Kbps] <Rap, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DB37D94A588F7F47434438064914A7DB06CEEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337684   (272562) от 12.11.2019
-
-VA - Reggae On The Roof Vol. 07 (2019) [MP3|320 Kbps] <Reggae, SKA, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272562.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Upsetters - Tipper Special
-002.  Dizzy Vc & Gb - Vibe
-003. Burna Boy - Anybody
-004. Kapo Di'kaprio - Mary Jane(   Читать дальше...   )Жанр: Reggae, SKA, ReggaetonПродолжительность: 11:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F07DDF3CF3D03B77D53668B1103EEFD1CBE330
 ```
 
 https://mybot314.ru/tekegram_catalog/

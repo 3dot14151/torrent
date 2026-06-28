@@ -1,3 +1,29 @@
+###  Публикация: 1546340   (607551) от 23.04.2022
+
+Respawn Entertainment | Артбук по игре Titanfall / The Art of Titanfall (2014) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре Titanfall.Жанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E15072A8179B8ADDCA140E1B73FCABC065BD740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546596   (605926) от 24.04.2022
 
 Bandai Namco | Артбук по играм Tekken / The Art of Tekken: A Complete Visual History (2019) [CBR] [EN]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4960AA331FB8C21B6B2C107D10E6D93B870D7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529072   (566601) от 31.07.2012
-
-Скотти Янг | Magneto: Not a Hero [2012] [CBR]
-
->>Комиксы и Артбуки
->>Комиксы на русском языке
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто-то убил людей во время митинга против мутантов. Кто-то, обладающий силой магнетизма. И если это не Магнето, то кто же?..Формат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9750A4A0290B8FE556E1B92533F4F5D15F102F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

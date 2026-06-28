@@ -1,3 +1,29 @@
+###  Публикация: 1121783   (799008) от 04.04.2017
+
+MahJong Suite (2017) [En] (14.0) License RadiXX11
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799008.jpg" />
+</div>
+
+
+###  Подробнее
+
+MahJong Suite - это высококачественная коллекция раскладок игр маджонг. У каждой игры есть миллионы возможных комбинаций раскладок, таким образом, игра все равно будет для Вас каждой раз новой независимо от того, сколько времени Вы уже играете. В игре предусмотрена подробная статистика на каждую сыгранную раскладку по самым различным параметрам.Тип издания: LicenseРазработчик: TreeCardGamesЖанр: Маджонг, ЛогическаяЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97E5067C47EAB332B410087B49A4BF4EBD730B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378698   (797067) от 25.05.2020
 
 Filament (2020) [Ru/Multi] (1.0.2726) License GOG [Marmalade Edition]
@@ -645,32 +671,6 @@ Radical Dungeon Sweeper (2018) [Multi] (1.06) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A178511CA7EBB7A0AA52EAD671C0177F2480E354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965635   (675693) от 29.06.2016
-
-SolSuite Solitaire 2016 (2016) [Ru/En] (16.6) Repack KpoJIuK
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675693.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolSuite 2016 – крупнейшая, постоянно дополняемая коллекция пасьянсов (644 видов), самые популярные из которых - Spider, Klondike, FreeCell, Pyramid, Golf, Busy Aces, Canfield, Forty Thieves, Four Seasons, Carpet, Flower Garden, Rouge et Noir, Monte Carlo и многие другие. Имеет настраиваемый интерфейс и позволяет вести подробную статистику проведенных игр. Полностью (   Читать дальше...   )Тип издания: RepackРазработчик: TreeCardGamesЖанр: Карточные игрыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1911A98C733B709C79ECC4B0BDEB9C4C5F3FB065
 ```
 
 https://mybot314.ru/tekegram_catalog/

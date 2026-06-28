@@ -1,3 +1,119 @@
+###  Публикация: 1116825   (821056) от 21.03.2017
+
+Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Hand Of Fate (Reprise) [00:02:15]
+02 -  Cantara. Part 2 [00:06:18]
+03 -  Little Shiva [00:05:30]
+04 -  Hand Of Fate [00:06:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10809B03779A9F136EB9B20F4B801353C0694DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116836   (821050) от 21.03.2017
+
+VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ying Srisati - Meltwater
+02. Jame Ornlamai - Healing Space
+03. Earth Kunchai - Relax
+04. Wanwisa Yuvaves - Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116136   (820920) от 21.03.2017
+
+VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Southside Johnny & The Asbury Jukes - Tuff Turf
+2. The Jim Carroll Band - People Who Died
+3. Jack Mack & The Heart Attack - Green Onions
+4. The Jim Carroll Band - Voices(   Читать дальше...   )Жанр: Pop Rock, Punk, OSTПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117043   (820916) от 21.03.2017
+
+Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losing You (2:52)
+02. It’s Goodbye and So Long to You (3:11)
+03. Windy City (3:16)
+04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382007   (820880) от 10.05.2020
 
 Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -629,122 +745,6 @@ VA - 50 ans de tangos (2002) [MP3|192 кб/с] <Tango>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17E4F38BD7C532B6563AAB57253230C493FE209C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007557   (817595) от 17.04.2016
-
-Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817595.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:19] 01. Flaer Smin - Learn To Live
-[04:34] 02. Flaer Smin - Fight For Life (Album Edit)
-[06:19] 03. Flaer Smin - Spacewalk
-[06:13] 04. Flaer Smin - Seven Lives(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72318EA5D111E35904174FE35DF2C3D211DE108D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197064   (817571) от 06.01.2018
-
-Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age: Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey to Island B. One
-02. The Journey to Island A. Two
-03. The Journey to Island C. Three
-04. The Journey to Island K. Four(   Читать дальше...   )Жанр: New Age: RelaxationПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196653   (817440) от 06.01.2018
-
-ГештальТ - РекА (2014) OST [MP3|320 Kbps] <Electronic Pop Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЛунА
-02. КапканЫ
-03. ВеселА
-04. Я рядоМ(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382669   (817374) от 12.05.2020
-
-Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817374.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yoga Trance 02:51
-2. Sun Salutation 03:06
-3. Awaken Your Energy 03:17
-4. Total Relaxation 03:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

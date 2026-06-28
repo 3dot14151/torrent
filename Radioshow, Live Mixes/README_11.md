@@ -1,3 +1,204 @@
+###  Публикация: 1541348   (646942) от 02.04.2022
+
+Lane 8 - Spring 2022 Mixtape (2022-03-30) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Youth & OCULA ft. Nathan Nicholson - If Only (You Could Be Here)
+02. Lexer - Paris Rain
+03. Fred again.. & Romy & HAAi - Lights Out
+04. Spada - Take Me There(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07C9433AB3B38B9339CE5349A233F0A322CED96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907210   (637979) от 12.06.2015
+
+Dj Feel - TOP 30 OF MAY (2015) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamaster A vs Solid Skill - One Touch (NLVi Remix)
+02. Anske - Little Dreamer (Original Mix)
+03. Super8 & Tab feat. Julie Thompson - Patience (Estiva Remix)
+04. Thomas Hayes feat. Joni Fatora - Neon (Alluvion) (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6A1F50ADC9617650C3FBBB4EDC5A791ADB31E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293698   (635499) от 04.04.2019
+
+Two Friends - Big Bootie Mix Vol.15 2019-04-03 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Queen - Bohemian Rhapsody (Two Friends Intro Edit) w/Loud Luxury - Body (Instrumental) w/Disclosure - Latch (Acapella) w/Post Malone - White Iverson (Acapella) w/Nirvana - Smells Like Teen Spirit (Acapella) w/Zedd ft. Alessia Cara - Stay (Acapella)
+2. RetroVision - Found You (Instrumental)w/Gryffin ft. Bipolar Sunshine - Whole Heart (Acapella) w/Blink-182 - The (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CF80A0E439C21E1DA83390CFA8BB29DFC726D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229694   (624539) от 07.06.2018
+
+VA - Ori Uplift & Syntouch - Uplifting Only 277 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Senn - Serenity (Intro Edit)
+02. FAN FAVORITE: Ryan Arcand - The Beginning (DreamLife Remix)
+03. FAN FAVORITE 269: Steve Allen & Sue McLaren - Old Flame (Extended Mix)
+04. A-Tronix & Sven E feat. Zara Taylor - Forgiven (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE121C7316BC5F4C17BDEAE6CBCB5A543ED728E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229775   (622717) от 08.06.2018
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Remember This (Mark Sherry Remix / Markus Schulz Big Room Reconstruction)
+02. Markus Schulz & Jochen Miller - Rotunda (Dave Neven Remix)
+03. Pink - What About Us (Markus Schulz Remix)
+04. Vincent de Moor - Fly Away (KhoMha Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B532E4E1177987E94FCDF522B6812B7B448E3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544243   (622208) от 15.04.2022
+
+MORTEN - Miami Rooftop Sessions, Miami Music Week, United States (2022-03-23) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Öwnboss & Sevek - Move Your Body (Intro Edit) w/Wildchild - Renegade Master (Acappella) w/Usher ft. Ludacris & Lil Jon - Yeah!
+02. Swedish House Mafia ft. Sting - Redlight (Mark Roma Remix)
+03. David Guetta & MORTEN - Restless
+04. The Prodigy - No Good (Start The Dance) (MORTEN Edit)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544424   (622183) от 15.04.2022
+
+Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third ≡ Party ft. Alfie Bass - Take Me Away
+02. Eli Brown & Love Regenerator - Moving
+03. Maddix - Activating w/Third ≡ Party ft. FMLYBND - Have No Fear
+04. Third ≡ Party - Arrival(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230901   (610586) от 15.06.2018
 
 VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -545,209 +746,6 @@ VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8090B4B698EFE664816584B2155EDB96BBD6C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152324   (567475) от 22.07.2017
-
-VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova - The One
-02. Kaimo K & Sarah Russell - Be My Guide
-03. Etasonic - Farewell Forever
-04. Sylvia Tosun & Pino Benji - Lost in a Feeling (Digital X Extended Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75DD964897ED4B904E8E6F3B793A7BEA83E3811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555812   (567358) от 05.06.2022
-
-Gareth Emery - Metropolis Festival, The Brooklyn Mirage New York, United States (2022-05-29) [MP3|320 Kbps] <Trance, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery ft. Annabel - ID
-02. Tiësto vs. Yeah Yeah Yeahs - I'll Take You High vs. Heads Will Roll (Gareth Emery Mashup)
-03. Joel Corry x Da Hool - The Parade w/Øostil & Juan Hansen - Drown (Massano Remix)
-04. Ahmed Helmy - Afterlife(   Читать дальше...   )Жанр: Trance, Electro HouseПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC9CDBD436BE8A7EE74EEC33AC01315E537E592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555799   (567350) от 05.06.2022
-
-Markus Schulz - Global DJ Broadcast World Tour - Canada (2022-06-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from Toybox in Toronto - May 27 2022)
-01. David Guetta & MORTEN - Permanence
-02. Solee - Exhilaration (Shall Ocin Remix)
-03. Alex Kennon - Blinding Lights (Joris Voorn Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59E10588BBF19AC18E4C555B3867C7E006AFB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555751   (567168) от 05.06.2022
-
-Korolova - Live @ Karavela Boat Party Lisbon, Portugal (2022-06-03) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RÜFÜS DU SOL - On My Knees (Cassian Remix)
-02. Hollt - Mind Escape
-03. Anyma & Chris Avantgarde - Consciousness
-04. Doanro & Lonner ft. F.R.I.M - Kupala(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA000C1B783BA141FA2BDE9F461F355330387626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152535   (565673) от 23.07.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik feat. Mark & Lukas - Valley Of Shadows (Extended Mix)
-02. Luttrell - Daylight (Original Mix)
-03. Andre Sobota - Unmute (Original Mix)
-04. Aly & Fila And Paul Thomas - UV (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED165F9EF0621541F613BE35B18A27902D1CE80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304341   (564192) от 26.05.2019
-
-Activa - Live @ Union Club London (2019-05-11)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - The One You Need (Sonic Element Remix)
-02. Ronski Speed vs Stoneface & Terminal - Incognition (Original Mix)
-03. Activa & Simon Bostock - Contour (Original Mix)
-04. UDM - Freefall (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3323D799C18AADB2CB57F043FB22D370B76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304767   (562090) от 27.05.2019
-
-Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key4050 - Gianfranco
-02. John O'Callaghan - Space & Time
-03. Sneijder - Back Home
-04. Billy Gillies - Open Your Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C4377E6F8A7F86D27838BA02C8B122F9F77277
 ```
 
 https://mybot314.ru/tekegram_catalog/

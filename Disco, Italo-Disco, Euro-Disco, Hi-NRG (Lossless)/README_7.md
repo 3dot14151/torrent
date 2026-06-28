@@ -1,3 +1,119 @@
+###  Публикация: 1197577   (815675) от 07.01.2018
+
+VA - Venti Compilation 4 (2016) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert One - Face To Face (5:46)
+02. Digital Emotion - Full Control (6:06)
+03. California - Volerei (6:21)
+04. Rofo - Summer Love (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F8716C7A9D19A4DE46CCEB687A6B779FB63224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197834   (813788) от 08.01.2018
+
+VA - Venti Compilation (2009) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swan - Shining Star (Vocal Version) (7:00)
+02. Savage - Twothousandnine (Italomaxi Version) (7:27)
+03. Mr.Zivago - Russian Paradise (Dance Version) (6:57)
+04. Monika Novak - Living On The Run (Vocal Version) (5:55)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51277252019C0F3361B6E64323FA09A9F757E011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197841   (813784) от 08.01.2018
+
+VA - Venti Compilation 2 (2011) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Paris - I Wanna Love You Once Again (Extended Version) (7:10)
+02. Antilles - You And Me (Vocal Version) (5:30)
+03. Closed - Crazy Love (Extended Version) (6:32)
+04. Alan Cook - Resiste Amor (Version Vocal) (7:05)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335C95311660132EEF8676A6BCAF1B972BE7FD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383003   (813609) от 14.05.2020
+
+Albert One - Best Of Albert One (1998) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart On Fire (5:33)
+02. Secrets (Single Version) (3:44)
+03. For Your Love (Original Radio Version) (3:57)
+04. Don't Let Me Down (3:05)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FA5AADA9713451623AB7F7B28D5D483C0A34E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383015   (813604) от 14.05.2020
 
 Albert One - Turbo Diesel (Maxi-Singles Collection) (1988) Bootleg, 2000, VAL Records [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -626,122 +742,6 @@ Mike Mareen - Dance Control (2006) [APE|Lossless]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388317   (786867) от 05.06.2020
-
-VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trammps - That's Where the Happy People Go (7:54)
-02. Kc & The Sunshine Band - Get Down Tonight (5:17)
-03. The Spinners - Are You Ready for Love (Single Version) (3:44)
-04. Ecstasy, Passion & Pain - Touch and Go (7'' Version) (4:19)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EA76BC9F2A9D29A5ABB44974870B3789673E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388387   (786843) от 05.06.2020
-
-Joy - Party Megamix (20 Hits Non-Stop) (2015) Dance Version, RM. [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm in Love (Dance Version) (3:56)
- 02. Magic Eyes (Dance Version) (2:40)
- 03. Fire in the Night (Dance Version) (3:00)
- 04. Countdown of Love (Dance Version) (3:16)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4D16189231F82971EDB5AC48BCA28E87620414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204920   (784057) от 08.02.2018
-
-Systems In Blue - Out Of The Blue (2008) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr.No (3:32)
-02. Heaven & Hell (3:37)
-03. Back To Life (3:28)
-04. Gambler (3:57)(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCB8A24295C9340FE3963839AEFFB1B24A8CCCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205425   (783472) от 10.02.2018
-
-Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkytown (07:50)
-02. All Night Dancing (08:21)
-03. Rock It (05:42)
-04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

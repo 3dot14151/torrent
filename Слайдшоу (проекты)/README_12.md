@@ -1,3 +1,108 @@
+###  Публикация: 1368130   (911796) от 18.03.2020
+
+Проекты - ProShow Producer - Spring Gallery [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911796.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Весна, весна, весна прийде..." Элегантное фотошоу для Вашего творчества. Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC895450E19DCC9D410FA09E1DEFB2763DFC6EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097773   (911774) от 28.01.2017
+
+Проекты - VideoHive - Rose Parallax Slideshow - 19313954 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rose Parallax Slideshow - красивое слайд-шоу с применением анимации падающих лепестков роз.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA209CD0477895FB8DE005DE394A876AFD1CDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097762   (911535) от 28.01.2017
+
+Проекты - VideoHive - Airport Gallery Package [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airport Gallery Package - Супер Реалистичная анимация аэропорта и воздушных судов. 3D модели с высоким уровнем детализации, созданные и оптимизированные для Element 3D v2. Реальная сцена взлетно-посадочной полосы из CDG Парижа. Проект может быть использован для профессионального кино, рекламы, видеоклипов, фотогалереи или других событий. Создайте свою собственную (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371E6F818201FB7762AE20FEF7E5FBD82D273483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990401   (911427) от 25.02.2016
+
+Проекты - VideoBlocks - Floating Bubbles Presentation [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2A03E5305DCF76AF96C97C3E6035C80D225A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368386   (910274) от 19.03.2020
 
 Проекты - VideoHive - Glamorous Glass Fashion - 22118295 [AEP]
@@ -567,113 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B4EF03D92BCE87105185CC40C91C0AD6B08BE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099333   (904557) от 01.02.2017
-
-Проекты - VideoHive - Lovely Slideshow 4 - 19328828 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lovely Slideshow 4 - проект для создание стилизованного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936219749ADB180B15F5F5FDFE508CE90D759941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991934   (904095) от 29.02.2016
-
-Проекты - Pond5 - Color Photo Collection V2.0 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E273E2F56C0A0E05B474585E05F1E6C5A43A578C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992005   (904055) от 29.02.2016
-
-Проекты - Motion Array - Modern Photos [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A3A6591DEE96D5F1EC9884F9DF17019BE2875A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991915   (904017) от 29.02.2016
-
-Проекты - Futuristic Video Placeholders [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE3898A0B868E76E577431B73100D992EEC5EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

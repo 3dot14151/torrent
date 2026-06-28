@@ -1,3 +1,32 @@
+###  Публикация: 1257885   (343137) от 27.10.2018
+
+VA - MNM Back To The 90s & Nillies The Party Edition (2018) 2CD [MP3|320 Kbps] <Eurodance, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343137.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Scooter - How Much Is The Fish?
+02. 3 Doors Down - Kryptonite
+03. Leila K - Open Sesame(   Читать дальше...   )Жанр: Eurodance, Disco, PopПродолжительность: 02:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A758CB07B50C80FDC1371DC15A65F74D3CE3B95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257838   (342944) от 27.10.2018
 
 VA - 100 Hits - 80s Pop (2017) 5CD [MP3|320 Kbps] <80s, Pop, Rock>
@@ -720,35 +749,6 @@ Emin - Love Is A Deadly Game (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5B23E209D8428EE4662192B67EC09EB01C5297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419876   (335488) от 30.10.2020
-
-VA - Bravo the Hits 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335488.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Weeknd - Blinding Lights
-02. David Guetta & Sia - Let's Love
-03. Jason Derulo - Take You Dancing(   Читать дальше...   )Жанр: PopПродолжительность: 02:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2266EBEC9A4F94FBA503F86FC4F609F8420B3A80
 ```
 
 https://mybot314.ru/tekegram_catalog/

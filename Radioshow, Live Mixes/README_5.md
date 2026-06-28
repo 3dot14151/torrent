@@ -1,3 +1,206 @@
+###  Публикация: 1490406   (917514) от 21.08.2021
+
+Tiesto - Club Life 750 (Top 50 Fan Favorites) (2021-08-13) [MP3|192 Kbps] <Electro Pop, Trance, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Lake ft. Emma Hewitt – Carry Me Away
+02. Sander van Doorn & Martin Garrix & DVBBS ft. Aleesia – Gold Skies
+03. Tiësto – Ten Seconds Before Sunrise
+04. Afrojack & Shermanology – Can’t Stop Me (Kryder & Tom Staar Remix)(   Читать дальше...   )Жанр: Electro Pop, Trance, Big RoomПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520BC37CEB315392D449FBC816A6BD7374049366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490607   (917356) от 21.08.2021
+
+Cosmic Gate - Live @ New York City Sunset Set (2021-08-18) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faithless feat. Suli Break & Jazzie B - Innadadance (Meduza Remix)
+02. Adriatique - Trance Lessons
+03. Dezza - Lost In You (Falling In Love) (Estiva Remix)
+04. The Temper Trap - Sweet Disposition (Estiva Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 01:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50E8984F3064274334780B438E78ADC5053A540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465279   (901828) от 01.03.2016
+
+Armin van Buuren - A State of Trance 551 - 750 (2012-2016) [MP3|128 ~ 320 кб/с]<Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
+02. Rank 1 & Jochen Miller feat. Sarah Bettens – Wild And Perfect Day (Cosmic Gate Remix)
+03. Tune Of The Week: Alexander Popov – When The Sun (Eximinds Remix)
+04. Eximinds – August (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 677:39:50 (по 2 часа -/+ 5 мин.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB478D486F45B63AD9F42B3D28637BE877EA95DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493132   (895618) от 03.09.2021
+
+Paul van Dyk - Live @ Main Stage, Exit Festival, Serbia (2021-07-10) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Andreas Kraemer - Adagio For Strings (PvD Intro Edit)
+02. Fuenka - Callisto
+03. Carl Cox - Family Guy (Jon Rundell Remix)
+04. Spektre vs. Max Graham vs. Joel Gershom - Together vs. One Hundred vs. Equinox (Paul van Dyk Mashup)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27A678D5335750D8960F99B94405A108C02D58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370710   (895201) от 28.03.2020
+
+Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chicane feat. Maire Brennan of Clannad - Saltwater
+02.Energy 52 - Cafe Del Mar (Three N One 2002 Update)
+03.Holden and Thompson - Nothing (93 Returning Mix)
+04.Underworld - Dark And Long(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940325B129C68D411257F4B80ED1DF5EE5AB65A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493580   (894223) от 04.09.2021
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar Chicago, United States 2021-08-14) (2021-09-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID
+02. Estiva - Metamorphoses
+03. Jerome Isma-Ae & Alastor - Timelapse
+04. LTN - When it Rains(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3769142D923094B8AB3963ADBED119C72FB189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101818   (892893) от 08.02.2017
+
+Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) Aurosonic & Sue McLaren - Captured By Gravity (Intro Mix)
+2) Raz Nitzan feat. Jess Morgan - Not Like Everyone (Aurosonic progressive mix)
+3) Arctic Lake - Limits (Aurosonic progressive mix)
+4) Headstrong & Aurosonic ft. Stine Grove - I Wont Fall (original mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D469822F56D6128826CF9627DCE42A2D3056FE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494687   (887852) от 08.09.2021
 
 VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
@@ -542,212 +745,6 @@ Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA87E2C5A56F173F0ED21C98E66112A5BA5B0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501366   (836408) от 09.10.2021
-
-Korolova - Live @ New York, United States (2021-08-27) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BetweenUs - All I See
-02. Piero Pirupa - Everybody's Free (To Feel Good) (Alexander Alar & Korolova Remix)
-03. Franky Wah - Now We Are Free
-04. Phonique ft. Rebecca - Feel What You Want (Alexander Alar & Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC5686AAAD5F554DE25FD6F1294A170F66E753E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380343   (835065) от 02.05.2020
-
-daveepa x Fuerte x Rencontre Nocturne - Festival Anthem Music Mix 2020-04-10 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835065.jpg" />
-</div>
-
-
-###  Подробнее
-
-daveepa - Festival Anthem Music Mix 2020 2020-04-10 (00:00:00-00:52:44)
-N/A
-
-Fuerte - Festival Anthem Music Mix 2020 2020-04-10 (00:52:44-02:08:43):(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 03:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCB818D53ED3005F33552CD7AFE6BD7DC5DD3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961231   (834509) от 13.03.2017
-
-Kaneda - Eternal Spirit 001-... / Eternal Light 001-050 / Promo & Guest Mixes (2004-2017) [MP3|192-320 кб/с] < Melodic/Uplifting/Emotional Trance > (Обновлён: 12-03-2017)
-
->>След.
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas - Alive (Club Mix)
-02. Ciaran Mcauley - In Memory Of You (Original Mix)
-03. The Mechanic & Vindicator - We Rule The World (Original Mix)
-04. Eric Senn - In Her Eyes (Original Mix)(   Читать дальше...   )Жанр: Melodic Trance / Epic Trance / Euphoric Trance / Tech Trance / Progressive Trance / ProgLift / Vocal Trance / Uplifting Trance / Emotional TranceПродолжительность: 17:16:27:56
-
-РАЗДАЧА ОБНОВЛЯЕТСЯ ПО ФАКТУ ПОСТУПЛЕНИЯ МАТЕРИАЛА!!!
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7058801E99293A633E1C443AC9B3C2B2BF1E07D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114621   (832079) от 15.03.2017
-
-DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FEEL & Jaren - Losing Time (Extended Mix)
-02. Frainbreeze & Vadim Bonkrashkov - Walhall (Original Mix)
-03. Andrew Rayel feat. Eric Lumiere - I'll Be There
-04. Alexander Popov - Substance (Extended Mix)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B62E66435134F947C2ABDBA48F8C9F0C2C96FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496565   (830005) от 13.10.2021
-
-VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Juicy M @ Cream Arena, Creamfields UK, United Kingdom 2021-08-26:
-01. David Guetta & MORTEN - Bombardment
-02. Maddix - Technology
-03. Sonic Snares - Your Body(   Читать дальше...   )Жанр: Trance, Techno, Electro HouseПродолжительность: 12:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECCB6F9B38856840BCF7107E47A6B1AB6C3AB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196676   (822425) от 03.01.2018
-
-VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
-02.illitheas - Moments with You (Maratone Remix)
-03.Manuel Rocca & Illitheas - Enchanted
-04.Afternova feat. Andrea Becker - For You (Trance Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF736E282606A586DB41DD2E65C1A27D424C68ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196853   (819198) от 05.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha - Arkham Asylum
-02. Jam & Spoon - Follow Me
-03. Killahurtz - West on 27th (Original Subway Mix)
-04. Schiller - Ruhe (Humate Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
 ```
 
 https://mybot314.ru/tekegram_catalog/

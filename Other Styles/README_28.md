@@ -1,3 +1,119 @@
+###  Публикация: 1493137   (897557) от 02.09.2021
+
+Где-то Там - Дикий альбом (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Как залезло красное солнце
+02 - Гуси-гуси
+03 - Разлилась речка быстрая
+04 - Тонкая рябина(   Читать дальше...   )Жанр: Psychedelic FolkПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A500BE76D6E956477C13D91123BC88BD1A962510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867235   (896269) от 12.02.2015
+
+Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balcan Sex God
+02. Cheaporn
+03. Decollection
+04. Fancy Porn(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992682   (895246) от 05.03.2016
+
+VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop, Funk, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.W.A - Straight Outta Compton (4:17)
+02. Parliament - Flash Light (Single Version) (4:29)
+03. Eazy-E - We Want Eazy (5:01)
+04. N.W.A - Gangsta Gangsta (5:36)(   Читать дальше...   )Производство: UMe, Priority Records, Ruthless Records – B0023597-02Жанр: Hip Hop, Funk, SoulПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993172   (895189) от 05.03.2016
+
+Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apareka (2:38)
+02. Qrizantemebi (The chrysanthemums) (2:55)
+03. Dililme (2:46)
+04. Qalo (The Women) (2:38)(   Читать дальше...   )Жанр: Ethnic / Georgian FolkПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100094   (894629) от 07.02.2017
 
 Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
@@ -634,119 +750,6 @@ VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1008FB75798382675AFCBE853477B69C66DD21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868815   (889650) от 16.02.2015
-
-VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6C864A4F643FB92551373EE8738D2AB7DF7CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493616   (889098) от 07.09.2021
-
-Pravin (Правин, Павел Новиков) - Swarg Ashram (2008) [FLAC|Lossless|tracks + .cue] <Indian, Mantras, Bansuri>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baro Anurage Daki Toma Pita
-02. Nimne Dharanir Gati Durbar
-03. Ar Sab Jai Jak
-04. Jharna Jharna(   Читать дальше...   )Жанр: Indian, Mantras, BansuriПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494372   (889009) от 07.09.2021
-
-Tina Guo - Dies Irae (2021) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tina Guo (28.10.1985) – американская виолончелистка китайского происхождения. Ее международная карьера музыканта и композитора характеризуется не только тщательно продуманным видеорядом с театральными декорациями и оригинальными костюмами, но и множеством музыкальных жанров (classical, classical crossover, new-age, heavy metal, industrial metal), в которых работает (   Читать дальше...   )01. Moonlight Sonata (4:30)
-02. Moonheart (4:31)
-03. Double Cello Concerto MVT.1 (4:08)
-04. Rivers Flows In Youy (3:55)(   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369B839FAA2B99FF840CB313750A924DD746D134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371666   (888581) от 01.04.2020
-
-Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofolk, Darkwave, Atmospheric>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Design [07:27]
-02. Good Morning Sick World [05:20]
-03. Don't Mind [04:21]
-04. Recreation [04:32](   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

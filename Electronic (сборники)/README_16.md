@@ -1,3 +1,168 @@
+###  Публикация: 1353170   (992627) от 17.01.2020
+
+VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992627.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pindaric Spleen - Millennia
+002. Beautiful Morning - Marga Sol
+003. Señora - Ritmo Casablanca
+004. Dany Cohiba - Carnival Madness(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 09:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608313   (991306) от 28.01.2013
+
+VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benga Feat. Katy B -Katy On A Mission (Trainrek Remix) (04:15)
+02. Boy Kid Cloud -How It Looks (Doctor P VIP) (03:52)
+03. Delta Heavy -Overkill (Zifra vs Fi-Chek Remix) (04:48)
+04. Devin Martin -The Armory (Original Mix) (03:51)
+05. Document One, Tigerlight -Already LostTIT4 (06:10)
+06. DotEXE -38 Degrees (04:18)Жанр: DubstepПродолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610298   (991304) от 28.01.2013
+
+VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TyDi feat. Sarah Howells - When I Go (Arnej Remix)
+02. Sabrina Terence - About You (Mito & Moe Aly Edit)
+03. Soarsweep - If There Was Love (Original Mix)
+04. Teknova - Mistik (Stephan F Remix Edit)
+05. Stephan F - Majestic (Club Mix)
+06. Will Bailey and Poisound - In The Echo (Original Mix)
+07. Santerna - Parallax (Andrew Riqueza Bootleg)
+08. Steve Brian & Cressida - Casablanca (Radio Edit)
+09. Mark Van Dale with Enrico - Water Verve (Leon Bolier Remix)
+10. Mika V. - Biography (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FFD4816FB78C5D6954447A5904D7B77CAE4B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608293   (991295) от 28.01.2013
+
+VA - In Da Club Vol.69 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Proud - As One (Original Mix)
+002. Gai Barone - Astronave (original mix)
+003. Inge Lemon - Starchild (Gofman & Tsukermann Remix)
+004. DNS Project - Second Chapter (Original Mix)
+005. Arnej - For The People (original mix)
+006. Fabio XB feat. Simona Barbieri - Flash Of Life (Cressida Remix)
+007. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi Remix)
+008. Klauss Goulart - Let Your Scars Dance (Original Mix)
+009. Armin van Buuren feat. Jennifer Rene - Fine Without You
+010. Eximinds - Afterlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D35957E94114BE82AD0C52F269423A9371B7CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609372   (991293) от 28.01.2013
+
+VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 12th Planet - The End Is Near, Pt. 1 (Felguk Remix)
+2. Avicii feat. Nicky Romero - I Could Be the One (Dirty Dutch Visionaire Remix)
+3. Avicii feat. Nicky Romero - I Could Be The One (Seif Remix)
+4. Bruno Mars - Locked Out Of Heaven (Sultan feat. Ned Shepard Remix)
+5. Dada Life - So Young So High (Andybody Remix)
+6 .Deorro - Hands Up
+7. Direct - Zombie
+8. Hot Mouth feat. Chris James - Totally Worth It (Peacetreaty Remix)
+9. Jean Elan feat. Cosmo Klein - All About Us (Pyero Remix)
+10. Joe Luthor- Sad Memories (Clonation Remix)(   Читать дальше...   )Жанр: Electro House, House, ElectroПродолжительность: 02:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7FEAE8AEAC7B13EC6E631BFC3B3CDB6EB1C909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608309   (991292) от 28.01.2013
 
 VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
@@ -639,151 +804,6 @@ VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354178   (989043) от 21.01.2020
-
-VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989043.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aiden Baker & Faith Coloccia & Jon Mueller - Harmony In Distance
-002. La Bors - Tanami (Original Mix)
-003. Inside The Second - Uptown Sounds
-004. Jimmy Freeplace - Last Parfume (Radio Version)(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 07:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D3379F57B0EA0FC9580FEB4533852F8E67BED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971174   (988657) от 01.01.2016
-
-VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progressive House, Power Electronics>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Terence - Feel That Vibe 04:22
-02. J & V - Walk Away (Randy Norton Edit) 04:54
-03. Trancemaster File - Time To Say Goodbye 08:54
-04. Naxwell - Living On Video (Radio Mix) 04:00(   Читать дальше...   )Жанр: Club, Progressive House, Power ElectronicsПродолжительность: 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B16C99016BA7BEB66DF08587A21A670B9C1DC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971031   (988627) от 01.01.2016
-
-VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afro Paris - Solar Sides 06:49
-02. Everything Is Changing - Groove Collective 07:09
-03. Summer - Booster 07:22
-04. Heartfixer - Heartfixer 03:33(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Nu Disco, Nu SoulПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6CE4F2D9129703AF2D891875AF71F69E5E2138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971290   (987660) от 02.01.2016
-
-VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ladale - Unfulfilled [05:13]
-02. Laurent de Paris - Pianoes [05:08]
-03. Andrew Hoek - Reversum [02:49]
-04. Bikini Beats - Diamond Heart [04:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD791C1CDD8679AFFFAE65E796371034BD750A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971281   (987658) от 02.01.2016
-
-VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De La Cream - Lovin' You [04:21]
-02. Luis Hermandez - Thru The Night [04:02]
-03. Roberto Sol - Momentos Azules - Extended Mix [04:59]
-04. Maggie Jane - A Moment With You [04:28](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA607439FFCB16FDA040AE0A2E1C3CEFF040FEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

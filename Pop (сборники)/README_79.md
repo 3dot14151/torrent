@@ -1,90 +1,3 @@
-###  Публикация: 1314612   (513811) от 19.07.2019
-
-VA - Synthpop Multimix (2019) [MP3|320 Kbps] <Pop, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513811.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marti Caine - I'll Never See You Again
-002. Team Rush Hour - Forever (Feat. Revi)
-003. Gosto - Cigarette
-004. The Kiez - Cool(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 07:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8B41A03E2A3BC9102925800863282C6F60917C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315327   (513548) от 19.07.2019
-
-VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rhythm Crew - If You Need Somebody
-002. Scott & Louise Dorsey - Love Is Gonna Last Forever
-003. Ofra Haza - Fatamorgana (Mirage)
-004. Bee Gees - Ordinary Lives(   Читать дальше...   )Жанр: PopПродолжительность: 13:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDAC35A8F377F45EE6E9E8164B0B2EDDA09DC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931133   (512874) от 25.08.2015
-
-VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ирина Дубцова И Brandon Stone - Игра Теней
-002. Tokio Hotel - Stormy Weather
-003. Лариса Долина - Очередь За Мечтой
-004. Mia Martina - Damn(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816628E56F234CEE4F494B4D0799C630DCBB1DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931237   (512809) от 25.08.2015
 
 VA - Горячий музон. Тусим все вместе (2015) [MP3|256-320 кб/с]<Pop>
@@ -812,6 +725,105 @@ VA - Попсовая соточка MTV. Сборник 3 (2015) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F05723B95EFE72A48815F5694ED9117B3051946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932088   (502139) от 05.09.2015
+
+VA - Летние super новинки. Часть 7. 50/50 (2015) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дима Билан - Болен Тобой (03:42)
+002. Mirami - The Party'll Never End (03:26)
+003. Soprano Турецкого - Ветреная (03:14)
+004. Oliver Heldens & Becky Hill - Gecko (02:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FC2D17A0872BDB04CA0D774CB18B20C3F68F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541180   (502111) от 30.08.2012
+
+VA - 150 хитов в машине (2012) [MP3|128-192 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Павла - Навсегда
+ 002. Nефть Feat. Олег Мовчан - Янтарь
+ 003. Гриша Ургант - Голосами
+ 004. Потап И Настя Каменских - Если Вдруг
+ 005. Таня Терешина - Как Ты Мог
+ 006. Сергей Пенкин - Ангел
+ 007. Дискотека Авария - Воля И Разум
+ 008. Сергей Трофимов И Лайма Вайкуле - Я И Ты
+ 009. Tomas Nevergreen & Кристина Орбакайте - Без Тайн (Remix)
+ 010. Непара - В Облаках(   Читать дальше...   )Жанр: PopПродолжительность: 09:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B23A801DEC886444D07339EF0840F3E3478D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541464   (501496) от 31.08.2012
+
+VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wynter Gordon - Stimela
+002. Андрей Леницкий &amp; St1ff И Mc Pasha - Любовь Сохрани
+003. Gary Barlow &amp; The Commonwealth Band - Sing
+004. Sandro Monte Feat. Mischa Daniels &amp; J-Son - Simple Man
+005. Lmfao - Party Rock Anthem
+006. Rudimental Feat John Newman - Feel The Love
+007. T.O.T.A.L. И Антитіла - Весна-Любовь
+008. The Saturdays - All Fired Up
+009. Eleni Foureira - Ti Poniro Mou Zitas
+010. Arash Ahangari - Ahange Zamoone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

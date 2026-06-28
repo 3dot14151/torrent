@@ -1,3 +1,35 @@
+###  Публикация: 1018015   (759271) от 18.05.2016
+
+Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский певец, гитарист и продюсер.
+Имел множество хитов в 1970-х и начале 1980-х годов.
+Наиболее известными стали эти два альбома, сделанных и спродюсированных совместно с лидером группы E.L.O. Джеффом Линном (Jeff Lynne), чей стиль
+исполнения невозможно не узнать!01. Slipping Away   (4:22)
+02. Don't You Double   (3:16)
+03. I Want You Bad   (2:36)
+04. Wait   (4:11)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Rock & RollПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215596   (758221) от 26.03.2018
 
 Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
@@ -716,35 +748,6 @@ Amy Holland - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Soft Rock, Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68D6A235B9792F02E47AF7C06ADAF1641619C25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217457   (743486) от 04.04.2018
-
-Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capitol Records, Compilation [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. Strawberry Wine 4:50
-02. We Danced Anyway 3:23
-03. Did I Shave My Legs for This? 3:13
-04. Count Me In 3:25(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

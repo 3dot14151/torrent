@@ -1,3 +1,32 @@
+###  Публикация: 1834453   (250588) от 05.11.2025
+
+Иван Дорн - dorndom (2025) [MP3|320 Kbps] <Pop, Soulful, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snob (05:19)
+02. Tic Tac (03:25)
+03. La Re (04:11)
+04. Dead Blogger (06:15)(   Читать дальше...   )Жанр: Pop, Soulful, FunkПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B110B2D13B9970C60C05B25C80BCF7D7E19C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619253   (249757) от 15.03.2023
 
 VA - 20s Finest Pop (2023) [OGG Vorbis|480 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - 100 Hits 80s Rewind (2011) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Power Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8D211AEB89F3BE338F67DDB3E53C8500BC7B1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627365   (243245) от 18.04.2023
-
-Menderes - Sieger der Herzen (Das Beste aus 20 Jahren) (2023) [MP3|320 Kbps] <Dance Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Er liebt dich nicht [00:03:11]
-02 - Nimm Anlauf [00:03:38]
-03 - Der hellste Stern der Welt [00:02:56]
-04 - Sieger der Herzen [00:03:04](   Читать дальше...   )Жанр: Dance Pop, EuropopПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E691DD5D36E7C93DA54DEED4D7EE26B6F55F017
 ```
 
 https://mybot314.ru/tekegram_catalog/

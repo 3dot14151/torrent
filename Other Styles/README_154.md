@@ -1,3 +1,119 @@
+###  Публикация: 1340714   (226714) от 30.11.2019
+
+Grand Theft Auto IV - Vladivostok FM (2008) [FLAC|Lossless|tracks+ .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberty City: The Invasion
+02. РЭП
+03. Мама
+04. Никого не жалко(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A2D6C320C1144923FFBC0D261A1E1BC3FD822D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267558   (226423) от 11.12.2018
+
+Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartaches By The Number (3:06)
+02. I'll Be There (If You Ever Want Me) (2:11)
+03. Faded Love (5:24)
+04. It Always Will Be (3:34)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8968F1947959AF561CA334FAF49CBB7B5EE984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268534   (226352) от 11.12.2018
+
+Laura Sullivan - Serenity: Music for Meditation and Inner Peace [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River of Healing
+02. Wild and Free
+03. Soaring with Angels
+04. The Universe in You(   Читать дальше...   )Жанр: Instrumental, New ageПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FA2117DD445A7F276CD9BD00EA99DEEF8AA5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268705   (226345) от 11.12.2018
+
+Laura Sullivan - A Magical Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bells of Christmas
+02. Up on the Housetop / Ode to Joy
+03. Ave Maria
+04. The First Noel(   Читать дальше...   )Жанр: Instrumental, New ageПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BC191376C861965C094727BC34B6AD8F037828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268601   (226188) от 11.12.2018
 
 Gente de Zona - En Letra de Otro (2018) [MP3|320 Kbps] <Reggaeton, Cubaton>
@@ -629,122 +745,6 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084210   (220326) от 18.12.2016
-
-Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Master (02:43)
-02. New Mexico (04:25)
-03. Las Cruces (02:26)
-04. Dr. Jekyll (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E779B025F094867A68CBEC4693E445A284C8C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084393   (220260) от 18.12.2016
-
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны Истории (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks +.cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7FD3F822B02828D0E31F46541CC6E88AD08A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651372   (220165) от 08.08.2023
-
-Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Epic Metal>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Metal: Ragnarock Overture (feat. Jamison Boaz) [00:03:58]
-02. In The Beginning [00:02:56]
-03. The Proving Fields (feat. George Lynch) [00:03:05]
-04. Titans Walk Amongst Us (feat. Ernie C) [00:04:02](   Читать дальше...   )Жанр: OST, Epic MetalПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966171   (219992) от 17.12.2015
-
-Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice of Enigma (2:21)
-02. Principles of Lust: Sadeness / Find Love / Sadeness (reprise) (11:43)
-03. Callas Went Away (4:29)
-04. Mea Culpa (5:01)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
 ```
 
 https://mybot314.ru/tekegram_catalog/

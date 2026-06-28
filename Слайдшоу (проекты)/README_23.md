@@ -1,3 +1,107 @@
+###  Публикация: 1114240   (833019) от 14.03.2017
+
+Проекты - VideoHive - Urban Opener - 19535175 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Urban Opener - современная  заставка для ваших видео проектов в городском стиле. Проект прекрасно подходит в качестве вступительных роликов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED1EF604397DB09890034EA882B9EE349873C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114244   (832932) от 14.03.2017
+
+Проекты - VideoHive - Lovely Parallax Slideshow | Opener - 19539624 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovely Parallax Slideshow | Opener - проект для создания слайд-шоу с 3D эффектом и параллаксом. Вы можете использовать видео вместо статичных изображений.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EDD2F69BED562D508BB310C9D44BD8C04A2301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380620   (832702) от 03.05.2020
+
+Проекты - Motion Array - Beautiful Memories-Ink Slideshow - 481786 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832702.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Beautiful Memories-Ink» - это роскошный и романтично анимированный шаблон After Effects с привлекательным дизайном, в котором чернильные пятна используются для стильного отображения ваших медиафайлов. Идеально подойдёт для презентации ваших воспоминаний об особых моментах, путешествиях, предстоящем событии, празднике, приключениях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66562036B4DE2C299BFE3DB485C414BD507217FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773807   (832410) от 04.04.2014
+
+VideoHive - Portrait Slideshow - 6886609 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект строгого элегантного слайдшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C64F7E8DF94CBA404BD3DB9519326119941303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005145   (832393) от 09.04.2016
 
 Проекты - VideoHive - Rhombus Slideshow [AEP]
@@ -580,113 +684,6 @@ Chameleon 3D Slideshow включает в себя 3 версии - Short, Midd
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280E09DC44053A255F4216A3CEF815C8094BD98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006193   (828607) от 11.04.2016
-
-Проекты - VideoHive - Urban Opener - 14461470 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания стильного и динамичного слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2472C49D1C1DE8B69E90BB2C5503B819A33AB907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006277   (828488) от 11.04.2016
-
-Проекты - VideoHive - Short Dynamic Slide - 11918452 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания вступительного ролика или фото-видео слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBA3127756DBFCC315709484BEAB66F74EBEA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006434   (828480) от 11.04.2016
-
-Проекты - VideoHive - Slideshow Pack 3 in 1 - 11126579 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828480.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 проекта для создания фото-видео слайдшоу. Используются в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C88B1C256037C5CEA7EC84EDD74268062BDD6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006214   (828387) от 11.04.2016
-
-Проекты - VideoHive - Fast Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Slideshow - это стильный, современный, позитивный проект, подходящий для быстрого вступления, презентаций, портфолио, короткого динамичного слайд-шоу.
-Проект хорошо организован. Вы можете легко изменить длительность путем дублирования или удаления сцен.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83C0FBB5E8DBEAD1F348C2CD9AEAAEC024E39C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

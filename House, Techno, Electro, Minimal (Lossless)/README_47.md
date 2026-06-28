@@ -1,3 +1,206 @@
+###  Публикация: 1066616   (411936) от 26.10.2016
+
+Lost Frequencies - Less Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Or Nothing (feat. Axel Ehnstrom) (2:38)
+02. What Is Love 2016 (3:08)
+03. Beautiful Life (feat. Sandro Cavazza) (2:42)
+04. Sky Is The Limit (feat. Jake Reese) (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A92479874BE705526B7141080135C78FA746CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066921   (410066) от 27.10.2016
+
+VA - Seven Stories: The Quest (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nhar - Navigli [08:22]
+02. Dan Grassler - Going Back (feat KnowKontrol) [07:28]
+03. Alex Zed - Over My Head (feat Billie Fountain) [08:00]
+04. Teho - Back To The Forest [07:21](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4B2452DAC77A91E9DD8BFDA5E83457C37CBA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252174   (409321) от 05.10.2018
+
+VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaurizioG - Lust (original mix) (6:39)
+02. Ultraverse - Sensorica (Nio March remix) (6:29)
+03. Alec White - My Friend, What's up - (Ah)! (original mix) (7:25)
+04. Misha - The Groove (original mix) (4:11)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1DDF714E933996D90AC7F3ACAAC25DFC9F2A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168620   (408887) от 24.09.2017
+
+VA - Summer Vibes - Part VI (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno, Dubstep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Marquis – Alone (Proone Remix) (04:55)
+02. MISIGII – Solomon (Oliver Petkovski Remix) (06:22)
+03. Matthew Damon – Open Space (Volkan Erman Remix) (09:25)
+04. Rabbit One – N33d U (07:28)(   Читать дальше...   )Жанр: Progressive House, Deep House, Techno, DubstepПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B3483FCA83CB66BCB04A7C3C65D2FD94DCFA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325899   (408704) от 17.09.2019
+
+VA - Different Styles Vol. 9 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natune & Radar Detector – Dive into My World | Fly & Sasha Fashion Remix (05:09)
+02. Rayan Myers – Impatient (08:40)
+03. VetLove – Sunrise (05:49)
+04. Furkan Senol – Words Unspoken (07:30)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep House, DowntempoПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61099159315BE7C3BAB89FB3279E94658E7C52DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252576   (407990) от 06.10.2018
+
+Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|Lossless|tracks+.cue, tracks] <Electro, Abstract, Leftfield, IDM, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Parker / David Morley - After Dark (04:39)
+ 02. Andrea Parker - Empty Words (04:52)
+ 03. Clatterbox - Peripheral Vision (03:08)
+ 04. Two Sandwiches Short Of A Lunchbox - Too Good To Be Strange (01:14)(   Читать дальше...   )Жанр: Electro/IDM/ExperimentalПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312F56B6B2182CFE937787D98EFAFE3195220086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561687   (406120) от 17.10.2012
+
+VA - Pure Salinas. Lounge & Deep House Edition Vol. 4  (2012) [FLAC|Lоssless]<Lounge, Deep House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406120.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Pure Salinas. Lounge & Deep House Edition Vol. 4 (2012) 
+Год: 2012
+Жанр: Lounge, Deep House, Downtempo, Tech House
+Продолжительность: 02:10:13(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563633   (403765) от 22.10.2012
 
 VA - Intuition (mixed by Guy Mantzur) - 2012 [FLAC|Lossless]<Tech House, Progressive>
@@ -541,208 +744,6 @@ U96 - 20.000 Meilen Unter Dem Meer (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B3222812DFCF0D75676A9E97BC6A4FCD2E7923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415612   (376869) от 12.10.2020
-
-Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclosion Pt.1 (06:55)
- 02. Eclosion Pt.2 (12:08)
- 03. Eclosion Pt.3 (06:37)
- 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 04:50:59 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BAF85EB491384EC2FB5E94B6C70B9D59D56F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303292   (376330) от 12.10.2020
-
-Aleja Sanchez - Discography 30 Releases (2010-2020) Northallsen Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Dialogue (07:11)
- 02. The Language Of Silence (06:18)
- 03. Inner Voices (06:34)Тип издания: WebЖанр: Techno, Ambient, Experimental •Продолжительность: 14:27:01 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CD81AC27791EFB008D3B3B3B51B0F0242899F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069172   (376102) от 03.11.2016
-
-VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonny White - Ambient Intro/Rainfall [01:56]
-02. Rhythm & Sound - Smile (feat Savage) [06:55]
-03. Maurizio - M5 A (edit) [05:49]
-04. Deepchord - DC12 A1 [06:15](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A7DCD39334350A0E30BC4B25BFEAF32E067C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254683   (373193) от 14.10.2018
-
-VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Deep Techno, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Schulte - Trolley Bus (Winter Trip) (6:52)
-02. Luss - Morning Sun (7:50)
-03. The White Man - Heliopausa (8:42)
-04. David Hausdorf - Club Fever (7:37)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAE71D49AF8EA9956145E780DA6BBD2828E77BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176434   (371924) от 21.10.2017
-
-Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, World>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sherazade And Her Never Ending Stories (3:42)
- 02. Umama (5:33)
- 03. Dive Into The Mystic (5:19)
- 04. Shotgun (5:23)(   Читать дальше...   )Жанр: Deep House, Downtempo, WorldПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE88C69A8D3834FA66B6AEFA372725CE61EC850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327859   (370251) от 27.09.2019
-
-VA - Ethereal Techno #007 (2019) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clawz SG - Xanax (original mix) (6:31)
-02. EarthLife - India (original mix) (8:55)
-03. Lost Soul (CH) - Maze (original mix) (6:52)
-04. Martin Dubiansky - Element 5 (original mix) (9:46)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 02:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9E49FFBE06E12A9D435725A44A2690CA08E8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327861   (370243) от 27.09.2019
-
-deadmau5 - mau5ville - Level 3 (2019) [FLAC|Lossless|WEB|tracks] <Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadmau5 - Polyphobia (7:30)
-02. Deadmau5 - Glivch (5:15)
-03. Deadmau5 & Shotty Horroh - Are You Not Afraid (3:11)
-04. Deadmau5 & Shotty Horroh - Are You Not Afraid (J. Worra F No Remix) (5:00)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6968387ED21592E93CD71DC2BAB2FAB85903D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

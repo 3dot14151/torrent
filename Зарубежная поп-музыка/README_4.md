@@ -520,6 +520,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468208   (1017268) от 07.05.2021
+
+VA - The Mastermix Collection – Disco (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mastermix - DJ Playlist: 70s Disco Floorfillers
+02. Mastermix - Disco Queens
+03. Mastermix - Funky Disco
+04. Mastermix - Boogie Nights(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9D165E4EA332DB025B27E30282AF9D54D9768B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469969   (1016155) от 14.05.2021
 
 VA - Rewind & Remixed Hits (2010) [MP3|~245 Kbps (V0)] <Dance, Electro Pop>
@@ -714,35 +743,6 @@ Claude Denjean - 3 Albums (1970-1976) Collection [MP3|320 Kbps] <Electronic, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB8912480402A9449FCF8769997695CB0A8ED8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473733   (1013533) от 30.05.2021
-
-VA - Megahits Sommer 2021 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riton x Nightcrawlers - Friday (feat. Mufasa & Hypeman)
-02. Coldplay - Higher Power
-03. Nathan Evans, 220 Kid & Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix)
-04. The Weeknd - Save Your Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B9E18D864A03B6960C32CC7139A65930935FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

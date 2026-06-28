@@ -1,3 +1,85 @@
+###  Публикация: 1451080   (1027454) от 07.03.2021
+
+Сборник клипов (02.2021) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за февраль 202101_Mitoo & Тони Раут - Новый рассвет
+02_Alexandra Stan - Aleasa
+03_Ани Лорак - Наполовину
+04_ANTONIA x Yoss Bones - Dinero(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D236CCFF6C7C75010F442959A0D6FCC427D46910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452900   (1027337) от 08.03.2021
+
+Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6092845C4BF6E31F41BF689B37664CE611A490CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447642   (1025596) от 19.03.2021
+
+Dua Lipa - We're Good (2021) WEB-DL [1440p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
+</div>
+
+
+###  Подробнее
+
+« We Good » - песня английской певицы Dua Lipa из переиздания ее второго студийного альбома Future Nostalgia: The Moonlight Edition (2021). Он был выпущен на лейбле Warner Records 11 февраля 2021 года в качестве ведущего сингла переиздания.
+Новый клип Dua Lipa "We're Good" — это душераздирающая история одного лобстера. Его сняли Ваня Хейманн и Галь Муджиа, (   Читать дальше...   )Производство: UMG, WMG (от лица компании "Warner Music UK"Жанр: Pop, tropicalРежиссер: Vania Heymann, Gal MuggiaАктеры: Dua LipaПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71BAC5A47B3EFADEE01BC20749CEC29397F930B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368146   (1024985) от 22.03.2021
 
 Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-LQ]
@@ -156,6 +238,34 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD1CC91DE69390B45E857CE8F1F8BFC90B1FB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468955   (1016404) от 12.05.2021
+
+The Beatles: Мне следовало быть осторожнее (Репетиция) / I Should Have Known Better (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битлы играют в карты в трясущемся багажном вагоне поезда и одновременно репетируют песню, которую исполнят во время концерта.
+Клип из фильма полностью колоризован - каждый кадр в отдельсности.
+Предыдущий клип: The Beatles: Если есть любовь / If I Fell (A Hard Day's Night) (1964/2014) BDRipПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2748C7395B3FAEB9103B339E180AC44BEC525B79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,119 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597947BC1D0E8755C10CC4E20A68EE06E68D38EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599449   (999323) от 06.01.2013
-
-BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB805082B038CC709C10B92564052C8D76E2D99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599120   (999314) от 06.01.2013
-
-Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: Club, House, DanceПродолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C32BCDBB7493B94317AA898CA5BE18BF67CA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599450   (999303) от 06.01.2013
-
-Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D15367268E625CE3A0973F7760FFE811F4034FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599949   (999109) от 07.01.2013
-
-Slade At The BBC (1969-1991) (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ретроспективная передача канала BBC4 от 21 декабря 2012 года. Коллекция студийных видеозаписей BBC 1969-1991 годов и01.Intro
-02.Martha My Dear /Monster Music Mash 1969/
-03.Wild Winds Are Blowing /Monster Music Mash 1969/
-04.Coz I Luv You /TOTP 1971/
-05.Mama Weer All Crazee Now /TOTP 1972/
-06.Gudbuy T' Jane /TOTP 1972/
-07.Cum On Feel The Noize /TOTP 1973/
-08.My Friend Stan /TOTP 1973/
-09.Everyday /TOTP 1974/
-10.How Does It Feel /Crackerjack 1975/(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
 ```
 
 https://mybot314.ru/tekegram_catalog/

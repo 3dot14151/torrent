@@ -1,3 +1,29 @@
+###  Публикация: 609925   (991005) от 28.01.2013
+
+Wallpapers - Обои для ноутбуков [JPEG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1366x768Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E71BBC7B715DF4199920EA96F078C6916E4F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353718   (990701) от 19.01.2020
 
 Обои - Wallpapers Кошачьи #74 [JPG]
@@ -644,32 +670,6 @@ Various nice Wallpapers-8 [1920x1200].Разрешение файлов: 1920x12
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B133294C65EE19A842729F6488DAD24FA2761F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613905   (982888) от 04.02.2013
-
-Wallpapers - 500 Anime Wallpapers 1920x1080 part-1 [JPEG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982888.jpg" />
-</div>
-
-
-###  Подробнее
-
-500 Anime Wallpapers 1920x1080 part-1.Разрешение файлов: 1920x1080Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE67CC1C33D8E2E3DED2C320D378801478031BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1378794   (844791) от 26.04.2020
+
+VA - NOW Blues Classics (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.John Lee Hooker - Boom Boom (2:40)
+2.B.B. King - Heartbreaker (Album Version) (2:33)
+3.Muddy Waters - You Shook Me (2:44)
+4.Sam "Lightnin'" Hopkins - Back To New Orleans (Album Version) (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243E09B53CBEA2C2D8021209FCDFB1B59FB580F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004332   (840313) от 05.04.2016
 
 Lisa Lystam Family Band - Give You Everything (2016) [MP3|320 кб/с] <Blues Rock>
@@ -716,35 +745,6 @@ Roy Rogers & Norton Buffalo - Travellin' Tracks (1992) [MP3|320 кб/с] <Harmon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A121631F155569B578F35443FEDA5F7B90913D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007727   (819808) от 16.04.2016
-
-Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil Keep Chewin' (02:51)
-02. 40 Years in Bars (05:37)
-03. Some Buddy Like You (04:21)
-04. Kiddieville (04:54)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99307AC841740D879FC3AED6B32D7CC0907F2EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

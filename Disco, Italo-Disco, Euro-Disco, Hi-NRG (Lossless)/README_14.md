@@ -1,3 +1,142 @@
+###  Публикация: 812380   (574840) от 12.08.2014
+
+Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're The Greatest Lover 2:53
+02. Casanova 3:51
+03. U.O.Me 2:56
+04. My Number One 3:14
+05. Shoes Off (Boots On) 3:08
+06. Don Juanita De Carnaval 3:12
+07. Trojan Horse 3:24
+08. Louis Je T'Adore 3:42
+09. Don't Let Me Down 2:36
+10. Eeny Meeny Miny Moe 2:53(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030DACAB1310465A1FDE149D667AC46A0059139C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812374   (574834) от 12.08.2014
+
+Luv' - Gold (1993) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're The Greatest Lover 2:52
+02. U.O.Me 2:58
+03. Trojan Horse 3:25
+04. My Man 3:05
+05. Eeny Meeny Miny Moe 3:00
+06. Ooh, Yes I Do 2:59
+07. I Like Sugar Candy Kisses 3:37
+08. Dream, Dream 3:30
+09. One More Little Kissie 3:47
+10. Life Is On My Side 2:38(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2696D53E4D00840FFAADED150C5CE77B1C87F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812178   (574692) от 12.08.2014
+
+C.C. Catch - Welcome To The Heartbreak Hotel (1986) Germany, 1st Press [FLAC|Lossless]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel 3:40
+02. Picture Blue Eyes 3:35
+03. Tears Won't Wash Away My Heartache 4:24
+04. V.I.P. (They're Callin' Me Tonight) 3:33
+05. You Can't Run Away From It 3:17
+06. Heaven And Hell 3:46
+07. Hollywood Nights 3:17
+08. Born On The Wind 3:55
+09. Wild Fire 3:42
+10. Stop - Draggin' My Heart Around 3:09Жанр: EuroDiscoПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85A95700A6DDFBB2F9222D4C32945572F0AC86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812167   (574689) от 12.08.2014
+
+Arabesque - Best Three (1995) Japan [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Time To Say "Good Bye" (Jean Frankfurter - John Moering)
+2. Heart On Fire (Jean Frankfurter - John Moering)
+3. Parties In A Penthouse (Jean Frankfurter - John Moering)
+4. Dance Dance Dance (Jean Frankfurter - John Moering)
+5. Hit The Jackpot (Jean Frankfurter - John Moering)
+6. Young Fingers Get Burnt (Jean Frankfurter - John Moering)
+7. Make Love Whenevr You Can (Jean Frankfurter - John Moering)
+8. Peppermint Jack (Jean Frankfurter - John Moering)
+9. High Life (Jean Frankfurter - John Moering) (   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA324C803819EE16E60D14627817D270976002B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043294   (574418) от 15.08.2016
 
 Radiorama - The Second (1987) Reissue, Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|image + .cue] <Italo Disco>
@@ -647,122 +786,6 @@ Lian Ross - And The Beat Goes On (2016) 2CD [FLAC|Lossless|image + .cue] <Euro-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB6FD62CEB660B8DF4BD8F118037AC7EE294136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925946   (533415) от 10.08.2015
-
-Vicki Sue Robinson - Half And Half (1978) Remastered /2011, Sony/ [FLAC|tracks +.cue]<Disco, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская актриса театра и кино (род.31.05.1954 в Нью-Йорке - ум.27.04.2000), а в период диско-эры - талантливая певица. Она дочь театрального актёра Bill Robinson и фолковой певицы Jolly Robinson. Её наивысший успех - песня "Turn The Beat Around" (1976). До конца 70-х выпустила 4 альбома (потом выходили только синглы и переиздания). Понравится любителям (   Читать дальше...   )01. Feels So Good It Must Be Wrong (5:32)
-02. Jealousy (5:19)
-03. Freeway Song (5:08)
-04. Don't Try To Win Me Back Again (4:25)(   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7EC2D378E8038650B6F389FE262B5A6819CE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239932   (533077) от 08.08.2018
-
-Cerrone - Cerrone by Bob Sinclar (2001) Partially Mixed [FLAC|Lossless|tracks + .cue] <70s, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/21. Love in C Minor (4:25)
- 02/21. Major Sea (1:14)
- 03/21. Love in C Minor (outro) (3:06)
- 04/21. Revelacion (2:59)(   Читать дальше...   )Жанр: 70s, Disco, HouseПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C578870FA80C1DE227A3068A29C8811EC63A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558736   (528600) от 22.06.2022
-
-VA - Disco Top 50 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Club>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (4:02)
-02. Lipps Inc. - Funkytown (Single Version) (3:55)
-03. Gloria Gaynor - I Will Survive (Original 7'' Version) (3:19)
-04. Bee Gees - Stayin Alive (4:46)(   Читать дальше...   )Жанр: Disco, Pop, ClubПродолжительность: 03:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92B98EB373401D3177CA47016726FB51671C819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156100   (527604) от 07.08.2017
-
-D. White - One Wish (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fоllоw Mе
-02. Оnе Wіsh
-03. Wаlkіng
-04. Оnе Dау(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848C5DC41A767A6D729DB28BD558491ECE6BEF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

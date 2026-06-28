@@ -1,3 +1,119 @@
+###  Публикация: 1035221   (628535) от 16.07.2016
+
+Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Aldridge Mansion (02:58)
+02. The Garrett Attack (01:30)
+03. Never Invited (01:24)
+04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298977E7235136BAA32490DEDB31A7D60567247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035234   (628521) от 16.07.2016
+
+John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Age Collision Course Main Title (00:15)
+02. Cosmic Scrat-tastrophe (02:42)
+03. Earthbound Acorn (00:41)
+04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2B48D290EA2990D389CBAAA1C411D0B4EF0D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035211   (628410) от 16.07.2016
+
+Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Pets (02:38)
+02. Katie's Leaving (00:56)
+03. Meet Duke (03:37)
+04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660C307FC484DAA18162AF4C0D1364FB2BBF540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229259   (627949) от 05.06.2018
+
+Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World, Armenian Duduk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая пластинка Argishty переполнена экспериментами и замечательными находками. Так дудук еще не звучал: тут и соединение с аутентичным фламенко, и православный распев с голосом батюшки из Александро-Невской Лавры, и даже знаменитое танго!... Argishty снова раздвигает границы эклектики в звучании древнего инструмента!01. You must return - Ты должна вернуться (PAD Version)
+02. Tsvite Teren (Ukranian folk song) - Цвите Терен (укр. нар.)
+03. Kamancha (Sayat Nova) - Кеманча (Саят Нова)
+04. Aravot Luso (Armenian folk song) - Аравот Лусо (арм. нар.)(   Читать дальше...   )Жанр: Instrumental Folk, World, Armenian DudukПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291492038645F5E7FE0B30D973A6FA8473A47297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229207   (627948) от 05.06.2018
 
 Артель РОСА - Счастливые люди (2018) [MP3|320 Kbps] <Russian Urban Folk>
@@ -638,122 +754,6 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0DA8E97DF8FF2252DA8100750CB3CEE58A95C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909676   (624070) от 19.06.2015
-
-David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. False Dawn [00:04:18]
-02. Sirens [00:03:11]
-03. Dreaming Desire [00:05:23]
-04. Remembering Where We Were [00:08:10](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3767B632EA8C711DD831FF8C624597F552DAD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351377   (623627) от 16.06.2011
-
-The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental, Soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Moonriver (From: Breakfast At Tiffany's)
-02 The Way We Were
-03 As Time Goes By (From: Casablanca)
-04 Love Theme (From: Romeo & Juliet)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE518609A405BDF6DE625F86AD1922368B38048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294889   (623596) от 10.04.2019
-
-А.И.Жихарев - Поющая бронза (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Композиция 01 (5:12)
-02. Композиция 02 (3:53)
-03. Композиция 03 (4:00)
-04. Композиция 04 (5:36)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F1A0736C6A8E43605B3FFF8E53746F7BE640F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542817   (623568) от 14.04.2022
-
-James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age, Tribal, World Beat>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gatekeeping
-02. Salute to Cuba
-03. Drum Dialogue
-04. Until the Ice Cracks(   Читать дальше...   )Жанр: New Age, Tribal, World BeatПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
 ```
 
 https://mybot314.ru/tekegram_catalog/

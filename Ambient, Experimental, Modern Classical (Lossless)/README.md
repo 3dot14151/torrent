@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1876926   (1073738) от 17.06.2026
+
+God Body Disconnect - Lost Within Loss (2025) Cryo Chamber [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Soundscapes>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Life I Took For Granted (4:48)
+02. Departed Moments of Home (5:33)
+03. Pain Grows Closer (5:47)
+04. Hiding In Nostalgia (4:35)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Soundscapes, Field RecordingsПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B257008E4277DC2E12A04468E555AB0BFB8FED57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876927   (1073737) от 17.06.2026
+
+God Body Disconnect - Detune the Tragic Light (2025) Cryo Chamber [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Dark Jazz>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice of Depression (6:31)
+02. Portraits of Possession (9:10)
+03. Faraway and Far From Well (9:18)
+04. The Tragic Night When All Stars Fell (10:23)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Dark Jazz, Jazz NoirПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB1E0A81B5F946075D376F85F665FEC5A111148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875300   (1072594) от 
 
 Tangerine Dream - The Private Music Of Tangerine Dream (1992) Compilation [FLAC|Lossless|image + .cue] <Berlin-School, Ambient>
@@ -678,61 +736,6 @@ Tim Schaufert - Haunted (2018)  [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EDC866BF89A87ACB31AE1F9E346CCC2684BDDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445910   (1033287) от 07.02.2021
-
-Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient, Chillstep>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Schaufert, Shwin - Sublime (03:55)Жанр: Ambient, ChillstepПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73E03916E6E0982A8E048265142FFEBDDC40568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261143   (1033233) от 07.02.2021
-
-Olan Mill (Alex Smalley) - Discography 20 Releases (2010-2021) Serein, Facture, Preservation [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CI-MXD (40:30)
- 02. Electrostatic (01:41)
- 03. Redox (04:22)
- 04. Protonation (04:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Modern ClassicalПродолжительность: 12:28:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B81E4EE8564F566084D558A2F1DAB14EF64F236
 ```
 
 https://mybot314.ru/tekegram_catalog/

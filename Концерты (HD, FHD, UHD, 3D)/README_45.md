@@ -1,3 +1,116 @@
+###  Публикация: 450586   (76266) от 15.02.2012
+
+Paul Rodgers  - Live in Glasgow (2006) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450623   (76117) от 14.02.2012
+
+Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockФормат: TS
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452021   (75999) от 13.02.2012
+
+U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление группы U2 на фестивале Glastonbury Festival of Contemporary Performing Arts 2011.Жанр: Rock
+1. Even Better Than the Real Thing (Remix version)
+2. The Fly
+3. Mysterious Ways (with "Independent Women" snippet)
+4. Until the End of the World
+5. One
+6. Where the Streets Have No Name (with "Jerusalem" intro)
+7. I Will Follow
+8. I Still Haven't Found What I'm Looking For (with "Movin' On Up" snippet)
+9. Stay (Faraway, So Close!)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451008   (75776) от 12.02.2012
+
+Андреа Бочелли: Вечерний концерт в Центральном парке Нью-Йорка / Andrea Bocelli: Concerto One Night in Central Park (2011) Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Классическая музыка, Вокал, Поп, КроссоверРежиссер: Дэвид ХорнПеревод: ОтсутствуетПродолжительность: 02:05:25+00:28:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451211   (75736) от 12.02.2012
 
 Peter Gabriel - New Blood (Live in London) (2011) HDTV
@@ -621,118 +734,6 @@ Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upsc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792647   (67638) от 20.04.2025
-
-Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы, который состоялся на стадионе «Метеор» в Днепропетровске. Именно с него начался гастрольный тур Scooter по Украине в 1999 году.01. Keyser soze / Watch out
-02. Faster Harder Scooter
-03. I'm raving
-04. The age of love(   Читать дальше...   )Производство: УкраинаЖанр: Techno, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Axel CoonПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330AA1F0E74DFDFF4F1756863BB3DBFA69EB77A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797513   (66816) от 16.05.2025
-
-МузЛофт-Дети / МузLoft. Любава Соляная (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любава Соляная. Про финансовую грамотность и дуэт с Лазаревым.
-Если вас удивляет или веселит фамилия этой талантливой девочки, то обязательно смотрите выпуск, она всё про неё расскажет. А ещё споет такой разнообразный набор песен, что понравится абсолютно каждому.Производство: Россия | Y-GenerationУчастники: Любава СолянаяПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797512   (66810) от 16.05.2025
-
-МузЛофт-подкаст / МузLoft. Dabro (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dabro. Первый конфликт в истории Музлофт.
-Таких жарких споров и дебатов в истории нашей программы ещё не было. Может именно вы рассудите кто прав в споре наших музыкантов и братьев из Казани.Производство: Россия | Y-GenerationУчастники: DabroПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795505   (66806) от 16.05.2025
-
-Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в рамках фестиваля "Highfield" 19 августа 2016 года в Лейпциге на сцене "Blue Stage".01. Ten seconds before sunrise / Ace
-02. Oi
-03. Riot
-04. One (Always hardcore)(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Phil SpeiserПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
 ```
 
 https://mybot314.ru/tekegram_catalog/

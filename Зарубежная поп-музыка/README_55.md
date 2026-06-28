@@ -1,3 +1,32 @@
+###  Публикация: 1326765   (383492) от 21.09.2019
+
+Струни серця - Найбільше в світі диво (2019) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тобі, Україно (03:32)
+02. Студентська молодь (03:10)
+03. Донька України (03:28)
+04. Над землею тумани (03:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EAADCDB76014985754358E9838ACD27BD362444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414658   (383407) от 09.10.2020
 
 Макс Барских - 1990 (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
@@ -729,35 +758,6 @@ Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A8E40200EBC03C4F9DF49A07B4EA6A4F1F03754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175958   (374345) от 20.10.2017
-
-Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sidonie
-02. L’Appareil A Sous
-03. Les amis de la musique
-04. El cuchipe(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
 ```
 
 https://mybot314.ru/tekegram_catalog/

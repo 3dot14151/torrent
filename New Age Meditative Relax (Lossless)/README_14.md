@@ -1,3 +1,94 @@
+###  Публикация: 1029389   (680258) от 27.06.2016
+
+Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Under the Moonlight    09:48
+02.  Lovers Night    15:45
+03.  Letting Go    12:43
+04.  Coming Back Home    10:19Жанр: New Age, Meditative, RelaxПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290052   (680232) от 19.03.2019
+
+Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. f l o w e r (3:54)
+ 02/12. Walking In The Forest / 숲을 걷다 (3:07)
+ 03/12. f r a m e d (Piano Ver.) (3:53)
+ 04/12. Autumn Finds Winter (4:02)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508108   (676057) от 11.06.2012
+
+VA - Вечерняя Коллекция (Звуки природы) (2010) [FLAC|Lossless]<Музыка для медитации и релаксации>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peaceful Widerness
+02. Mountain Moods
+03. Mysterious Rainforest
+04. Symphony Of Whales
+05. Fantastic Sailboat Voyage
+06. Dolphins Delight
+07. Loonscape
+08. Subarctic SoundЖанр: Музыка для медитации и релаксацииПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509646   (672078) от 13.06.2012
 
 John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
@@ -665,96 +756,6 @@ Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519433   (636910) от 06.07.2012
-
-Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truth Of Touch
-02. Vertigo
-03. The End Of August
-04. The Rain Must Fall
-05. Felitsa
-06. Voyage
-07. Nightingale
-08. Ode To Humanity
-09. Niki Nana
-10. One Man's DreamЖанр: New AgeПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033760   (636142) от 12.07.2016
-
-Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Edge of Dreams [00:58:01]Жанр: New AgeПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A82821B3965100C56A63C810B907416148953A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033553   (635816) от 12.07.2016
-
-Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Lullaby 03:53
-02.Pacifique 03:47
-03.Marta' s Song 04:12
-04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

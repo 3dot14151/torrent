@@ -1,3 +1,32 @@
+###  Публикация: 1079842   (294192) от 04.12.2016
+
+VA - Pop Decades: 00s (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnarls Barkley - Crazy (2:58)
+02. Jason Derulo - Whatcha Say (3:41)
+03. Sean Paul - Like Glue (3:53)
+04. Flo Rida - Right Round (3:24)(   Читать дальше...   )Производство: RhinoЖанр: PopПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F716B189187F94B7C765B45C31D0F81749FBACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961699   (293523) от 05.12.2015
 
 Petra Janu - 12 Famous And Awarded Movie songs (1985) [MP3|192 кб/с]<Pop>
@@ -713,35 +742,6 @@ Jain - Zanaka (2016) Deluxe Edition [MP3|320 Kbps] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13782840306B801B05BCA22E8C096515CDF80AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963900   (285465) от 09.12.2015
-
-Melanie Martinez - Cry Baby (2015) Deluxe Edition [OGG|473-549 кб/с]<Alternative Indie Pop, Electropop, Dark Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Baby
-02. Dollhouse
-03. Sippy Cup
-04. Carousel(   Читать дальше...   )Жанр: Alternative Indie Pop, Electropop, Dark WaveПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492E98A4388C04949BCF55D4586DABDA49F5AF06
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1101580   (894104) от 07.02.2017
+
+Проекты - VideoHive - Parallax Slideshow - 16636955 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallax Slideshow - проект для создания слайд-шоу с эффектом параллакса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE3E6E5E1DDF584CC52DC3E311E8B2C96A2DE2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101660   (894057) от 07.02.2017
+
+Проекты - VideoHive - Photo Memories on Trees [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект с живыми пейзажами для создания слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD89ADB3B9E806893E617850F4AB4EA8BFA6805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993966   (893452) от 06.03.2016
+
+Проекты - Проект ProShow Producer - To feel the Difference [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Романтическая презентация на тему "Уикенд".
+Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1C110B1B9051C1E93E7BC692B1188FD25C7BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993706   (893445) от 06.03.2016
+
+Проекты - Проект ProShow Producer - Riddle of Female Soul [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Романтическая презентация на тему загадочности женской души. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93998DC964799E59DC1811400B8C1B4B2ED053AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994004   (893376) от 06.03.2016
 
 Проекты - VideoBlocks - Event Promo [AEP]
@@ -572,113 +677,6 @@ Photo Slideshow. Lovely Slides - простое 3D-слайд-шоу. Идеал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E2A5225A72FF7728C62B7076FDEB1A330E1307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994871   (887879) от 09.03.2016
-
-Проекты - VideoHive - Elegant Symmetry [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECDCAE49213C1D16B72A6F203191C7D4EAD836C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994898   (887751) от 09.03.2016
-
-Проекты - VideoHive - Modern Promo [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28243F739501412DA35F7B2818CEB1DEF6C15CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994876   (887623) от 09.03.2016
-
-Проекты - VideoHive - Beautiful Parallax [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A26A083B08A69461A233C75729B2B96D660ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994938   (887578) от 09.03.2016
-
-Проекты - Film Strip Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо ролика в старом кинематографическом стиле.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4BF1492256C368032EB921C7270737EB1BA66B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,33 @@
+###  Публикация: 470019   (97175) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 100
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97175.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 100
+Название: Desktop Wallpapers Pack 100
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46A09050035DF889B85E37B836FCF1D6974FF4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470157   (97134) от 18.03.2012
 
 [Wallpapers] Japan Wallpapers Pack 1
@@ -704,32 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C219A2F0DE3E3973C82CD25283913FE55B1E89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453337   (76883) от 18.02.2012
-
-Обои - 40 Great Game Scenes Wallpapers 1920 X 1200 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76883.jpg" />
-</div>
-
-
-###  Подробнее
-
-40 интересных обоев с различных сцен игр для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76F8C453D5C13465595684C4A88CD1AD41A1028
 ```
 
 https://mybot314.ru/tekegram_catalog/

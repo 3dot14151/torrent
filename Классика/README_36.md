@@ -1,3 +1,38 @@
+###  Публикация: 571429   (387484) от 07.11.2012
+
+Martin Schmeding - Brahms - Organ Works (2007) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Praeludium und Fuge a-moll - Präludium - 1:47
+2. Praeludium und Fuge a-moll - Fuge - 3:37
+3. Choralvorspiel und "O Traurigkeit, o Herzeleid" - Vorspiel - 1:52
+4. Choralvorspiel und "O Traurigkeit, o Herzeleid" - Fuge - 4:51
+5. Fuge as-moll - 6:54
+6. Präludium und Fuge g-moll - Praeludium - 3:46
+7. Präludium und Fuge g-moll - Fuge - 4:02
+8. Elf Choralvorspiele op. 122 - Mein Jesu, der du mich - 4:29
+9. Elf Choralvorspiele op. 122 - Herzliebster Jesu - 3:06
+10. Elf Choralvorspiele op. 122 - O Welt ich muss dich lassen - 2:15(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5D328E6C358C9E4C99A8D74A79531DA20460AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571434   (387337) от 07.11.2012
 
 Anne Horsch - Brahms - Organ Works (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<Classical>
@@ -754,35 +789,6 @@ Piano Concerto No. 5 in E flat major ("Emperor"), Op. 73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76738B22D86371B769352F697F065837BA491EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949674   (367886) от 27.10.2015
-
-Rachmaninov - Piano Concerto No.2, Etudes-Tableaux (Valery Gergiev & London Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Concerto, Post-Romantic, Character Piece, Etude>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 2 in C minor, Op. 18
-01. Moderato; Allegro (11:33)
-02. Adagio sostenuto (11:46)
-03. Allegro scherzando (11:30)(   Читать дальше...   )Жанр: Classical, Concerto, Post-Romantic, Character Piece, EtudeПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024B6717AC4AD301D6098EC6EEC230A1A67AD7DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

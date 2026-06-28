@@ -1,3 +1,32 @@
+###  Публикация: 1506582   (799497) от 01.11.2021
+
+VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sassydee - Disturbia (4:00)
+02. Countdown Singers - Monster Mash (3:15)
+03. Countdown Singers - Ghostbusters Theme (4:07)
+04. Detroit Soul Sensation - Superstition (3:30)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506586   (799482) от 01.11.2021
 
 VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
@@ -716,35 +745,6 @@ VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Kar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200823   (794917) от 22.01.2018
-
-Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke On The Water (7:34)
-02. Volcano (5:38)
-03. Jumping (3:38)
-04. The Phantom Of The Opera (6:27)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989E11D5CD52A30515DE4AAE9A8FD9DA42CFBACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

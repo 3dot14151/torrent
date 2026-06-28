@@ -1,3 +1,29 @@
+###  Публикация: 765197   (875765) от 11.03.2014
+
+Сборник - Свадьба 4 / Wedding 4 [JPEG,PSD,EPS,AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадебная тематикаФормат: JPEG,PSD,EPS,AIРазрешение файлов: 2500х3700-8500х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790D67FDDBE4C2584A1518E5E7CD9883E6DA4C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374188   (874136) от 09.04.2020
 
 Сборники - Dealjumbo.com - Deeezy - 8 Abstract Geometric Flowers - 14410 [PNG, AI, EPS]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF0706B968B18F05235CB09091B7B64377CC23CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397089   (742554) от 18.07.2020
-
-Сборник - Design Bundles - Pets Bundle. Cliparts and seamless patterns - 274314 [EPS, PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742554.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пакет Pets входят 16 графических пакетов с симпатичными клипартами и бесшовными узорами.Формат: EPS, PNG, JPGРазрешение файлов: 886x1249-10522x3305
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6C2902C66B1C64E481E20DD692B788BCECC8FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

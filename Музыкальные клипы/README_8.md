@@ -1,3 +1,113 @@
+###  Публикация: 1366407   (922344) от 12.03.2020
+
+Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Gothic Metal, Industrial>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922344.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Nervenbeisser - Alkohol (Gronemeyer Cover)
+002 2015 Nervenbeisser - Bitte Bitte (Arzte Cover)
+003 2015 Nervenbeisser - Deine Angst
+004 2015 Nervenbeisser - Nervenbeisser(   Читать дальше...   )Производство: Echozone ‎Жанр: NDH, Gothic Metal, IndustrialПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33DFE761DF8A25B74CB13E90CAF32ACE4205E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366682   (921728) от 12.03.2020
+
+Сборник клипов - Блатной хит - Видеоколлекция от ALEXnROCK часть 1 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921728.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые кабацкие песни, романсы, ну и конечно же много блатной темы. Это 1 часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Блатной хит - Вступление
+01. Жека - Растревоженная птица
+02. Вячеслав Добрынин - Капитан запаса
+03. Бутырка - Малец(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9171D2E308ECBC666ED348F66461D91FDB4E576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632372   (920013) от 20.03.2013
+
+Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, ElectroПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA48F18DE6E27120D44FC920BFE8D1EDDFFA6146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632370   (919808) от 20.03.2013
+
+Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, ElectroПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07398776C2D6A22B33D6E76F9437C6BBFC40BA20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 632787   (919480) от 20.03.2013
 
 Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
@@ -585,113 +695,6 @@ AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: М�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350780   (908696) от 20.03.2020
-
-Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Videos at Ozzy Osbourne: (00:11:03)
-2019 Ozzy Osbourne - Under the Graveyard [1080p] 2020 (00:05:47)
-2019 Ozzy Osbourne & Post Malone - Take What You Want (Live Video) [1080p] 2019 (00:02:46)
-2020 Ozzy Osbourne - Straight to Hell [1080p] 2020 (00:03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782A59B121F5F3731DA24FB91E3C4C3EE33CDA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635880   (907830) от 27.03.2013
-
-Alisher - Money (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145F5471FA6A3BAE2A8371EF5339D757825FC697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635889   (907822) от 27.03.2013
-
-Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9F9FE7FBBF669BB785F4E3E9E1551BFE38D7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635882   (907713) от 27.03.2013
-
-Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
 ```
 
 https://mybot314.ru/tekegram_catalog/

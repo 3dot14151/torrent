@@ -1,3 +1,58 @@
+###  Публикация: 245006   (436257) от 12.10.2010
+
+Windows 7 black edition [8 in 1 club cuba Release 11.10.2010] by~putnik
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: Microsoft Corporation
+•Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244978   (436256) от 12.10.2010
+
+[Crack] Готика 4: Аркания / Arcania: Goth​ic 4 [Multi+] 2010 | AnTuxPucT
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позволяет поиграть в игру, под наванием Arcania: Gothic 4 =)
+
+Лично я считаю Кряк "сомнительным" не смотря на отзывы и жду "сценового" релиза.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245141   (436254) от 12.10.2010
 
 ABBYY Lingvo x3 Multilingual Plus v14 [RU / EN / DE / FR / ES / UK / PL / KK / CH / RU SLANG]
@@ -626,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA85AF398413D69EF7F41E1AF074AEC6F1C7E21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145137   (434519) от 09.10.2009
-
--=BLACK EDITION 2009.10 SPA XP=-
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_434519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на на официальном русском образе-ru_winxp_pro_with_sp3_vol.
-В систему интегрирован последний апдейтпак от
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393032   (434302) от 27.09.2011
-
-Windows XP Twilight Angel Edition 2011.09
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для "чистой" установки Windows XP SP3 Pro с загрузочного компакт-диска, а также для установки пакетов драйверов с возможностью выбора. Проходит проверку подлинности на официальном сайте Microsoft.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

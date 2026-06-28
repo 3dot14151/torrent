@@ -1,3 +1,206 @@
+###  Публикация: 1043764   (571176) от 17.08.2016
+
+Rafael Cerato & The White Shadow - Distance (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories (7:36)
+02. Distance (7:19)
+03. Distance (Marc Marzenit's Cinematic Edition) (9:24)
+04. ID (7:16)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC2AD77F3BCA0F9313464DDC289C597DF4DC164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922532   (569925) от 28.07.2015
+
+Alter Ego - Alter Ego (1995) [FLAC|tracks +.cue]<Techno, Acid Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulfree (11:59)
+02. Atomic Playground (7:17)
+03. Sentimental Books (4:56)
+04. Nude Restaurant (13:00)(   Читать дальше...   )Жанр: Techno, Acid AmbientПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B94497DDA915A31A52C6817F121E60CBACC542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 689841   (569841) от 15.08.2013
+
+VA - Eclettica (Compiled By Glass Coffee) - 2013 [FLAC|Lossless|WEB-DL|KLCD 081 ]<Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haraket - Taint (Mokadem remix)
+02. Glass Coffee - Shining Love
+03. Nosaj Thing - Eclipse/Blue (feat Kazu Makino)
+04. Allone - Look At The Doorway Boys(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07502A6E5D9CC94FC78CBAFBE5673BBCEC791A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304008   (569485) от 23.05.2019
+
+Useless - Urban Jungle (1997) Single [FLAC|Lossless|tracks + .cue] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urban jungle (4:11)
+ 02. Urban jungle (jungle mix) (4:39)
+ 03. Envoie-moi au ciel Scotty (4:45)
+ 04. Envoie-moi au ciel Scotty (acid mix) (9:59)Жанр: TechnoПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A74165DA7C89A1A1AC1D22014417227C067F71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152536   (565374) от 23.07.2017
+
+Calvin Harris - Funk Wav Bounces Vol. 1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Funk, Dance-Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slide (feat. Frank Ocean & Migos) (3:50)
+02. Cash Out (feat. D.R.A.M., PARTYNEXTDOOR & Schoolboy Q) (3:55)
+03. Heatstroke (feat. Ariana Grande, Pharrell Williams & Young Thug) (3:49)
+04. Rollin (feat. Future & khalid) (4:32)(   Читать дальше...   )Производство: Columbia – 889854 43422Жанр: Electronic, Funk, Soul, Dance-PopПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25ED8114084854EE3064A67354A37602FC8FB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044582   (565359) от 20.08.2016
+
+VA - John Digweed Live In Montreal (2016) 6CD [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarian - Fear And Self Loathing (Christian Burkhardt 'Vegas' Remix)
+02. Popof - Serenity (Noob Remix)
+03. Joseph Capriati - Fratello (Dubfire)
+04. Bedrock - Emerald (BOg Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 07:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5130D31DB33D287F128ED6F7601C5C51F5F07AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304200   (565274) от 25.05.2019
+
+VA - Coffee Bar Lounge, Vol. 11 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Van – Street Cafe (5:33)
+02. Lazy Hammock – Rise with You (4:19)
+03. Jens Buchert – Lazy Age (3:22)
+04. Polished Chrome – The Cake (3:49)(   Читать дальше...   )Жанр: Progressive House, DowntempoПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63BC4A0BDE3D805D8A14A8E752295EDEBA5F1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304212   (565269) от 25.05.2019
 
 VA - Coffee Bar Lounge, Vol. 12 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electronica, Downtempo>
@@ -539,209 +742,6 @@ Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235862   (556608) от 14.07.2018
-
-VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Flu - Mygut (Solomun remix) [08:22]
-02. Oliver Koletzki - A Tribe Called Kotori (Koletzki's Woodfloor version) [06:55]
-03. Bloody Shelby Feat. Lazarusman - Ready [07:53]
-04. Rampa - Fluke [06:39](   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9D51D32E736DB2E6A4BD797C987B84756C1C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556835   (556428) от 12.06.2022
-
-Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Oumuamua (5:25)
-02. Armin van Buuren feat. Wrabel - Feel Again (2:58)
-03. Armin van Buuren & The Stickmen Project - No Fun (2:10)
-04. Armin van Buuren & Sam Gray - Human Touch (2:25)(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236040   (556277) от 15.07.2018
-
-VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monolink - Swallow (Oliver Koletzki remix) (07:16)
-02. Midas 104 - Carry On (07:45)
-03. Andhim - Stay Close To Me (feat Hogni) (07:28)
-04. Eagles & Butterflies - The Last Dance (09:24)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306867   (555488) от 06.06.2019
-
-Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Advent (feat. Lysann Zander) (03:50)
- 02. Westfal (feat. Lysann Zander) (02:16)
- 03. Iklahx (02:36)
- 04. Ak-Do 5 (04:41)(   Читать дальше...   )Жанр: Tech House, Minimal, HouseПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF116D9C5A7CBD50D37A5E1E6A7A04F7B236B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307375   (555079) от 09.06.2019
-
-Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergence (05:38)
- 02. Errors And Faults (06:11)
- 03. Through The Digital Fog (08:28)
- 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236420   (554257) от 18.07.2018
-
-VA - Deep House Party 2018 (Summer Vibes) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Tim Gladis - Intro Deep House Party (Summer Vibes 2018)
-02. Tosch - You Make Me Shine (Radio Mix)
-03. The Chillseekers - New Horizons (Deep House Mix)
-04. The Alien Brainchild Project - Sunrise At The Beach (Radio Edit)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79189B88E75B95255C418F18946BBE3CBBA5264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046222   (552862) от 26.08.2016
-
-VA - Dance Essentials - Armada Music (2016) [FLAC|Lossless|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Armin Van Buuren, W&W - If It Ain't Dutch [02:53]
-02 Dimitri Vegas, Like Mike, Ne-Yo - Higher Place [02:52]
-03 Chuckie, Exodus - Perfect Sky [03:34]
-04 John Dahlback, Luke McMaster - New York City [04:10](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599028C41CD00D2647027A80B1CA8C3B3ECE79AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

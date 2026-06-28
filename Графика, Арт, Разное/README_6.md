@@ -1,3 +1,55 @@
+###  Публикация: 1351919   (1001000) от 14.01.2020
+
+Обои - Mega Wallpaper Pack On Theme "City" [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественные FullHD (1920x1080) обои для рабочего стола - города мира.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B0F4E2A062B54CDA213B257B5228CD1C4906EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352593   (1000998) от 14.01.2020
+
+Обои - Desktop Wallpapers Full HD. Part (551) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672B3A388756994B0808A3D116ADBAF142E26356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352582   (1000990) от 14.01.2020
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (293) [JPG]
@@ -651,62 +703,6 @@ Computer Desktop Wallpapers Collection (05.01.13) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FDCF5CB6A9D1EEA7C25BE281AFC205E9F586B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599074   (999714) от 05.01.2013
-
-60 HQ Wallpapers (05.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E68729631678172A0A4826D02BE6F7C96A8E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599221   (999705) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 15
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999705.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 15
-Название: New 2013 Wallpaper Pack 15
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70B67A228F5D4A14E1C780C9DF826F8B6EB0257
 ```
 
 https://mybot314.ru/tekegram_catalog/

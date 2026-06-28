@@ -1,3 +1,110 @@
+###  Публикация: 974444   (976612) от 11.01.2016
+
+Проекты - Проект ProShow Producer - Revolving Styles [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Презентация создана на основе подредактированных стилей Revolving. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью, папки со стилями и переходами примененными в проекте, саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C8693D15EA06228D992519C581A9A929E65EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974510   (975635) от 12.01.2016
+
+Проекты - RocketStock - Partition [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F429A071E3FD41ED113350EC7E394E8A474525A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974503   (975630) от 12.01.2016
+
+Проекты - Motion Array - Poly Slides [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50AEAFEC44CD744CC2DD55B4515907C5C329D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974723   (975489) от 12.01.2016
+
+Проекты - RocketStock - Ink Narrative [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DAC73D00A7FC81AAB386682FA2F2C13E45DA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974873   (975479) от 12.01.2016
 
 Проекты - VideoHive - Fashion Box - 7827878 [AEP]
@@ -585,115 +692,6 @@ Revostock - Unfolding Film Strips FX - 415609 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98BFACD76E472E2CD1102E5D9F86270508758C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977037   (967711) от 19.01.2016
-
-Проекты - BlueFX - Boxes Slide [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A311A72BCA6EA4EDE7DABCA0AF90FB473180FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745832   (966980) от 15.01.2014
-
-Revostock - Rotating Video Boards FX - 598260 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный красивый проект со вспышками, снопами искр, сопровождающими вращающиеся в пространстве слайды.
-
-• AE CS4 и старше;
-• 15 Фото/видео заполнителей, 9 подписей.(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5861A7C2E5106BEE5C9522EEC35F1778C45606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746001   (966941) от 15.01.2014
-
-Revostock - Rolling Film Strips FX - 435353 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный красивый проект со вспышками, снопами искр, сопровождающими скользящие в виде киноленты слайды.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792BEAA609B2FB42C4B901B86BDC3B1DCB19D9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977177   (966641) от 20.01.2016
-
-Проекты - Motion Array - Energy Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Вашего фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105A9C5C10A61A1356C061ACD82865851C72AE10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1447613   (1031549) от 14.02.2021
+
+Проекты - VideoHive - Lovely Slideshow - 23374066 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект «Lovely Slideshow» выполнен в модном анимационном стиле. Идеально подходит для ваших фото, видео, презентаций, заставок, и многого другого.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBBEC437E386E24DD218C79D08481CFF157EB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447700   (1031538) от 14.02.2021
 
 Проекты - VideoHive - Black and White Photo Gallery in an Art Studio at night - 30364567 [AEP]
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35CA1E922C384752276F50C688A6CA33342D69D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463172   (1020572) от 17.04.2021
-
-Проекты - VideoHive - Family Photo Slideshow - 31684473 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020572.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Family Photo Slideshow» - стильный элегантный проект для создания семейного слайд шоу посвященного морской тематике.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072AED5F1CE4F80E036D9299E29B2B8DEAF2E22A
 ```
 
 https://mybot314.ru/tekegram_catalog/

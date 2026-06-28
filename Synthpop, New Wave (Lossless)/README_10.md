@@ -1,3 +1,119 @@
+###  Публикация: 1534635   (686721) от 06.03.2022
+
+LAU - Circumstance (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undecided (4:11)
+02. Give Her Your Love (3:42)
+03. What To Do (4:29)
+04. Broken Hearts (3:02)(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FE233E63AA4F3774E8A11E2CD8F3A95BD79A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534633   (686705) от 06.03.2022
+
+Aivö (Aivo) - Infinite Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Sovietwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Perfect City (4:19)
+02. Apollo-Soyuz (4:03)
+03. Neon Way (3:32)
+04. Out of Control (3:46)(   Читать дальше...   )Жанр: Synthwave, Sovietwave, SpacesynthПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C596A46C0167DEA2D452B59101575F9B491FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534634   (686573) от 06.03.2022
+
+Eisfabrik - Life Below Zero (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror (4:19)
+02. Saving Shore (4:08)
+03. Eins mit dem Wind (4:37)
+04. Wait for a Sign (4:14)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D458C35AF8744E7783153DBCB87701C50247C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403894   (686321) от 22.08.2020
+
+Erasure - The Neon (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Now (Think I Got A Feeling)
+02. Nerves of Steel
+03. Fallen Angel
+04. No Point in Tripping(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3882F5567546F14CB01E7A86E8DCC53AD2445590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404181   (684269) от 23.08.2020
 
 Midnight Danger - Chapter 2: Endless Nightmare (2020) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
@@ -630,122 +746,6 @@ Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:840D0E6868104B0A266ECD07F6BC90FC344984E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227598   (644737) от 27.05.2018
-
-M.I.N.E (Marcus Meyn of Camouflage) - Unexpected Truth Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One
-02. Same but Different
-03. Meormy
-04. Undone(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03722D32D74F28402E23EA3BCDE2E289E3F3844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541825   (642842) от 04.04.2022
-
-Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Contact (00:03:55)
-02 - Love Scene in a Neon City (00:03:33)
-03 - Falling (00:03:03)
-04 - It's a Matter of Time (00:04:35)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E824E0F5D888EF37921681E1977543039139CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541893   (642728) от 04.04.2022
-
-Dmitriy N'Elpin (Dmitriy Nelepin) - Universe 2 Beyond Consciousness (2021) [FLAC|Lossless|image + .cue] <Electronic, Industrial, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets of the Universe
-02. Space hunters
-03. Dark Planet
-04. Droid attack(   Читать дальше...   )Жанр: Electronic, Industrial, Synth-popПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D7A0483DED304D3F179F5693E642B3292BEF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142553   (640907) от 15.06.2017
-
-Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noticeable One
-02. Windows
-03. It Ain't None Of Your Business
-04. Destination Unknown(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
 ```
 
 https://mybot314.ru/tekegram_catalog/

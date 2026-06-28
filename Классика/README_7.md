@@ -1,3 +1,32 @@
+###  Публикация: 867738   (901093) от 09.02.2015
+
+Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: Wiener Philharmoniker, Karl Bohm (1974-1978) remastering 2001 [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карл Бём тесно сотрудничал с Венским филармоническим оркестром, осуществил с ним много записей. В 1967 г. был назван почётным дирижёром этого оркестра. В 1974 г. осуществил полную запись симфоний Моцарта. Дважды получал музыкальную премию «Грэмми».Wolfgang Amadeus Mozart
+01. Concerto for Piano and Orchestra No.27 KV.595 I.Allegro (14:31)
+02. Concerto for Piano and Orchestra No.27 KV.595 II.Larghetto (09:01)
+03. Concerto for Piano and Orchestra No.27 KV.595 III.Allegro (09:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100226   (901053) от 03.02.2017
 
 Mikalojus Konstantinas Ciurlionis - 1875 - 1911 (2000) Box Set [FLAC|Lossless|image + .cue] <Romantic, Classical>
@@ -717,35 +746,6 @@ Magdalena Kozena - Le Belle Immagini (2001) - Mozart, Gluck, Myslivicek; [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF320A2D4D16C991D1992EFFC0D681CE3AEEF531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993404   (895521) от 05.03.2016
-
-Renee Fleming - The Art Of Renee Fleming (2012), compilation [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ave Maria, D839 (Schubert) (4:21)
-02.  Casta Diva (Norma - Bellini) (7:36)
-03.  Lo son l'umile ancella del Genio creator (Adriana Lecouvreur - Cilea) (3:57)
-04.  Ah! je veux vivre (Waltz Song) (Romeo et Juliette - Gounod) (3:42)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D9EAC7E24C4E5F6904B76B7EA16312E0B2CA73
 ```
 
 https://mybot314.ru/tekegram_catalog/

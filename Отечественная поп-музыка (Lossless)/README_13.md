@@ -1,3 +1,61 @@
+###  Публикация: 1048580   (545512) от 03.09.2016
+
+#2Маши - Теперь нас двое (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Теперь нас двое
+02. Мысли
+03. Птицы
+04. Свободные линии(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF1786914029A65721B3DFDC5063FE602DFD15F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049041   (544248) от 04.09.2016
+
+Plazma - Take My Love (2000) Reissue, 2004, CD Land [FLAC|Lossless|image + .cue] <Pop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take My Love
+02. The Sweetest Surrender
+03. Memories
+04. Jump In My Car(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FA04AC97039566E881DF2677F4E697E8A8B931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049844   (542019) от 06.09.2016
 
 VA - Вас Поздравляют Звёзды! (2008) [APE|Lossless|image + .cue] <Pop>
@@ -678,64 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAD74B587B863F0A681D6A7EDC84FC74E6299CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054710   (490209) от 21.09.2016
-
-Фанки - 3 альбома (2000-2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Только тебе
-02 - Игрушка
-03 - Птицы
-04 - Планета(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588DB0985CC6243093E553AFCCC4445E469DB690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937334   (490054) от 14.09.2015
-
-Сёстры Роуз - Бродяга (1996) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бродяга
-02. Твой поцелуй
-03. Ты - чужой
-04. Осень(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185402BD885BACBD8A7D752016F70844D756194A
 ```
 
 https://mybot314.ru/tekegram_catalog/

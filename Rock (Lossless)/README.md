@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1878252   (1074560) от 
+
+Riverside - Lost 'N' Found - Live In Tilburg (2017) [FLAC|Lossless|image + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074560.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lost (7:57)
+ 02. Feel Like Falling (5:37)
+ 03. Hyperactive (5:30)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E029C2C97E827DD5CAAD094D6443F1443D2C1824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877629   (1074138) от 22.06.2026
+
+VA - Ode: Favourite Ballads 1967-1995 (1995) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rainbow - Catch The Rainbow - 6:32
+02 - W.A.S.P. - The Idol - 8:40
+03 - Deep Purple - Solitaire - 4:42
+04 - Elton John - Blessed - 5:02(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D77DB68F0B6A8855AC9C3151CBE81650C32C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877467   (1073904) от 
+
+1927 - ...Ish (1988) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Love Me (4:21)
+02. That's When I Think of You (4:14)
+03. If I Could (3:41)
+04. You'll Never Know (3:41)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, AORПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470DCEBAF17E536A71207E4D2D851E0D98F8FFD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876917   (1073744) от 17.06.2026
+
+Pussy Riot - CYKA (2026) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Left (00:02:33)
+02. Pain / боль (00:03:18)
+03. Nothing To Lose (00:04:42)
+04. Cyka (00:04:18)(   Читать дальше...   )Жанр: Punk Rock, Pop PunkПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99903B8B871E15EB257B3F3983B6452AFD10E530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876925   (1073739) от 17.06.2026
+
+Beth Hart - You Still Got Me (2026) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savior With A Razor (feat. Slash) (4:48)
+02. Suga N My Bowl (feat. Eric Gales) (3:34)
+03. Never Underestimate A Gal (3:08)
+04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD55F881BF31EFB8F7255201723DDF930881D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876593   (1073460) от 
 
 Ryan Adams - The Suicide Handbook (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt Country, Acoustic>
@@ -601,151 +746,6 @@ VA - 1990's Rock (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6424DDE5A182F3C8A0547CC0CBEC69CD76B63395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871800   (1069930) от 18.05.2026
-
-Riffstone - Mythical Creatures (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Griffin (7:55)
-02. The Dragon (6:51)
-03. The Phoenix (6:53)
-04. The Hydra (8:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC40FA9D699DF3CD5CDF659527553EDCCB6AFCAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871991   (1069788) от 20.05.2026
-
-Jethro Tull - Under Wraps (2026) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069788.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 2026 Drums
-CD2 - Original Drums
-CD3 - 2026 Drums
-CD4 - Original Drums(   Читать дальше...   )Жанр: RockПродолжительность: 05:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90AE02B5569D8E42E76DE267D1CB84277BCA3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870761   (1069300) от 15.05.2026
-
-Barenaked Ladies - Disc One: All Their Greatest Hits (1991-2001) (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Apartment [0:03:22.03]
-02. Falling for the First Time [0:03:39.10]
-03. Brian Wilson (live) [0:04:44.67]
-04. One Week [0:02:48.68](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 01:13:31.773 (194 559 204 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E5AA4EC071078900F56D5CC5A6A1102436DDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869561   (1069174) от 11.05.2026
-
-Jane Wiedlin - Tangled (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069174.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Rain On Me	5:28
-2		At The End Of The Day	4:04
-3		Guardian Angel	4:38
-4		Flowers On The Battlefield	4:24(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72B3D862B695B3A5069AA8A22304482FB00365C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870254   (1069173) от 11.05.2026
-
-Return - Fourplay (1991) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069173.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Tell Me (That You Want Me To Stay) 4:12
-2		Having Fun 3:29
-3		All He Ever Wanted 2:57
-4		Still Waiting 3:04(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5F8FEE3607628912DDE10420CF8F599402AC47
 ```
 
 https://mybot314.ru/tekegram_catalog/

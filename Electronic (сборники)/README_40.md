@@ -1,3 +1,148 @@
+###  Публикация: 1375374   (865501) от 14.04.2020
+
+VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tom Nihil - Pain
+003. Joao Ferrari - I Wanna (Original Mix)
+004. Stephan Crown - Rinasab (Original Mix)
+005. Erofex - Foggy (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 12:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019C1D838BE21BF5F5F5F8F07897BD2C2B8A69F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375375   (865500) от 14.04.2020
+
+VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samsara - Rites Of Autumn (Original Mix)
+002. Semantic Maze - Fine (Original Mix)
+003. Drym - Hypnotic (Extended Mix)
+004. Enea Marchesini - Sensations (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 12:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4457668E8A0E5FB08E82FD2A8775D6FCA3EAD30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874167   (864994) от 02.03.2015
+
+VA - Music For Everyone - Club House Vol.3 (2015) [MP3|320 кб/с]<House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864994.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robert Feelgood - Make It Hot (Block & Crown Clubmix)
+2. Jay Vegas - Say To Ya (Original Mix)
+3. S.O.S. Band - The Finest (CalumHood Remix)
+4. John Gordon - One Love (Original Mix)(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 01:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6D10EC8B107AC12C4128EB38567F57F00E8B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999360   (864827) от 22.03.2016
+
+VA - Sexual Healing Lounge: Best of Erotic Tandra Cafe for Lovers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pattern Mixer – Sex at the Beach – Dowbeat Buddha Chill and Tandra Mix
+ 02. Vegan T-Bones – Dirty Mind – Season 6 Mix
+ 03. Urban Felix – Watch Me – Intimate Shower Relaxation Mix
+ 04. Guilty by Innocence – Thief of Heart – Fading Lights of Sexyness Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D459BF1A87AE81AF7DB60FCC031A4B002774A720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375759   (864011) от 15.04.2020
+
+VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Antaluk - Gita Sun
+002. Estefano Haze - Spirituality In Action
+003. Sunrazers - Karma
+004. Eguana - Holographic Artifact(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 12:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375754   (863885) от 15.04.2020
 
 VA - Pool Party Techno (2020) [MP3|320 Kbps] <Techno, Tech House>
@@ -600,151 +745,6 @@ VA - Blow The Speakers: EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Club Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C74B5F905350BD9097F11DEDAFE285DF053312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498456   (857807) от 26.09.2021
-
-VA - Try The Better World (2021) [MP3|320 Kbps] <Ambient, Meditation, Relax, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857807.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Federico Durand - Laurel
-002. Chris Decato - A Promise
-003. Jas Shaw - Snacks Of Carelessness
-004. Humans By Billions - Le Livre(   Читать дальше...   )Жанр: Ambient, Meditation, Relax, New AgeПродолжительность: 09:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F780EA8300CD6985253B7F7A40931D6455D51979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000628   (857562) от 26.03.2016
-
-VA - Trance Desire Volume 64 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moreno J - Welcome Home (06:06)
-02. Wellenrausch feat. Andre Berger - Virtual Self (Album Mix) (06:57)
-03. Trance Arts feat. Hysteria! - Still Have a Choice (Uplifting Mix) (05:10)
-04. Sou Kanai feat. Claire Willis - Stay (Dennis Pedersen Remix) (04:54)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1685EE6AA96A475625EF7BDAB56FEDD4E7115F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000659   (857523) от 26.03.2016
-
-VA - Super Dance Party Vol.5 (2016) [MP3|320 кб/с] <Hands Up, Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johanna - When Love Comes (Radio Edit)
-02. C-BooL - Never Go Away (Radio Edit)
-03. Robi & Vir-T Feat. Mike Miller - Don't Ever Look Back (Commercial Club Crew Remix Edit)
-04. Tube Tonic & Dave Cansis - Take Control (Mason Tyler Remix Edit)(   Читать дальше...   )Жанр: Hands Up, Pop, HouseПродолжительность: 05:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B5421BC45BC0C4F3FC36128B552CA0DAFF58E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109594   (857462) от 28.02.2017
-
-VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Omniks - Looking For You (Original Mix)  6:48
-02.  Tycoos & First Sight - Wonderland (Original Mix)  6:12
-03.  Raz Nitzan & Kate Louise Smith - This Time (Steve Allen Remix)  4:44
-04.  Delta IV - Forever Home (Betsy's Heart Pt. 2) (Original Mix)  9:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 01:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BF7922C416C79FA16739239B4B4EC40E9DB45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000605   (857427) от 26.03.2016
-
-VA - Новая Жажда Скорости Без Тормозов vol.3 (2016) [MP3|320 кб/с] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zario - Eyes On You (Original Mix)
-02. Blasco Feat. Szen - Hurt (Extended Mix)
-03. Norlak - Hurt You (Darklight Remix)
-04. Dr Rude - Apocalypse (Extended Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

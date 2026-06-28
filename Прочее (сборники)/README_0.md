@@ -1,3 +1,90 @@
+###  Публикация: 1872885   (1070663) от 25.05.2026
+
+AI - Russian Poets Covers Compilation Part 19 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А. Ахматова, A.M. Artimusic - Со Дня Купальницы-Аграфены…
+02 - М. Волошин, Lus Aleksandrs - Зеркало
+03 - И. Бунин, Wps - Вечер
+04 - С. Надсон, Поэтический Оазис - Только Утро Любви Хорошо...(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD00B759F62BD64F60DB2CDE9F44819DFEEA248B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872884   (1070662) от 25.05.2026
+
+AI - Russian Poets Covers Compilation Part 18 cover by Dmitrii Razinov (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я. Смеляков, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Вот Опять Ты Мне Вспомнилась, Мама
+02 - М. Цветаева, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Посвящение Женщине В Гибельном...
+03 - М. Цветаева, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Так Будет
+04 - М. Цветаева, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Ты Проходишь (   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B766F3A1D363CBBF63B32EC27E9C72367A4D3CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872882   (1070661) от 25.05.2026
+
+AI - Russian Poets Covers Compilation Part 17 cover by iSenin (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Гори, Звезда Моя
+ 02 - Я Покинул Родимый Дом
+ 03 - О Красном Вечере
+ 04 - Месяц Рожу Полощет В Луже(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896395A81D39842922C5E56CC49DA2BD0F413D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873088   (1070629) от 26.05.2026
 
 VA - Music News For Forum vol.168 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -658,93 +745,6 @@ Daniele Gazzarin - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Country, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E015F451D0055E0ED35303ABCE49D817D87856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868381   (1067458) от 30.04.2026
-
-Ai - Russian poets covers 8 compilation (2023) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А. Блок, Suno Verse Music - Сны
-02 - М. Цветаева, Suno Verse Music - Книги В Красном Переплёте
-03 - Н. Гумилёв, Suno Verse Music - Память
-04 - А. Блок - Ночь, Улица, Фонарь, Аптека(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF8808211B50B20B588EF1806E3EE9F9351D10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867880   (1067121) от 28.04.2026
-
-Ai - Russian poets covers 7 compilation (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - С. Есенин - Ну, Целуй Меня, Целуй...
-02 - А. Ахматова - Ничего Не Скажу, Ничего Не Открою...
-03 - С. Есенин - Весна На Радость Не Похожа
-04 - А. Пушкин - Узник(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A17A37262BA8730B3090DD921956FBBE7E0705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867328   (1066933) от 25.04.2026
-
-Ellie Ray - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - New York Forever
- 02 - Lost Amore
- 03 - Vita
- 04 - Too Far Gone(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Pop, Dance, OtherПродолжительность: 01:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91413F317041265B7E38DA5D600DEAF19C6B501A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1255354   (366040) от 17.10.2018
+
+VA - The Blues White Album (2002) [MP3|320 Kbps] <Blues, Cover>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Thackery & The Drivers - Why Don’t We Do It In The Road? [5:34]
+02. Lucky Peterson - Yer Blues [5.20]
+03. Anders Osborne - Happiness Is A Warm Gun [3:26]
+04. Kenny Neal, Lucky Peterson, Tab Benoit - Revolution [4:54](   Читать дальше...   )Жанр: Blues, CoverПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FE7B12EE0C6BD4AFB291A64B5989F9E30F83FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950797   (365993) от 28.10.2015
 
 Dudley Taft - Skin and Bones (2015) [MP3|320 кб/с]<Blues Rock>
@@ -716,35 +745,6 @@ Black Cat Bone - Growl (2015) [MP3|320 кб/с]<Blues Rock, Dirty Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83813DF21E41C399BB79C72F0C05F37CE896FE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953797   (344765) от 06.11.2015
-
-Amos Milburn - Blues, Barrelhouse & Boogie Woogie: 1946-1955 (1996) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  After Midnite (2:55)
-02.  My Baby's Boogying (2:27)
-03.  Down The Road Apiece (2:57)
-04.  Amos' Blues (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A2A9140D87B322A66D672D15A7C3A1D0AFF8D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

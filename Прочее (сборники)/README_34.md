@@ -1,3 +1,208 @@
+###  Публикация: 1105347   (876554) от 17.02.2017
+
+VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garage, Funk, Trap, Future Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 unlimited - Get Ready For This (Original 12'' Version) 05:54
+02. Sultan & Shepard X Sak Noel - Samba Sixteen X Trumpets (Dibs & Mgm Edit) (Clean) 04:40
+03. Borgeous X Rvssian & Mri X Sean Paul X 7 Skies & Sissa X Burns - Ride It X Beauty Queen (Dibs & Mgm Edit) (Clean) 03:49
+04. The Chainsmokers F. Xylo X Hall & Rush - Setting Fires (   Читать дальше...   )Жанр: Synthpop, Bigroom, UK Garage, Funk, Trap, Future BassПродолжительность: 05:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105625   (876457) от 17.02.2017
+
+VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte] (2015-2016) [MP3|256-320 Kbps] <Chilltrap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Yvette - Stars & Moon (Elonious Remix) [03:31]
+02. Disclosure - Help Me Lose My Mind (Mazde Remix) [03:54]
+03. Fademan & Oleg K Feat Lime Kid - Wake Me Up [03:43]
+04. Coeur De Pirate - Wicked Games (Huglife Remix) [03:57](   Читать дальше...   )Жанр: ChilltrapПродолжительность: 14:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373970   (876423) от 08.04.2020
+
+VA - Top 100 Greatest Songs of All Time (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876423.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen - Bohemian Rhapsody
+002. Red Hot Chili Peppers - Otherside
+003. Coldplay - Paradise
+004. Coldplay - Viva La Vida(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 07:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81568ADFAC441616D10BE7551332E1D9C1574AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105407   (876355) от 17.02.2017
+
+VA - Зайцев.Нет - Лучшие Новинки Февраля (2017) [MP3|320 Kbps] <Поп, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zayn Malik & Taylor Swift - I Don't Wanna Live Forever 4:05
+002. Imagine Dragons - Believer 3:24
+003. Альбина - Я люблю тебя 3:58
+004. Дискотека Авария - Моя любовь 3:08(   Читать дальше...   )Жанр: Поп, Dance, RockПродолжительность: 03:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCDF53DB5ACC3ACFF2A679E2E505B8005C98991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105551   (876343) от 17.02.2017
+
+VA - Blues and Rock Ballads (2017) [MP3|160-320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876343.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Timo Gross - Gone Mad 5:46
+002. Derrick Procell - 09. Who Will Tell Lucille 4:44
+003. Lasso Spells - Raygun Blues 4:09
+004. Will Matla - Bhavatu Sabba Mangalam 4:18(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 07:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8E5CA5DA61CBA124D30995B70EF75AD6C25976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765198   (876331) от 11.03.2014
+
+VA - The Official UK Top 40 Singles Chart (09-03-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Route 94 Feat Jess Glynne - My Love  (4:22)
+02. Pharrell Williams - Happy  (3:53)
+03. Clean Bandit Feat Jess Glynne - Rather Be  (3:48)
+04. Katy Perry Feat Juicy J - Dark Horse  (3:36)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132293E59CAF18AD527AE960D0FA8DB7EABE859A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997256   (875735) от 16.03.2016
+
+VA - Clockwork Dancecore (2016) [MP3|320 кб/с] <Dancecore, Hand Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A. C. Band - The End (Extended Mix)
+02. DJ Alex Nikitin - February
+03. Deline project - We are one (Radio edit)
+04. ALEX SANTERO - Rainbow(   Читать дальше...   )Жанр: Dancecore, Hand UpПродолжительность: 03:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3195980533CE2B34E9FA9A6852663F4C663E65A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105671   (875088) от 18.02.2017
 
 VA - Just Spin (2017) [MP3|320 Kbps] <Pop, RnB, Dance, Alternative>
@@ -543,207 +748,6 @@ VA - KISS FM - TOP 40 Март (2016) [MP3|320 кб/с] <Dance, House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:817085C2C8BD99106A738CEFBBDF2081179351BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997854   (871753) от 18.03.2016
-
-VA - Русский Музыкальный Фонд (2016) [MP3|320 кб/с] <поп, шансон, рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871753.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алла Пугачёва - Тянет сердце руки
-002. Катерина Голицына - Что случилось с солнцем
-003. Пламя - Не повторяется такое никогда
-004. Сантьяга - Какая есть(   Читать дальше...   )Жанр: поп, шансон, рокПродолжительность: 09:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73DF2FEE98BB64C34FA57604DE2C919D6F49E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106526   (871390) от 20.02.2017
-
-VA - Rock Blues And Country Mix (2017) [MP3|256-320 Kbps] <Rock Blues, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871390.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jose Luis Pardo - The Dirty Story Of Dirty D 4:14
-002. City Space - Can't Stop The Feeling - Acoustic Guitar 2:53
-003. Ana Popovic - In A Sentimental Mood 3:38
-004. Kris Kristofferson - Loving Her Was Easier (Than Anything I'll Ever Do Again) 3:47(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 08:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CB3B85CFA550D8B19BCC4F53E436BE87638ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374764   (871191) от 11.04.2020
-
-VA - The Official UK Top 40 Singles Chart 10.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Drake - Toosie SlideЖанр: Pop, Dance, OtherПродолжительность: 02:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B1D767A64EC8DA46AE2282E0018971F0306024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374720   (870665) от 11.04.2020
-
-VA - Top 100 Зайцев.нет Март (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870665.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo feat. Sasha Sloan - I'll Wait 3:35
-002. ENJOYME - Поцелуйчик 2:52
-003. H1GH - Шатаюсь по дворам 2:26
-004. BLR & Danny Quest - Escapar 3:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36C6586348B7562F07548755C96CDFD29E045A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374887   (870502) от 11.04.2020
-
-VA - Романтика: Хиты на все времена (2020) [MP3|320 Kbps] <Pop, Rock, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870502.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris De Burgh - The Lady In Red 4:05
-002. Berlin - Take My Breath Away 4:16
-003. George Michael - Careless Whisper 5:03
-004. Demis Roussos - From Souvenirs To Souvenirs 2:35(   Читать дальше...   )Жанр: Pop, Rock, Soul, BalladsПродолжительность: 09:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C81B51DD782BEA594EB43D9F6CE35C56E2E4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998143   (870137) от 19.03.2016
-
-VA - Весенние хиты. Сборник популярных песен (2016) [MP3|256-320 кб/с] <Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miriam Bryant - Serendipity (02:17)
-02. Полина Гагарина - Шагай (02:33)
-03. Юлия Holod - Ты Мой Последний (02:35)
-04. L'one - Адреналин (02:51)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 07:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2189C32FDC4497D1A8A24C30A9F3872507640026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106878   (870065) от 21.02.2017
-
-VA - Dance The Movement (2017) [MP3|251-320 Kbps] <Dance, Pop, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870065.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aneeta Beat Ralphi Rosario - Button Pusha  (Dj Kue Club Mix) 4:01
-002. Arsenium - Rumadai (Dj Kelly Remix) 5:06
-003. Avrora Polaris - Bassregion Remix 4:19
-004. Boogie Bitches  Yastreb & Kf - Bad Bitches (Alexey Gavrilov Mash Up) 3:19(   Читать дальше...   )Жанр: Dance, Pop, Club, HouseПродолжительность: 09:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4D0F55A28C31A04A6C63172F08E1905B5E01A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

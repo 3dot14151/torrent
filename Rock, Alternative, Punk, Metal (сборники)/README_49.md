@@ -1,3 +1,177 @@
+###  Публикация: 1774206   (30327) от 20.01.2025
+
+Accept - Compilation (2025) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30327.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Balls to the Wall [05:43]
+002. The King [04:12]
+003. Like A Loaded Gun [04:19]
+004. The Best Is yet to Come [04:48](   Читать дальше...   )Жанр: MetalПродолжительность: 12:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8DBA1CCFC64DA96D0E9927B8C7135C32640F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774342   (30069) от 23.01.2025
+
+Чиж & Co - Compilation (1991-2021) [MP3|320 Kbps] <Blues rock, Folk rock, Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дверь в Лето (О Любви 1995)
+02. Дополнительный 38-й (Перекрёсток 1994)
+03. Ветер Вырывает Из Рук (Последние Деньги) (О Любви 1995)
+04. Еду, Еду (Нечего Терять 1999)(   Читать дальше...   )Жанр: Blues rock, Folk rock, Rock & RollПродолжительность: 07:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DCF7D4ACAEBAC8BFA868DA7C59BDB10D248F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774589   (30049) от 23.01.2025
+
+Manowar - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kings of Metal [03:44]
+02. March of the Heroes into Valhalla [02:39]
+03. Hail and Kill [05:57]
+04. Black Wind, Fire and Steel [05:15](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 04:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A8419E00DF2207755D77427880D1C0D5469C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774802   (30028) от 23.01.2025
+
+W.A.S.P. - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal (Fuck Like A Beast) [03:08]
+02. I Wanna Be Somebody [03:44]
+03. L.O.V.E. Machine [03:52]
+04. The Flame [03:42](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 07:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484830FB0AC50D22A64F0DB8A786E62B07BDE2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774598   (29813) от 25.01.2025
+
+Accept - Compilation (1979-2024) [MP3|320 Kbps] <Heavy metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stampede (Blind Rage 2014)
+02. Stalingrad (Stalingrad (Brothers In Death) 2012)
+03. Dying Breed (Blind Rage 2014)
+04. The Best Is Yet To Come (Too Mean To Die 2021)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 09:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED6E0F907D7AC6B0FDDA8EC4E9F5D302B06FF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775126   (29780) от 25.01.2025
+
+U.D.O. - Compilation (2025) 2 CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Isolation Man [04:51]
+002. Midnight Mover (Live) [03:24]
+003. The Flood [04:04]
+004. Rebel Town [05:31](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 15:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299355F2049AF6936A408F1AD516F1C1956D2DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776064   (29278) от 30.01.2025
 
 Ronnie James Dio - Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765345   (21592) от 13.04.2025
-
-Вячеслав Бутусов - Compilation (1985-2025) [MP3|320 Kbps] <Art rock, New wave, Electronic, Post punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бесконечность (Модель Для Сборки 2007)
-02. Настасья (Настасья EP 2000)
-03. 1915 (Аллилуия 2019)
-04. Аделаида (Disco version) (Аделаида EP 2012)(   Читать дальше...   )Жанр: Art rock, New wave, Electronic, Post punkПродолжительность: 05:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766155   (21432) от 14.04.2025
-
-blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skate punk, Pop punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurt (Interlude) (One More Time... Part 2 2024)
-02. Adam's Song (Enema Of The State 1999)
-03. All The Small Things (Enema Of The State 1999)
-04. Anthem (Enema Of The State 1999)(   Читать дальше...   )Жанр: Punk rock, Alternative, Skate punk, Pop punkПродолжительность: 01:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519E19B0610245290A2C6F7C92ACEAF64EB446BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760864   (21386) от 15.04.2025
-
-30 (Thirty) Seconds To Mars - Compilation (2002-2023) [MP3|320 Kbps] <Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Of One (A Beautiful Lie 2005)
-02. Kings & Queens (This Is War 2009)
-03. Stuck (It’s The End Of The World But It’s A Beautiful Day 2023)
-04. The Kill (Bury Me) (A Beautiful Lie 2005)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 03:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD911FB2FFD85224C6DA20923306257BEA84AB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791645   (21310) от 15.04.2025
-
-Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All Messed Up Feat. Martina McBride
-  02.  Jealous
-  03.  One Way Ticket to the Moon
-  04.  You Talk a Lot(   Читать дальше...   )Жанр: Rock, Pop rock, Soft RockПродолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772F7501ED54764F8E3723E26A9D01949376E5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793232   (20528) от 23.04.2025
-
-VA - Rock Hits Of Today (2025) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rudi Biber - Call My Number (04:01)
- 002. The Doobie Brothers - China Grove (03:15)
- 003. Roddy Frame - Bigger Brighter Better (03:27)
- 004. Dio - Push (04:09)(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 12:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B032FEBF45E97C9DE45F8B28DD3D0C2C87D050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793486   (20445) от 24.04.2025
-
-Scorpions - Compilation (1972-2022) [MP3|320 Kbps] <Hard rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living For Tomorrow (Live Bites 1995)
-02. Where The River Flows (Pure Instinct 1996)
-03. Believe In Love (Savage Amusement 1988)
-04. When You Came Into My Life (MTV Unplugged-Live In Athens 2013)(   Читать дальше...   )Жанр: Hard rock, BalladsПродолжительность: 14:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC9C9F60B9FB9DBD446C45ECA2F460EC1B3A958
 ```
 
 https://mybot314.ru/tekegram_catalog/

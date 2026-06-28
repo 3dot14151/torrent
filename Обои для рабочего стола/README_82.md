@@ -1,3 +1,29 @@
+###  Публикация: 596975   (130977) от 31.12.2012
+
+New year wallpapers 2013 (30.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52764B07E0F698B2FE943CF10269B27F521D3E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597023   (130905) от 31.12.2012
 
 New year wallpapers 2013 (31.12.12) [Wallpapers]
@@ -700,36 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838ED7FAA00DE083DC81075748C1A7BD0AEE1E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470019   (97175) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 100
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97175.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 100
-Название: Desktop Wallpapers Pack 100
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46A09050035DF889B85E37B836FCF1D6974FF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

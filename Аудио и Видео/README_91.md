@@ -1,3 +1,168 @@
+###  Публикация: 1523323   (751441) от 11.01.2022
+
+Daminika - Snatches of Memory (2021) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snatches of Memory (Original Mix) (4:54)
+02. Another Time (Original Mix) (5:49)
+03. The Colors of the Evening (Original Mix) (4:20)
+04. My Doubt (Original Mix) (4:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E538312A6F069E94A5E95F3B377C25D555785E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888872   (751405) от 16.04.2015
+
+Приключения Паддингтона / Paddington (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь, это медведь по имени Паддингтон из дремучего Перу. Он приехал в Лондон, чтобы обрести семью и стать настоящим английским джентльменом. На пути к этой цели его ожидают невероятные приключения, полные юмора и опасностей.Производство: Великобритания, ФранцияЖанр: Комедия, приключения, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Николь Кидман, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Мадлен Харрис, Сэмюэл Джослин, Джим Бродбент, Питер Капальди, Имелда СтонтонПеревод: Профессиональный (дублированный) (Лицензия)Продолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B40A53A1C86CEA51FE72FAD1CF9B8BA6F4050A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281447   (751223) от 08.02.2019
+
+Химера / Braid (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провернуть ограбление, художницы-авантюристки Петула и Тильда затевают игру в «дочки-матери» с безумной хозяйкой таинственного особняка. Но скоро преступницы оказываются в зловещем лабиринте кошмаров, извращений и галлюцинаций, полном болезненных фантазий и садистских пыток. Кто выйдет живым из этого смертельного квеста?Производство: США / Somnia Productions, Wandering BardЖанр: Ужасы, Триллер, ДетективРежиссер: Митци ПейронеАктеры: Мадлен Брюэр, Сара Хэй, Скотт Коэн, Имоджен Уотерхаус, Мэри Лурман, Дхони Миддлтон, Джилл Далтон, Таи Лин Сандху, Маурицио Овейлл, Брэд КалькатерраПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B327A4C882C7509440EEFA5B357F9E363DA777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888877   (751190) от 16.04.2015
+
+Приключения Паддингтона / Paddington (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь, это медведь по имени Паддингтон из дремучего Перу. Он приехал в Лондон, чтобы обрести семью и стать настоящим английским джентльменом. На пути к этой цели его ожидают невероятные приключения, полные юмора и опасностей.Производство: Великобритания, ФранцияЖанр: Комедия, приключения, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Николь Кидман, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Мадлен Харрис, Сэмюэл Джослин, Джим Бродбент, Питер Капальди, Имелда СтонтонПеревод: Профессиональный (дублированный) (Лицензия)Продолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08A49E487A782B9491743A458C93414F6E8108A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523559   (750006) от 12.01.2022
+
+VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadja Lind - Limbus (Hernan Cattaneo & Soundexile Remix 1) (7:29)
+02. Helmut Ebritsch - Das Ermoeglichen (8:00)
+03. Klartraum, Nadja Lind, Helmut Ebritsch - Manifestation (Dapayk Solo Remix) (6:34)
+04. Klartraum, Nadja Lind, Giuliano Rodrigues - I Can't Believe (Klartraum Remix) (8:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8E4EB48F27D61291A4B9A37F3A219A3963B7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523562   (750005) от 12.01.2022
+
+VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Holt - Marrakech Dreaming (Stephane Salerno Remix) (7:40)
+02. Marga Sol - Sacred Passage (Jack Essek Remix) (7:31)
+03. Jose Solano - Jangal (8:02)
+04. Stefan Alexander Thomas - Ozone (Majed Salih Remix) (7:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A44C2AE236F933F405E121704D2C6A023AE4405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523533   (750003) от 12.01.2022
 
 VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
@@ -543,180 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC1E219A51647A131DC0A07A46053DF83B48A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523744   (748485) от 13.01.2022
-
-VA - Deep Voyage 3 (2021) [AAC|~321 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Luke - Commodious (Original Mix) (5:29)
-02. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
-03. Soulfreqtion - Altered State (Original Mix) (8:45)
-04. Matías Delóngaro - Viaje Nocturno (Original Mix) (7:32)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419082BC99FAC2EA66896594A09AD53E0D454EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523739   (748484) от 13.01.2022
-
-VA - Deep Voyage 1 (2019) [AAC|~326 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow - Myth of Living (Original Mix) (6:18)
-02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
-03. Deep Spelle - My Heart (Ilias Katelanos Remix) (7:22)
-04. Cedric Salander - Feel Your Touch (Original Mix) (7:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334D61AAF68E802F3B009ACB6015E47DA27CCDBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523732   (748483) от 13.01.2022
-
-VA - Bar Lounge Costes, Vol. 3 (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Starry Night (Original Mix) (5:47)
-02. Eivissarts - The Unknown (Original MIx) (5:54)
-03. Chris le Blanc, Florito - Time to Go (Revisited Remix) (4:33)
-04. Chillson, Marc Hartman - Like the River Flows (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102EFA2C59EF1E89ACE5F48D5AB855729DF468DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523731   (748482) от 13.01.2022
-
-VA - Bar Lounge Costes, Vol. 2 (2019) [AAC|~299 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillson, Marc Hartman - Inner Voices (Original Mix) (4:26)
-02. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)
-03. Soul Trend - You Got Me Wrong (Original Mix) (4:55)
-04. Airily - Manhattan City Lights (Latin Fragrance Mix) (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3527BC91E2FB9074CA878E00F4078FF84418E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523733   (748481) от 13.01.2022
-
-VA - Bar Lounge Costes, Vol. 4 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
-02. Lounge Groove Avenue - Count the Days (4:21)
-03. Frank Neo - Time and Space (4:33)
-04. Simply Chill, Maison Musiq - I Go Now (Original Mix) (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B06FFC4A1254754F05A0D1E27EF750DF5FA150F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523839   (748480) от 13.01.2022
-
-VA - Delicious Chill: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digby Jones, Lushlo - Beaulieu (Mellow Mix) (2:25)
-02. Living Room - Evening Groove (3:42)
-03. Gary B - Havana Soul (Original Mix) (4:29)
-04. Lounge Groove Avenue - Soul Cream (Original Mix) (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0472F27B1A48934428F1FBFE7AC3C369879D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

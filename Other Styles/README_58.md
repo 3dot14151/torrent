@@ -1,3 +1,119 @@
+###  Публикация: 1020559   (743867) от 27.05.2016
+
+Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See It Now (3:38)
+02. Guilt Trip (3:29)
+03. If the World Had a Front Porch (3:07)
+04. Texas Tornado (3:31)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C76CFFE8BA0D1481AD7AE23CA3950D418C42EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282400   (743623) от 13.02.2019
+
+Andrew Lloyd Webber - The Very Best Of Andrew Lloyd Webber. The Broadway Collection (1996) [FLAC|Lossless|image + .cue] <Musical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murray Head - Superstar
+02. Yvonne Elliman - I Don't Know How to Love Him
+03. Sarah Brightman - Don't Cry For Me Argentina
+04. Mandy Patinkin & Patti Lupone - High Flying, Adored(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D686930CF962E1ED4302A824167F74C430551177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282443   (743615) от 13.02.2019
+
+Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me
+02. Radio Player
+03. Runaway
+04. Somewhere on Fullerton(   Читать дальше...   )Жанр: Pop-Punk, Punk RockПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCC16CED43FFACD37DA0F39451D4506326882BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217433   (743359) от 04.04.2018
+
+Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ease (5:20)
+02. Atme (8:32)
+03. Thank You (6:19)
+04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019549   (742434) от 28.05.2016
 
 Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
@@ -621,122 +737,6 @@ VA - The Best Of Bond... James Bond (2021) Compilation, 2CD [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:887E725841D380665B3CF314294FC61E07A44D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525529   (738776) от 23.01.2022
-
-Ernesto Cortazar - Infinite Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Love (3:47)
- 02. Fairy Tale (3:23)
- 03. Forever Yours (4:57)
- 04. Just Kiss Me (4:08)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BDECBE478D006E8AA6DCB96938BEEEF5EC67F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527037   (737335) от 27.01.2022
-
-Fausto Papetti - Playlist: Fausto Papetti (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Wonderful World (3:24)
- 02. Night and Day (3:19)
- 03. Almeno tu nell'universo (2:58)
- 04. Smoke Gets in Your Eyes (3:49)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F62D5A6A93EBA8C5509FFC94047E788CF22449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397920   (737086) от 23.07.2020
-
-Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (Arr. C. Davis for Orchestra) (3:50)
-02. Voulez-Vous (Arr. C. Davis for Orchestra) (4:36)
-03. Super Trouper (Arr. C. Davis for Orchestra) (4:35)
-04. Money, Money, Money (Arr. C. Davis for Orchestra) (3:11)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6593371BD3133074682D8ACC5FDB011B110C2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837756   (736334) от 29.01.2022
-
-Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736334.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. London Fever (4:10)
-2. Medley - Samba Pa Ti (3:59)
-3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1538037   (664405) от 19.03.2022
+
+Андрей Макаревич - У ломбарда (2013) [AAC|~319 Kbps] <Rock, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пооткрыли вновь церквей... (4:37)
+02. Ох, не вижу я белого свету... (2:04)
+03. Соловки (3:21)
+04. До скорого, брат (Памяти М. Науменко) (3:09)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2CCDA37940C711BE6EE732B5DA92F13DB92258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901565   (664357) от 25.05.2015
+
+Modestep - London Road (2015) Bonus Version [AAC|WEB-DL|256 кб/с]<Dubstep, Trap, Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damien (feat. Funtcase)
+ 02. Make You Mine (feat. Teddy Killer)
+ 03. Machines
+ 04. On Our Own (feat. Culprate)(   Читать дальше...   )Жанр: Dubstep, Trap, Drum & BassПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1591AAEB2102A97E0FD4EEA6A8237C3A9E8A2969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538032   (664351) от 19.03.2022
+
+Андрей Макаревич, Алексей Козлов - Пионерские блатные песни (2013) [AAC|~310 Kbps] <Rock, Pop, Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В кейптаунском порту (2:48)
+02. На Невском проспекте у бара (2:11)
+03. В кепке набок и зуб золотой (5:25)
+04. Юнга Билл (1:44)(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF4154D3DED02E0F7568D88A33FA7AB544BACDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538030   (664345) от 19.03.2022
+
+Андрей Макаревич - Песни под гитару (2013) [AAC|~375 Kbps] <Rock, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Паузы (2:09)
+02. Видеомагнитофон (3:01)
+03. Варьете (3:10)
+04. Здорово, Миша (2:41)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808085F1FB55FAA2CA54307332BFBF953D013455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537894   (664338) от 19.03.2022
+
+VA - Naked Weekend (The Deep-House Affair), Vol. 3 (2019) [AAC|~320 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Hay - Grab A Bite (Amantis Deep Mix) (6:15)
+02. Melanie Jenner - Country House (Original Mix) (3:50)
+03. Club Tribal - Jungle Jungle (Original Mix) (3:31)
+04. Stephane Chazelle - Close To Your Ear (Deep Vibes Mix) (6:49)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8C97ACE3A8A6CBA2D3FF7CF7AEF28A23800D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537893   (664336) от 19.03.2022
+
+VA - Naked Weekend (The Deep-House Affair), Vol. 2 (2019) [AAC|~325 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Beach - Kalinda (Original Mix) (3:32)
+02. Michael Jay Blue - White Limousine (Original Mix) (3:33)
+03. Fashion Glitters - Different Views (Original Mix) (3:35)
+04. John Simmons - Long Gone Desires (Extended Mix) (5:15)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02FE4621A6EE6AC04A9E0A729584FC4E24F78F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537891   (664335) от 19.03.2022
 
 VA - Naked Weekend (The Deep-House Affair), Vol. 1 (2019) [AAC|~328 Kbps] <House>
@@ -546,177 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C900A9946A93F988FB6E8D00BF70F7A7D281E0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902318   (660822) от 28.05.2015
-
-LEGO супергерои DC: Лига справедливости против Лиги Бизарро  / Lego DC Comics Super Heroes: Justice League vs. Bizarro League (2015) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастический мультфильм, где роли главных персонажей играют фигурки мира Лего, расскажет о новой схватке Лиги Справедливости. Они будут противостоять Дарксайду. Этот злодей решил превратить планету Земля в куб. Но Дарксайд так же навредил миру, где проживала Лига Бизарро, в команде которой все герои, являются полной противоположностью Лиги Справедливости.Производство: СШАЖанр: Мультфильм, боевик, комедия, приключенияРежиссер: Брэндон ВиеттиАктеры: Дидрих Бадер, Трой Бэйкер, Джон Ди Маджио, Том Кенни, Фил Моррис, Нолан Норт, Хари Пэйтон, Кевин Майкл Ричардсон, Джеймс Арнольд Тейлор, Тони ТоддЯзык субтитров: Русский, АнглийскийПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA3D4C08363B7C110DE5DF526BB93002FC77ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538563   (660325) от 23.03.2022
-
-Миша Голдовский - Начало (2012) [AAC|~323 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Начало (Иврит) (4:13)
-1.02. Три Сестры (Иврит) (3:26)
-1.03. Бесплатно Только Птички Поют (Иврит) (3:20)
-1.04. Он Был Старше Её (Иврит) (5:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E531849B36CCF709B643FCDBD5D9FA8A2C9468DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538566   (660260) от 23.03.2022
-
-Андрей Макаревич - Идиш джаз 3 (2022) [AAC|~316 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алина Ростоцкая, Андрей Макаревич - La Rosa Enflorece (6:32)
-02. Феликс Шиндер, Андрей Макаревич - Dzhankoye (3:01)
-03. Константин Гевондян, Андрей Макаревич - Levine, with Your Flying Machine (5:06)
-04. Лера Гехнер, Андрей Макаревич - Glory Shelakhmones Hitlern (3:17)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BED8264BEA06F1E003927A64C192E87485F9464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538680   (660258) от 23.03.2022
-
-Андрей Макаревич, Оркестр креольского танго - От меня к тебе (2013) [AAC|~373 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало (4:18)
-02. Тем, кто ушел (5:12)
-03. Наливай (5:13)
-04. Море любви (4:13)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8925EB209DD7094489FBE66E5CFFCA6A1F8E16DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538673   (660172) от 23.03.2022
-
-Charli XCX - CRASH (2022) [AAC|~312 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:10)
-02. Charli XCX, Christine and the Queens, Caroline Polachek - New Shapes (3:21)
-03. Good Ones (2:17)
-04. Constant Repeat (3:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2173C51AB94A617FECBA1AE6698B0904F56B1ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538676   (660170) от 23.03.2022
-
-Андрей Макаревич, Группа "Папоротник" - Женский альбом (2013) [AAC|~323 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пусть я не разгадал чудес (6:46)
-02. От меня к тебе (Из к/ф "Московские каникулы") (3:29)
-03. На Неглинке (1:58)
-04. Я возьму тебя с собой в небеса (3:35)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5FDB8415DE2ED027953C7036A61D2F99617FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

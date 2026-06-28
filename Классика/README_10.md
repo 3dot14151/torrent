@@ -1,3 +1,32 @@
+###  Публикация: 996521   (878769) от 14.03.2016
+
+Giuseppe Verdi - Un ballo in maschera (2014) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Opera>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prelude
+01. Prelude (4:17)
+Act 1
+02. Act 1: "Posa in pace, a'bei sogni restora" (Chorus, Samuel, Tom) (1:35)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CABF062AFA5459962EDF1EFA9DDACE6CDC0DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996307   (878581) от 14.03.2016
 
 Niccolo PAGANINI - Complete Chamber Music (2007) [MP3|320 кб/с] <Classical, Instrumental>
@@ -722,35 +751,6 @@ Rudolf Kempe - Kempe Conducts Tchaikovsky, Debussy, Janacek (2002) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B4F5A616EB30573C0BF407AB7AABC7CF0DBA673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998443   (870271) от 19.03.2016
-
-Mozart - Symphonien №. 25, 29, 35 «Haffner» (1972) Reissue, 2008, Decca [FLAC|Lossless|image + .cue] <Classical, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonie Nr. 25 g-moll, KV 183: I. Allegro con brio (8:30)
-02. Symphonie Nr. 25 g-moll, KV 183: II. Andante (4:59)
-03. Symphonie Nr. 25 g-moll, KV 183: III. Menuetto (3:32)
-04. Symphonie Nr. 25 g-moll, KV 183: IV. Allegro (5:39)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0EDFB5F19452C155644D86876A94F56A0FF680
 ```
 
 https://mybot314.ru/tekegram_catalog/

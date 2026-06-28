@@ -1,3 +1,264 @@
+###  Публикация: 1467828   (1017564) от 05.05.2021
+
+VA - Lazy Chill Day: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Colours 05:05
+02. Patiotic - Remembering You 04:03
+03. Marga Sol - So Cruel 04:46
+04. Peter Mac, Simply Chill - Hope 04:31(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F091D6B9F2EC4C21BB2AFBCC262400F118D1670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468362   (1017276) от 07.05.2021
+
+VA - Saltwater Dream: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matej Blanusa - Wakening (Pine) (2:45)
+02. Mission Brown - First Rain (Original Mix) (6:03)
+03. The Soul Crusaders, Marc Hartman - Observing the Clouds (Original Mix) (3:49)
+04. J. R. Haim - Kaneo (4:07)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E3A5A9027581B71D996BF5BCC1A30BA4B3E347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468353   (1017243) от 07.05.2021
+
+Blank & Jones - Milchbar - Seaside Season 13 (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Fernweh (3:19)
+02. Blank & Jones - Take Me Back (4:29)
+03. Begin - Super Barrio (5:05)
+04. Los Days - Starlight Lullaby (5:00)(   Читать дальше...   )Жанр: Electronic, Lounge, DowntempoПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884745F701D354184D3D70DD4F7F08E70F27A95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469320   (1016583) от 11.05.2021
+
+VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Can Summer Last Forever - Original Mix (5:05)
+02. Finland & Aaskoven - The Mountains & Peaks (6:04)
+03. Mission Brown - Watching Clouds - Original Mix (6:02)
+04. Weathertunes - Follow Your Heart (4:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0834B0262A340E9D5ACE827284C5B1ADC06B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469328   (1016582) от 11.05.2021
+
+VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - First Leaves (2:38)
+02. Beamy - Utopia (3:25)
+03. Marga Sol, Leo de la Rosa - Esta Noche - Leo de la Rosa Sensual Mix (5:50)
+04. Matej Blanusa - Beginning (Medani Pieck) (3:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E2A01EE14AE9D4D1E5F927E8413D90269BC44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469668   (1016267) от 13.05.2021
+
+Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut My Heart Out
+02. Killed Our Love
+03. Sounds Of Blue
+04. Say It's Over(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEAE8EE177F0FB78E40317366EA57C278DC9441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470655   (1015635) от 17.05.2021
+
+Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Midnight Hour (Zero O Clock Remastered Mix)
+02. Sleep on the Beach (The Bossa Cut)
+03. I Am Calling You (Dial My Number Mix)
+04. Just Be Here (Early Morning Mix)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470595   (1015634) от 17.05.2021
+
+VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Digby Jones - What I Need - Instrumental Mix (4:38)
+02. Living Room - The Hippojazz (2:45)
+03. Lounge Groove Avenue - Count the Days (4:21)
+04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA5EA6D35C56BD8628B324EF82534BAAE305259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471158   (1015281) от 19.05.2021
+
+Morcheeba - Blackest Blue (2021) [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut My Heart Out (5:03)
+ 02. Killed Our Love (4:52)
+ 03. Sounds of Blue (3:37)
+ 04. Say It’s Over (3:55)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9923F0E24D1E1EAA3AC23610F588D148FFA60442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471893   (1014819) от 22.05.2021
 
 VA - Ambient Trip to Relaxation: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -483,267 +744,6 @@ VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4C1100EDF62051095FF45E3E9081F3E818C0443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189483   (1006356) от 17.07.2021
-
-Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Trip Hop, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thumper (02:17)
- 02. Lemon Lime (03:53)
- 03. Jade (04:22)
- 04. Tea Sprinkles (04:05)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Downtempo, Trip Hop, Instrumental •Продолжительность: 17:45:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B70A5FED9FEA892E377396227EBF6D8F478873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460488   (1006260) от 18.07.2021
-
-Dr. Atmo - Discography 18 Releases (1992-2021) Fax +49-69/450464, Logic Records, ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Leftfield, Dub, Tribal, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Atmo - Qui (03:38)
- 02. Atmo.Feos - Sunset (05:12)
- 03. Belotone - On The Neon (06:54)
- 04. Belotone - Bamboo Neon (05:28)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Leftfield, Dub, Tribal, Experimental •Продолжительность: 22:58:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148082A90A22375666B322E9E1507C83F5743C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486863   (1004328) от 02.08.2021
-
-VA - A​.​M Study Session 1-4 (2020-2021) Lofi Girl / ChilledCow Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Acoustic, Lo-Fi, Chillhop, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purrple Cat - Snooze Button (03:31)
- 02. Tom Doolie x loland - Parallel (02:15)
- 03. jhove - Counting Sheep (02:40)
- 04. Dontcry x Nokiaa - Bliss (01:51)(   Читать дальше...   )Тип издания: WebЖанр: Downtempo, Acoustic, Lo-Fi, Chillhop, Ambient •Продолжительность: 04:10:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96981AB080DB4A570C1C34084A31183E524228A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486929   (1004130) от 03.08.2021
-
-VA - Bonfire on the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Celloni - Bonfire on the White Beach (05:20)
-02. SoulAvenue - Try (05:02)
-03. Marie Therese - Just Try It (05:03)
-04. Chilled Ibiza - Sapphire Saladeta (06:41)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EDE5A4EA0E687B9D871FABB2A316BD0614A9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349850   (1004068) от 03.01.2020
-
-V.A. - Cafe Del Mar Essentials (Vol. 1) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Poets - Moment Scale (Dubmaster X Remix)
-02. A Man Called Adam - Estelle feat. Eddie Parker (Cafe del Mar Mix)
-03. Psychedelic Research Lab - Tarenah (Chill Mix)
-04. The Ballistic Brothers - Uschi's Groove (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F23CA6695ADC3254EB42523B33C623C258E6D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637893   (1003678) от 04.01.2020
-
-York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Trance>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Dying Star (Chill Out Mix) (7:14)
-02. York & Mike Oldfield - Islanders (Chill Out Mix) (9:12)
-03. York & Art Halpertin - Abyss (Chill Out Mix) (5:23)
-04. York & The Thrillseekers feat. Asheni - Daydream (York's Album Mix) (06:08)(   Читать дальше...   )Жанр: Lounge, Chillout, Trance, LeftfieldПродолжительность: 02:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704D35A0EEB3A1C06DE33C872F95C7751999BB18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487448   (1003624) от 05.08.2021
-
-VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Who Is Lore?
-02. Finland & Aaskoven - Tahiti (Closing Theme)
-03. Will James - Daintree Twilight
-04. Project Blue Sun - Fly Away (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178594F75C7532EDE2022D2D4E61E5FB5E283915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487535   (1003618) от 05.08.2021
-
-VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surge - 4.27 Ambience (10110111) (09:38)
- 02. Drum Club - The Illuminated (03:05)
- 03. Sensurreal - Confidential Suite (12:54)
- 04. Nev - Simulated Wood (06:22)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks •Продолжительность: 04:59:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42282225CC29C6A2FE0CCC709E690DC05377C06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487418   (1003617) от 05.08.2021
-
-VA - Lavender in Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - You Are (02:55)
-02. Leo de la Rosa - No Me Hagas Volar (05:46)
-03. Gary B - Easier (Marga Sol Sunset Rmx) (05:11)
-04. Simon Le Grec - Feelings (Piano Mix) (05:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C71FDD76424363DC1BA0AADC5385723EA804063
 ```
 
 https://mybot314.ru/tekegram_catalog/

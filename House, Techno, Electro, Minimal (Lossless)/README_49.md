@@ -1,3 +1,203 @@
+###  Публикация: 1072371   (354675) от 12.11.2016
+
+VA - Stil Vor Talent Berlin - Kottbusser Tor (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Techno HouseПродолжительность: 03:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C74907C935B10AF61DFEEA12AFE74ACC5B6D861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256628   (354420) от 22.10.2018
+
+VA - Sudbeat Showcrates 4 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Budakid & Nordfold - Amado (Original Mix) (7:02)
+02. RPO & GMJ - Immersion (Original Mix) (6:39)
+03. James Gill - Through the Looking Glass (Original Mix) (7:28)
+04. Mauro Augugliaro - Lost in a Silver Dream (Original Mix) (9:04)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFB50E562A9E8FDF8A43711ED2FC35595D89B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178711   (353820) от 29.10.2017
+
+VA - Anjunadeep 09 (Mixed By Jody Wisternoff & James Grant) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boerd – Void (01:26)
+02. Lycoriscoris – Flight (04:12)
+03. Gallago – Sun (Interlude Edit) (01:41)
+04. Dusky – Square Miso (Anjunadeep 09 Mix) (04:37)(   Читать дальше...   )Жанр: Deep House, Downtempo, Chill HouseПродолжительность: 05:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B50C2CF8C4B2C0DD33C943C1501786E1C39FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072585   (352614) от 13.11.2016
+
+VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonwalk - Breath (original mix) [07:08]
+02. Phil Fuldner - Needin' Someone (Sascha Braemer remix) [07:57]
+03. Juliet Sikora - Larrys Garage (original mix) [06:03]
+04. Tube & Berger - When They Come (original mix) [06:20](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6EB9D2A838C5F48F5912DC2B8BDD78996E3F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329582   (352376) от 05.10.2019
+
+VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Doering – Emma Wong (06:07)
+02. Lexer – You Give Me (06:47)
+03. KANT – Wow (06:25)
+04. Kollektiv Ost – Power | Sascha Braemer Remix (06:48)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFDFCF303BE9244BD2593710F7C54509E748040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329500   (352367) от 05.10.2019
+
+Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352367.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Is Gonna Save Us (Radio Edit) [03:23]
+2. Love Is Gonna Save Us (Benny Extra Long Mix) [06:34]
+3. Love Is Gonna Save Us (Benny Extra Long Mix - Instrumental) [06:34]
+4. Love Is Gonna Save Us (LP CD Version) [05:07](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EB316DC217762E71F97E5AFB993CD4EB64130E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256712   (352110) от 23.10.2018
+
+Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Radio Edit) (2:45)
+02. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Vocal Club Mix) (8:19)
+03. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Instrumental) (6:57)
+04. Bodyrox feat Luciana - Yeah Yeah (Electro Radio Edit) (2:37)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: : 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418166   (351373) от 23.10.2020
 
 Ela Minus - acts of rebellion (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Minimal, Ambient>
@@ -538,206 +738,6 @@ Sasha - LNOE TEN (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2791721778D32DC60355714287F89E9C6BCA1C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181377   (323736) от 07.11.2017
-
-Fidel Wicked - Emotions (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenity (1:27)
-02. Bondi (5:08)
-03. Follow Your Dreams (3:41)
-04. Feeling Free (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897C7E5CF59C7CFA4418756564C3FBC1FC237BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259409   (321523) от 03.11.2018
-
-Mara - ...If You Only Knew (2003/2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, Progressive House, Downtempo, Tribal House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...If You Only Knew (05:00)
- 02. Turning It On (05:31)
- 03. Desanitize (07:23)
- 04. Snoodle (02:55)(   Читать дальше...   )Жанр: Progressive Breaks, Progressive House, Downtempo, Tribal HouseПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F586037BC5E95EA7375376123E26AC4A577F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075519   (321153) от 22.11.2016
-
-Maceo Plex - Journey To Solar (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Replicant V1 [06:22]
-02. Shoulder Of Orion [07:54]
-03. Motor Rotor [07:45]
-04. Love On Time [07:03](   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF348393144430581DE64F2E516BC2ECF2E7472E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331769   (320881) от 17.10.2019
-
-SCSI-9 - Squares And Circles LP (2019) [FLAC|Lossless|WEB|tracks] <Deep House , Tech House , Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Rush (08:02)
-02. You & Me (07:42)
-03. Get Some Lfo (07:41)
-04. Stairs & Stars (07:35)(   Читать дальше...   )Жанр: Deep House , Tech House , MinimalПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543849064A47E93E71200DDEC73316E2D1DD1F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331752   (320647) от 17.10.2019
-
-VA - Sunset At Stonehenge (Mixed by Paul Oakenfold) (2019) [FLAC|Lossless|tracks|CD|scene] <Deep House, Progressive House, Classical>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U2 - Love Is All We Have Left (2:37)
-02. The Grid - Floatation (Subsonic Grid Mix) (5:56)
-03. Empire Of The Sun - We Are The People (3:54)
-04. Clarian - Kill For Love (5:50)(   Читать дальше...   )Жанр: Progressive House, Deep House, ClassicalПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3093D36389794DDEBA383666E2263E919943369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263088   (320501) от 29.11.2010
-
-Penner & Muder - Same Monkeys Different Zoo (2010) [FLAC|Lossless]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep HouseПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421509   (319811) от 04.11.2020
-
-Jose Vizcaino - Transitions (2020) Seven Villas [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atras (06:38)
- 02. Graffiti (06:32)
- 03. Road Trip (06:58)
- 04. Transitions (06:21)Жанр: Deep HouseПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3494A6AA7CBB6C39F2DD1D7A5F56AFDB37D41CCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

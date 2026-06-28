@@ -1,3 +1,59 @@
+###  Публикация: 599074   (999714) от 05.01.2013
+
+60 HQ Wallpapers (05.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E68729631678172A0A4826D02BE6F7C96A8E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599221   (999705) от 05.01.2013
+
+[Wallpapers] New 2013 Wallpaper Pack 15
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999705.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 15
+Название: New 2013 Wallpaper Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70B67A228F5D4A14E1C780C9DF826F8B6EB0257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597791   (999659) от 05.01.2013
 
 Фотография - Новый Год по всему миру
@@ -623,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A0AFD98115A45D5486AC9102750417A8C8295B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600818   (998527) от 09.01.2013
-
-Рисованная графика & Foto - Photo Art Chasen Grieshop
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Art Chasen Grieshop.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9743D497E5E4573B608CA6D04A2ECAA77867F348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601065   (998505) от 09.01.2013
-
-Работы художников - Artworks by Gabriel Iumazark [JPG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Artworks by Gabriel IumazarkРазрешение файлов: ~1000 x 750
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F70A604B1C111732295EC22DC79003A840E69C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

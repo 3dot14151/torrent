@@ -1,3 +1,112 @@
+###  Публикация: 669592   (717388) от 18.06.2013
+
+Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC07B5E6DE267F44DA437BEAB25D3364DDC4C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669593   (717386) от 18.06.2013
+
+DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro, DubstepПродолжительность: 00:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD11E5713D1DDD50C329FBCCF8029F31486CBEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024984   (713563) от 10.06.2016
+
+Сборник клипов - Philizz "Video YearMix" (2015) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "YEARMIX-2015": все закручено и заверчено фирменным миксом от голландского ви-джея Philizz.
+"YEARMIX-2015" - это обзор лучших клипов уходящего года по версии Philizz.
+- Мегамикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, (   Читать дальше...   )Wiz Khalifa ft. Charlie Puth - See You Again
+Silento - Watch Me
+Taylor Swift - Wildest Dreams
+Kwabs - Walk(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE922B1B562DABB05DBBE44D0B70D089D21ECD4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531340   (710865) от 21.02.2022
+
+Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот видеоальбом был выпущен после первых успехов проекта Gregorian. Альбом "Masters Of Chant" появился в продаже в конце 1999г и сразу же взлетел на вершины хит-парадов во многих странах. Он разошелся миллионным тиражом по всему миру и стал платиновым или золотым в Германии, Норвегии, Бельгии, Австралии и многих других странах. Для видео было записано (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C37F7F126E76D8465A6D136C2E19855644D1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531337   (710863) от 21.02.2022
 
 Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
@@ -583,124 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326652   (663383) от 23.05.2011
-
-Sandra - The Complete History (1974 - 2002) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Maria magdalena
-02 In the heat of the night
-03 Little girl
-04 Innocent love
-05 Hi hi hi
-06 Loreen
-07 Midnight man
-08 Everlasting love
-09 Stop for a minute
-10 Heaven can wait(   Читать дальше...   )Жанр: PopРежиссер: AllАктеры: SandraПеревод: ОтсутствуетПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340929   (662512) от 24.05.2011
-
-Avril Lavigne - Smile (2011) HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
-</div>
-
-
-###  Подробнее
-
-А́врил Рамо́на Лави́н(Avril Ramona Lavigne, род. 27 сентября 1984 года) — канадская певица, автор-исполнитель, дизайнер и актриса. Её дебютный альбом, Let Go, вышел в 2002 году и был продан тиражом 16 млн копий. Последующие работы — Under My Skin (2004) и The Best Damn Thing (2007) — возглавляли мировые чарты, в том числе американский Billboard 200. Пять песен Лавин — «Complicated», «Sk8er Boi», «I’m With You», «My Happy Ending» и «Girlfriend» — занимали первые строчки мировых чартов. По всему миру было продано более 30 млн копий её альбомов. По состоянию на январь 2011 года, она являлась одной из самых популярных певиц в США с 11,5 млн проданных альбомов. Журнал Billboard поместил Лавин на 10-е место в рейтинге артистов 2000-х, а также на 28-е место по коммерческому успеху. Её четвертый студийный альбом Goodbye Lullaby вышел в марте 2011 года.
-20 мая состоялась премьера клипа на композицию «Smile». По сюжету Аврил ходит по улицам Нью-Йорка и забирает кусочки разбитого сердца у разных людей, делая (   Читать дальше...)Жанр: МузыкаРежиссер: Avril LavigneАктеры: Avril LavigneПеревод: ОтсутствуетПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7C888440056BF612BB77FC83B82A3E4AEFD781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138176   (661920) от 31.05.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 1) (2017) WEB-DLRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Первая часть посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции именно этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
-- Разбивка по трекам отсутствует.Celine Dion – Because You Loved Me
-Destiny’s Child – No, No, No Part 1
-Sinead O’Connor – Nothing Compares 2 U
-R. Kelly – I Believe I Can Fly(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6374237F159D68D63705EA5820FA8B297E8A6C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513918   (660496) от 22.06.2012
-
-Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF034B147119700524983F5A60E1DFA0BF9E78AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

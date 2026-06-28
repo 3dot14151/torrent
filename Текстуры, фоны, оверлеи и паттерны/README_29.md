@@ -1,3 +1,55 @@
+###  Публикация: 1803239   (65880) от 22.06.2025
+
+Текстуры - CCpreset - Envato - 40 White Textures HQ - JBC9VTS [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 40 белых текстур с высоким разрешением.Формат: JPGРазрешение файлов: 6720 x 4480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112AB9CF1DD4D732A05A3A8D91B901F5FFA07C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803425   (65877) от 22.06.2025
+
+Текстуры - TexturesStore - Envato - 30 Knitted Background Textures - 8RFFUJA [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 30 вязаных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803240   (65874) от 22.06.2025
 
 Текстуры - Zeppelin_Graphics - Envato - 50 Paper Textures Set - 78GBAZ [JPG]
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:047E52013BA0C9469957DC4B01F4C4AFB2E6D735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770974   (32030) от 04.01.2025
-
-Текстуры - Dark Surface Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32030.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 качественных, премиальных текстур в темных оттенках из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 4000х4000 - 8576х5696
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A068756B1B524A13E807CEF6F392F5B5C52E975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771027   (32022) от 04.01.2025
-
-Фоны - Raw Wood Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32022.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 качественных, премиальных "деревяных" фонов из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 3187х2157 - 8736х5824
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51159E5988A2E77977296A72018FBB0EF10F74DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

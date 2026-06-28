@@ -1,3 +1,32 @@
+###  Публикация: 940740   (464766) от 26.09.2015
+
+Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.cue)]<Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, PianoПродолжительность: 00:55:21
+
+01. I. Vivace con brio [05:42]
+02. II. Andantino cantabile [08:29](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB5083A7FE25E0A637C7606A6B07EF4B4340BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940074   (464764) от 26.09.2015
 
 Brahms - Ein deutsches Requiem (John Eliot Gardiner & Orchestre Revolutionnaire et Romantique) (1991) [FLAC|image +.cue]<Classical, Romantic Period, Mass, Sacred music, Requiem>
@@ -719,35 +748,6 @@ Piano Sonata No. 8 in C minor ("Pathtique"), Op. 13
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E1035171262EF73A2E87114D4CB4B9A8505B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942736   (449288) от 03.10.2015
-
-Handel - Water Music, Music for the Royal Fireworks (Trevor Pinnock & The English Concert) (1997) [FLAC|image +.cue]<Classical, Orchestral, Baroque Period, Symphonic, Ouverture, Adagio, Air>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water Music - Suite in F major, HWV 348
-01. Ouverture (Largo - Allegro) (03:19)
-02. Adagio e staccato (02:14)
-03. (Allegro) - Andante - (Allegro da capo) (07:49)(   Читать дальше...   )Жанр: Classical, Orchestral, Baroque Period, Symphonic, Ouverture, Adagio, AirПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999F37D5CA396176398EFF9A7D672EAC1CE7AD53
 ```
 
 https://mybot314.ru/tekegram_catalog/

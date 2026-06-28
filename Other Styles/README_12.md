@@ -1,3 +1,116 @@
+###  Публикация: 970616   (988576) от 01.01.2016
+
+David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. While the Trees Sleep (5:43)
+02. Home (3:40)
+03. Ascending with Angels (3:04)
+04. Light (4:40)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAABA327964EFDEC96CF65AE875874624031605E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163621   (988284) от 05.01.2010
+
+Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, CelticПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658858   (987773) от 22.01.2020
+
+Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
+02. Bamboleo - 3:24
+03. Djobi Djoba - 3:25
+04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970808   (987322) от 02.01.2016
+
+Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleanor Rigby (Orchestral version) (3:24)
+02. All You Need Is Love (3:15)
+03. When I'm Sixty-Four (3:15)
+04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600345   (986533) от 01.02.2013
 
 VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
@@ -647,122 +760,6 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356270   (980506) от 29.01.2020
-
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55577E204176F458A41F231A55DDD0243735E190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356231   (980497) от 29.01.2020
-
-Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys for Life (02:47)
-02. It's Good Shit Lieutenant (03:19)
-03. Take Back What's Ours (02:09)
-04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356271   (980489) от 29.01.2020
-
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356229   (980356) от 29.01.2020
-
-Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meek Mill & Farruko - Uptown II (02:54)
-02. City Girls - Money Fight (02:38)
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
-04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
 ```
 
 https://mybot314.ru/tekegram_catalog/

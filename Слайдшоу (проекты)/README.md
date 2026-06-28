@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1877577   (1074079) от 21.06.2026
+
+Проекты - VideoHive - Vertical 3D Slideshow - Vertical Photo Slideshow - 63806545 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вертикальное 3D Slideshow — это современный шаблон для Adobe After Effects, созданный для эффектной демонстрации фотографий и видеороликов в формате 9:16. Благодаря плавным трёхмерным анимациям, динамичным переходам и стильной компоновке кадров, проект идеально подходит для Instagram Stories, Reels, TikTok, YouTube Shorts, портфолио фотографов, путешествий, свадебных (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5389A6EEB1D50C98B46618D53A0625D6C00E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867250   (1066761) от 24.04.2026
 
 Проекты - VideoHive - Photo Slideshow | Memories Slideshow - 62979921 [AEP]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:000AC2D79D32738B89B7916A417766B40D0A9D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447613   (1031549) от 14.02.2021
-
-Проекты - VideoHive - Lovely Slideshow - 23374066 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Lovely Slideshow» выполнен в модном анимационном стиле. Идеально подходит для ваших фото, видео, презентаций, заставок, и многого другого.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBBEC437E386E24DD218C79D08481CFF157EB13
 ```
 
 https://mybot314.ru/tekegram_catalog/

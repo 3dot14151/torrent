@@ -1,3 +1,162 @@
+###  Публикация: 1680332   (134185) от 29.11.2023
+
+VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estragur - North Wind [05:06]
+02. Magmatunes - You [05:17]
+03. Ludwig A.F. - Glass [04:34]
+04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594727   (133287) от 27.12.2012
+
+VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Bug - Gates To Oblivion (Original Mix) 07:55
+ 02. Ethan - Unforgiven 07:57
+ 03. Protonica - Orion (Ovnimoon Remix) 07:47
+ 04. M.D.K - Mustang (Original Mix) 07:41
+ 05. Squarz Kamel - Together (Ezil & Slider Remix) 07:38
+ 06. Stuart Mc Niven - Surrender (Feat Sharon Fehlberg-Ian Solano Remix) 07:43
+ 07. Poshout - Melorum (Maksim Palmaxs Bootleg) 07:34
+ 08. Anna Lee & Alex Teeb - Driving Juke (Original Mix) 07:28
+ 09. Dmitriy Bulakov - Crux (Sens Remix) 07:27
+ 10. Fortuna And Casus - Sometimes (Rework) 07:23(   Читать дальше...   )Жанр: TranceПродолжительность: 03:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594721   (133246) от 27.12.2012
+
+VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatbeat - Rocker Monster (Radio Edit) (04:00)
+ 02. Cosmic Gate and JES - Flying Blind (Norin & Rad Remix) (06:40)
+ 03. KhoMha - Mind Gamer (Trance Mix Edit) (04:09)
+ 04. Pseudonym - The Battle (05:30)
+ 05. 3rd Planet - Sevas (06:07)
+ 06. Betsie Larkin with Bjorn Akesson - Let It Shine (Walsh & McAuley Remix) (07:13)
+ 07. Kyau & Albert - Another Time (06:22)
+ 08. M.I.K.E. - Any Direction (M.I.K.E. vs. Revero Club Edit) (06:55)
+ 09. Solarstone and Clare Stagg - The Spell (Solarstone Pure Mix) (08:41)
+ 10. Armin van Buuren Feat. Ana Criado - I'll Listen (Radio Edit) (03:36)Жанр: TranceПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595250   (132654) от 28.12.2012
+
+VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132654.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Andrea Bertolini feat. Eva Kade - I Need You (JohnnyBrahvo Remix ft. Svyable) (4:37)
+2. BiddyBeats - Serenity (Original Mix) (4:13)
+3. Citizen Cope - Lifeline (Figure Remix) (5:42)
+4. Corrigendi - Comin For You (4:17)
+5. Dabin - Awakening (ft. Bijou.) (Original Mix) (3:36)
+6. Daniel Licht - Blood ThemeЖанр: Chillout/DubStepПродолжительность: 1:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FE0FB98A8FA3F0F39E1AEC29C5D756BA3C1FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681748   (132339) от 04.12.2023
+
+VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma - Save Me (3:33)
+02. Gordo - With You (5:29)
+03. Franky Wah - Lost In Space (7:33)
+04. John Summit - Where You Are (3:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0AB297683EC5E4F9C3F35F080E91FE5EB3994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595790   (132312) от 29.12.2012
 
 VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
@@ -654,153 +813,6 @@ VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525431   (129146) от 21.01.2022
-
-VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы являетесь откровенным поклонником Electro House и не одна более менее значимая клубная тусовка не выпадает из вашего поля зрения , то здесь обязательно найдёте для себя не один десяток треков в свою фонотеку.001. Velvet Valley - Kb3k
-002. Peter Paul - Festivalia
-003. Alex Greenhouse - Do You Know
-004. Stan Seba & Bynomic - Miracle(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D345D01C7D24A9FFE669C77026B179880E70EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487361   (129064) от 26.04.2012
-
-VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rae - Another Day (James Talk  Ridney Remix)
-02. J Nitti - Deep Down Feat. Shirley Davis (Luigi Rocca Remix)
-03. Tim Royko  Cosmo Klein - Everlasting Now (DBN Remix)
-04. Ron Carroll  Tony Romera feat. Paschan - So High (Silver Sneakerz Remix)
-05. Whiteside Feat. Heather Wilson - Can't Let Go (Slin Project Сlub Mix)
-06. Easy L. - New Day2012Жанр: Progressive HouseПродолжительность: 01:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943BA2AFC240F26900FB795142750C1DAB40968B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683385   (128391) от 11.12.2023
-
-Jabarov - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulful
- 02.  Eternal Love
- 03.  High Pressure
- 04.  Cosmic Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBAD6043CA2860E9E0D871F7A854887DED0C8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683799   (128259) от 12.12.2023
-
-Faniz - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  E Vuaj
- 02.  Spain
- 03.  England
- 04.  France(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8531F1EEA8F6BD6E032479E2EA5050E56882630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684255   (127996) от 14.12.2023
-
-HilalDeep - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Silent Hill
- 02.  My Dreams
- 03.  Gate of Iran
- 04.  My Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E629AB8FEF2E974256235910CCE2700B7DB18081
 ```
 
 https://mybot314.ru/tekegram_catalog/

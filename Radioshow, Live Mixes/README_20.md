@@ -1,3 +1,203 @@
+###  Публикация: 1193864   (213903) от 23.12.2017
+
+VA - Armin Van Buuren - A State Of Trance Episode 845 (TOP 50 Special) (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Gareth Emery ft. Christina Novelli - Concrete Angel (ReOrder Remix)
+02. Dogzilla - Without You (Will Atkinson Remix)
+03.Denis Kenzo ft. Sveta B. - Just To Hear
+04.ALPHA 9 - Higher Place(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 04:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBD948103F28C6B93B5C6F8D2A2426D61507F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646542   (207933) от 26.07.2023
+
+VA - BBC Radio One: Essential Mix (2022) [MP3|~245 Kbps (V0)] <House, Techno, Drumnbass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Essential Mix - это еженедельное радиошоу, которое известно своей долгой и успешной историей в мире электронной музыки. Оно было запущено и ведется на британской радиостанции001. UnknownmiX - The Siren (2manydjs Edit)
+002. ?
+003. Haruomi Hosono - Alternative 3
+004. Ferrara - Love Attack (Soulwax Get Off The Speakers Edit)(   Читать дальше...   )Жанр: House, Progressive House, Techno, Dance, DrumnbassПродолжительность: 95:59:15 (~02:00:00 каждого выпуска)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADF4AAC705C0804921FC5EC35FC55D1BDF92E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314331   (202236) от 25.02.2023
+
+Rencontre Nocturne - Nuit Sombre (01-31) (2019-2023) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>След.
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuit Sombre #1:
+01. Steve Angello - Tivoli w/ M.A.N.D.Y. vs. Booka Shade - Body Language w/ The Temper Trap - Sweet Disposition (Axwell & Dirty South Remix)
+02. Adam Beyer & Enrico Sangiuliano - Preset Heaven w/ Cirez D - Teaser
+03. Corey James & David Pietras x Adele - Arlanda x Set Fire To The Rain (Chesco Mashup)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 60:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5510C05324935A1CEA9A802337DDCE73D2BBB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618974   (201411) от 13.03.2023
+
+Galaxy Waves - 80's Synthwave Chillwave 2023 - Retro Electro Wave Special part 2 (2023) [MP3|~245 Kbps (V0)|tracks+*.CUE] <Synthwave, Sovietwave>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Track 1 - The Flight (03:48)
+02 Track 2 - Minimal Night  (04:11)
+03 Track 3 - Minimal Night pt2 (03:22)
+04 Track 4 - Hard Reset (03:05)(   Читать дальше...   )Жанр: Synthwave, SovietwaveПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF3F9D98D77F7F85075F409C832741ED6B98B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828917   (199915) от 24.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1248 (ADE Special) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rinaly played:
+01. Rinaly & Christina Novelli – Set A Fire
+02. Rinaly – Unleash
+03. Rinaly & Clara Yates – Oh Fragile Girl(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 08:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADACF00971CCBF7C4E4CD785B9CD792E80AEC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828339   (193405) от 24.10.2025
+
+VA - Ori Uplift - Uplifting Only Episode 663 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Paul – Harmonic Skies (Intro Mix)
+02. Roger Shah & RAM ft. Natalie Gioia – For The One You Love
+03. Nick Parker – True Love (Plutian Sentimental Take) (Orchestral Uplifting Classic)
+04. Jericho Frequency & Amélie Mae – Hide In Plain Sight(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55D9E923B1DC5C5C5F865AC0EFA0E7F002EAE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659063   (190617) от 10.09.2023
+
+Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287 Kbps (VBR V0)] <Drumnbass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Classic Essential Mix - это еженедельное радиошоу, где в эфир возвращаются выпуски оригинального шоу01. Optical & Ryme Tyme - HeadhuntersЖанр: DrumnbassПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827337   (186356) от 21.10.2025
 
 Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Trance, Melodic House, Techno>
@@ -542,209 +742,6 @@ Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518181   (161143) от 18.12.2021
-
-VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VER:WEST - Elements Of A New Life
-02. Drumstone - Lost River
-03. Alexander Alar & Korolova ft. Yann Menge - Symphony w/Alexander Alar & Korolova ft. Yann Menge - Symphony (Dub Mix)
-04. Miss Monique & Nahue Sintes ft. Josefina - Don't Come Back(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA615C231FF6EB0150D7388D5597994DAE9FA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518193   (160986) от 18.12.2021
-
-Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Hanging in a Moment
-02. Matt Fax & Estiva - Found
-03. London Grammar - Lose Your Head (CamelPhat Remix)
-04. Spada - Fantasya 3000(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19D9FFF634100512159EFEF75ED6803021FC73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346756   (157862) от 20.12.2019
-
-Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lane 8 - Just
-02. Baya - Hypno
-03. Gorgon City - Roped In
-04. Ben Böhmer - Maelstrom(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D228BCA23C0B80374C8F87219A2346D0F0DB561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518417   (155848) от 19.12.2021
-
-Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorz - That's Life
-02. ARTY - Hope (Eugenio Tokarev Remix)
-03. STANDERWICK - Apricus
-04. Ferry Corsten & Ruben de Ronde - Bloodstream(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEE58F3B2C03AABB3C7D5C53D2ACA84DF9BBD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346954   (155791) от 21.12.2019
-
-Trance Wax & Genix - Live @ Anjunakitchen London, United Kingdom 2019-12-13 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trance Wax Tracklist:
-
-01. Paul van Dyk - Another Way (Trance Wax Remix)
-02. Corona - Rhythm Of The Night (Fedde Le Grand Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368AD930D0D10E2CD660DCACF6E42393D15619FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825387   (152036) от 17.10.2025
-
-VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. REX.W – Across the Desert (Intro Mix) (Breakdown Of The Week)
-02. C-Systems & Neev Kennedy – Between The Lines
-03. Mike van Fabio & Cherry – Fable (Mhammed El Alami Remix) (Uplifting Classic)
-04. Etasonic – ShakeratoЖанр: Trance, Uplifting TranceПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825386   (152026) от 17.10.2025
-
-VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY x RHODES – Never Be The Same
-02. YOUNA – Serotonin (Progressive Pick)
-03. M.A.N.D.Y. vs. Booka Shade – Body Language (Helsloot Remix)
-04. Baset – Drift(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
 ```
 
 https://mybot314.ru/tekegram_catalog/

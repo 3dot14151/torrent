@@ -1,3 +1,177 @@
+###  Публикация: 1394887   (760515) от 07.07.2020
+
+VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760515.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stan Kinley - The Party G (4:49)
+2. Yuri Salgado - Small Circle of Friend (3:43)
+3. Quentin - Dream X (4:33)
+4. Leo DJ - Bear Music (6:15)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7674F83ADF3BED756034D25E7DDC06D7D77AA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215566   (758103) от 26.03.2018
+
+VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTN, Stendahl & Arielle Maren - Black Hole (Elypsis vocal remix) (05:09)
+02. Nick Hogendoorn - Science (Shingo Nakamura remix) (06:48)
+03. Marsh & Katherine Amy - Life On The Shore (original mix) (03:12)
+04. DASHANIKON - Somebody Like You (Cloudive vocal remix) (03:50)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EAD72C7DDFC2A7AE45BF3DF499A126CFAA842B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215617   (756600) от 27.03.2018
+
+VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixthsense - Seacoast Sunset (Noise Zoo Remix)
+02. Deidian - Zora (Tom Bro Remix)
+03. GAR - Elflock (Van Yorge Remix)
+04. Sander Wilder - Location (Paul M. Remix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018574   (756119) от 20.05.2016
+
+Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstractions (Original Mix) (9:44)
+02. Solar Night (Original Mix) (6:47)
+03. Ashes (Original Mix) (6:29)
+04. City Lights (Original Mix) (6:51)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A35173B61A10D0EE709C3A5316702F6259BD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395460   (755172) от 10.07.2020
+
+Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Is A Dancer (3:15)
+02. What's Up (2:50)
+03. Blue (Da Ba Dee) (2:35)
+04. Be My Lover (3:05)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9358425F14947882A8312C4FE193954363FBE6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216043   (754859) от 28.03.2018
+
+VA - Spring Break Is Coming (Tech House Fever Is All Over) (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Tool - Using 3:09
+02. Hacer Hould - Essential 3:09
+03. Grupps - Clap 3:09
+04. Gino Patricio - Plurison 3:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D7992FB9677ADC2345AAEB830B803D1E5C322A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018613   (754147) от 21.05.2016
 
 VA - Black Hole House Music 05-16 (2016) [MP3|320 кб/с] <House, Progressive House>
@@ -571,180 +745,6 @@ VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283139   (741232) от 15.02.2019
-
-BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BK & Christopher Lawrence - Warp (7:23)
-02. BK & EJ Doubell - Butterflies (7:46)
-03. BK & Tom Harding - Raucous (2:56)
-04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126698   (741182) от 20.04.2017
-
-VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bsharry - Adagio 06:11
-02. Josh Nor - Space Sea 05:30
-03. Forever 80 - Automa D 05:05
-04. James Black Pitch - Origins 07:22(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769370AD0A9EEACAC190F0EF251EADCE9DA0A1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126798   (741114) от 20.04.2017
-
-VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Norvis - Over - Radio Edit 03:27
-02. Tony Vegas - Soul Mates - Maury J Remix Edit 03:34
-03. Franky D.P. - Magic Sax 04:33
-04. Spikaa - Never Be Afraid - Radio Edit 03:04(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE70AD2FDEB68ECAA49C6EDA03283BA0B0524E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021465   (741068) от 29.05.2016
-
-VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feu d'Or - Chasin Joe
-02. Vadim Soloviev - Monday Bounce
-03. Alexey Sonar - Guest List
-04. Roddy Reynaert - Melancholy(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199D86D39CE6CC51C0D41D25C4D5C17425244855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283172   (741064) от 15.02.2019
-
-VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP3|320 Kbps] <Funky, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Maximum - La Fuerza (Extended Mix) 3:39
-02. Luka J Master & Carlo M feat. Regina Saraiva - Vem (Sanny J Mix) 4:24
-03. Condor feat. Adina - Feel U (Extended Mix) 4:45
-04. Joe Berte' & Dago Hernandez - Dance In The Stars (Daniel Tek Remix) 4:53(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4920A350032F612826BBAB6A6FB13463D6C9F5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021402   (740992) от 29.05.2016
-
-VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uffe Bengtsson - Summer in Ibiza [06:44]
-02. Dimix - Coming Alive - Fallow Remix [07:03]
-03. Nocti Luca - Volver - Zak Gee Remix [06:01]
-04. Lex Luca - Hoop [06:29](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9289C8D9B621CE5C63F3BB6B04BE916574FC0833
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1240946   (522957) от 14.08.2018
+
+VA - Atmosfera Records: Progressive Trance Vol. 03 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunvision - The Light (Original Mix)
+02. Xpectra - Lost and Found (Original Mix)
+03. Emotion Love - Teleportation (Original Mix)
+04. Xpectra - Searching For Inspiration (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7AFD6C5DF8CBFE5B83BA09D2D8904504AECBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241117   (522204) от 15.08.2018
+
+VA - 2 Years Suanda Base (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirkie Coetzee - Aurora (Extended Mix)
+02. Ahmed Helmy - Quasar (Extended Mix)
+03. Mantra - Take Me Higher (Extended Club Mix)
+04. HamzeH - Orbit (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622618FB6B38DF537453E58212088AEA4F2A3675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241116   (522199) от 15.08.2018
+
+VA - Vocal Anthems Ibiza (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)
+02. Alexander Spark & Lucid Blue - Nothing Like The Sun (Extended Mix)
+03. Attila Syah vs. J.Puchler & Xpectra feat. Joanna Angelina - Forever (Extended Mix)
+04. Michael Milov & Claire Willis - Anywhere With You (Extended Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22F0ACC8DE244D6044912F5AE33B9122E658BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314140   (521415) от 12.07.2019
 
 VA - Markus Schulz-Global DJ Broadcast-Top 20 July 2019 [MP3|320 Kbps] <Uplifting Trance>
@@ -658,91 +745,6 @@ VA - Uplifting Only Top 15: June (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A3B0446CF5136A242B6C201CF28687E5D2033C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563737   (503624) от 15.07.2022
-
-VA - Trance Vol.5 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila with Greg Downey - Take Flight (Original Mix)
-02. Alan Morris & Katty Heath - Captive Of Your Heart (Original Mix)
-03. Ciaran McAuley - Lilac (Original Mix)
-04. James Dymond & Stine Grove - Birds Of A Feather (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006124A4E407A53E623B460864A2E20CD7706884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317225   (502379) от 30.07.2019
-
-VA - Trance Nation: The 90s (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humate - Love Stimulation (Love-Club-Mix) 7:31
-02. Blue Alphabet - Cybertrance (Original Mix)Жанр: TranceПродолжительность: 11:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4A6426D0BBA63A1E5B735B4FD2C0B7FFFC8B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564069   (501589) от 17.07.2022
-
-VA - Beatport Trance Top 100: June [Extended] (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Key4050 - Cisza (A Dreamstate Anthem) (Original Mix) [6:26]
-002. Sneijder & Thomas Bronzwaer - Into The Light (Extended Mix) [7:26]
-003. Will Atkinson - Rush (John O'Callaghan Extended Remix) [5:59]
-004. Above & Beyond - Can't Sleep (Ruben De Ronde & Elevven Extended Mix) [6:28](   Читать дальше...   )Жанр: TranceПродолжительность: 11:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6310B36FB08E33C04920AB7D63F4BB5A42C2C16E
 ```
 
 https://mybot314.ru/tekegram_catalog/

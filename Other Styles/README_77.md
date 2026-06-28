@@ -1,3 +1,119 @@
+###  Публикация: 1031594   (651656) от 04.07.2016
+
+Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks] <New Age, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hot Season    04:23
+02.  Ummon's Hut    02:38
+03.  Lord of the Full Moon    04:21
+04.  Ancient Echoes    02:25(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C59A7BC80F898597C3A961311F21C4C04DCF83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031092   (651481) от 04.07.2016
+
+VA - Jam On Guitars (2009) [FLAC|Lossless|image + .cue] <Instrumental rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Took The Words Right Outta My Mouth 4:56 Michael Lee Firkins
+02. Free In The Park 4:35 Steve Morse
+03. Scorch 7:14 Alex Skolnick Trio
+04. Dance To The Music 4:32 The Clinton Administration(   Читать дальше...   )Жанр: Instrumental rockПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD891BCF5EC98C4A886CB99441B4827CF56ADBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031467   (651480) от 04.07.2016
+
+Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Pets (02:38)
+02. Katie's Leaving (00:56)
+03. Meet Duke (03:37)
+04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166D8140ABCFF48DFE3CAD61D506491529DD283F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031488   (651479) от 04.07.2016
+
+Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Demon (03:23)
+02. Mine (by Sweet Tempest) (03:43)
+03. The Demon Dance (by Julian Winding) (06:00)
+04. What Are You (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9A093ED9198EB5DAAD601A270C5AAD8FB6BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031632   (651475) от 04.07.2016
 
 Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
@@ -635,125 +751,6 @@ VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8D5E09BE8F6F7915333F80564DB0D958085ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517279   (647264) от 01.07.2012
-
-Новый Человек-паук / The Amazing Spider-Man (2012) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647264.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Main Title (Young Peter)
-2. Becoming Spider-Man
-3. Playing Basketball
-4. Hunting For Information
-5. The Briefcase
-6. The Spider Room (Rumble In The Subway)
-7. Secrets
-8. The Equation
-9. The Ganali Device
-10. Ben`s Death(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E788B6D257EEE668CD77C4ED1D71F8B047BDA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517024   (646868) от 01.07.2012
-
-VA - 599 фраз из нашего кино и мультфильмов (2009) [MP3|32-64 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292148   (646812) от 29.03.2019
-
-Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Indie-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisyphus (04:06)
-02. Bloodless (06:29)
-03. Olympians (04:00)
-04. Cracking Codes (03:12)(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292486   (646807) от 29.03.2019
-
-Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclectic, Guitar Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip, Slip, Slippin' In (feat. Eddie Bond & The Stompers)
-02. Carol (feat. Bill Black's Combo)
-03. A Touch of the Blues (feat. Bobby "Blue" Bland)
-04. Dream Baby (feat. Jerry Lee Lewis)(   Читать дальше...   )Жанр: Eclectic, Guitar RockПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CF37E6D103E01D1693D09C90A77BB2043E9D38
 ```
 
 https://mybot314.ru/tekegram_catalog/

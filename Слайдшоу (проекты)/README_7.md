@@ -1,3 +1,109 @@
+###  Публикация: 1091972   (941048) от 10.01.2017
+
+Проекты - VideoHive - Cinematic Slideshow - 19175602 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Slideshow - это уникальный шаблон для создания слайд-шоу. Применим для короткометражных фильмов, промо роликов, видео заставок.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7374C5E9C830559F16DA140967C62E6BD333EBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860291   (940974) от 16.01.2015
+
+Проекты - VideoHive - The Newspaper - 55645 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940974.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Newspaper - проект для создания в газете слайд шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114A4EDE5ADF93BAB051790DB6A10B511AC0ACC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363848   (940511) от 29.02.2020
+
+Проекты - VideoHive - Curve Hd Slideshow (RePack) - 13177151 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940511.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Curve Hd Slideshow» - стильный элегантный проект для создания креативного слайд шоу с эффектами 3D элементов.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D3A127161D95D662964CF00A44CE6E7FE10EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363858   (940507) от 29.02.2020
+
+Проекты - VideoHive - Curve Hd Slideshow 2 - 13497358 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940507.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Curve Hd Slideshow 2» - стильный элегантный проект для создания креативного слайд шоу с эффектами 3D элементов.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D29B822A7C1875A99A1D0EC1A73A598BCE61B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984322   (939986) от 08.02.2016
 
 Проекты - Pond5 - Dubstep Presentation [AEP]
@@ -583,113 +689,6 @@ Epic Slides Montage - это кинематографическое слайд-�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78BC3E45F1AF686184853D4207B8B083FC8786D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984897   (936878) от 10.02.2016
-
-Проекты - Motion Array - Box Line Cut [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания превью, слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4E37F745F6644CF74955369C1F395C335C4B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092886   (936830) от 13.01.2017
-
-Проекты - VideoHive - Cinematic Inspirational Parallax Opener | Slideshow - 19166856 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания кинематографического слайд-шоу с эффектом параллакса.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5514135C1BA151486C3A1E4489836CC9DA9BBB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984959   (936818) от 10.02.2016
-
-Проекты - VideoBlocks - Form Pulse presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0440AFD2CC0B4B27AED09D4E5588CE061E47E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984756   (936775) от 10.02.2016
-
-Проекты - VideoBlocks - Clean Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC24626718602A4D14E638E50F00F0F7E3F5F9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

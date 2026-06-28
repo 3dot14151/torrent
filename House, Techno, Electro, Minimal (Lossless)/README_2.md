@@ -1,3 +1,206 @@
+###  Публикация: 1839638   (1046695) от 29.11.2025
+
+VA - Autumn Lounge (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - On Repeat (2:59)
+02. Johny Luv - Kiss the Sky (3:58)
+03. Sharapov - Keep On Rising (5:25)
+04. Johny Luv - Crossroads (3:46)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A30D26A9B8F44A44CF606EC181AEA8E392AD3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601901   (1046337) от 02.01.2023
+
+VA - Songspire in Tulum 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Guy Didden, Mats Westbroek -  Dusk (Grigoré Remix)  (4:24)
+02.  Ceas -  Memories (Dizharmonia Remix)  (2:50)
+03.  Paravorik -  Words  (4:00)
+04.  Joel Oliver -  Cascade (My Friend Remix)  (4:04)(   Читать дальше...   )Жанр: EDM, Progressive House, Melodic House & TechnoПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E36900E0F68E99691C405818A33C3590A5E031B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602200   (1046110) от 05.01.2023
+
+VA - Beach Lounge Selected, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amanda Pryce, Medsound -  Don't Do Love  (4:03)
+02.  7Dreams -  Take My Hand  (4:47)
+03.  Medsound -  Sunride  (6:09)
+04.  Dj Aristocrat -  Ticket  (4:57)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95776D9ABB187ED37AEF026245D7FD240C9E3989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602209   (1046102) от 05.01.2023
+
+VA - Beach Lounge Selected, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Medsound -  Beach Lounge Selected Vol 1 (Continuous DJ Mix)  (1:00:35)
+02.  KLar & PF & Diana Di -  One Day (Original Mix)  (8:14)
+03.  Magnus & Sandy H -  Going On (Medsound Remix)  (5:15)
+04.  3615 Nuits Blanches -  Don't Wanna Dance (Douze Don't Wanna Dub)  (6:59)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A6103E92DB2688AAEFC297BCDEF9B348D81DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602717   (1046022) от 06.01.2023
+
+VA - Best of CHROM 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Dwellers -  Marginal (Greg Ochman Remix)  (6:48)
+02.  Yves Eaux, Octabar -  Take Me Down (SNYL Remix)  (6:56)
+03.  Javier Ho -  First Time I Felt  (7:10)
+04.  Daniel Pinho (US) -  Until the End (Pedro Mercado Extended Remix)  (7:36)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Indie DanceПродолжительность: 01:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4777322F041037CF78D8BD2297890C5293B658D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603616   (1045507) от 12.01.2023
+
+Korablove - Basshole (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splish (4:55)
+02. Wherever (4:15)
+03. Zurkaf (6:31)
+04. Come with Me (4:06)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3101C225B68FD1E1D56D96983A1A188FCFE5FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604373   (1045405) от 13.01.2023
+
+Denis Kenzo & Whiteout - Intelligency (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vetra (4:55)
+ 02. Indivisibility (4:17)
+ 03. Fire & Wide (5:27)
+ 04. Ametist (4:06)(   Читать дальше...   )Жанр: Progressive House, Trance, Tech HouseПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84C2AAB40DD0E2CAB9A793E0F14EEC5A0114270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604661   (1045305) от 14.01.2023
 
 Above & Beyond - Group Therapy Best Of 2022 pt.2 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
@@ -538,209 +741,6 @@ Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA58809A62D47C1ADAEEB771283554ABD47AA506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612669   (1040140) от 16.02.2023
-
-Hoten - 29 Summers (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (Edit) (4:36)
- 02. Mana (Edit) (4:36)
- 03. Across The Ocean (Edit) (4:36)
- 04. High Spirits (Edit) (3:52)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 01:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5756E21F79120F6E43A9A0D0ED35AA9274CD33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439323   (1040121) от 12.01.2021
-
-Dezza - Cosmos (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apollo (Original Mix) (3:14)
- 02. Neptune (Original Mix) (3:43)
- 03. Lost Touch (Original Mix) (ft. Jay Andrews) (3:41)
- 04. Cold Outside (Original Mix) (ft. Julian Gray) (3:40)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B50B92F94C5164BE1C9B7DA10A6A1BC772990AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439568   (1039926) от 13.01.2021
-
-Shingo Nakamura - Silk Music Pres. Shingo Nakamura 02 (2017) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Always (4:00)
- 02. Shingo Nakamura - Tribute, Chapter II (5:58)
- 03. LOOPer & Andy Wooding - All We Are (Shingo Nakamura Remix) (5:43)
- 04. Shingo Nakamura - Sapporo (8:04)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC9E9F59F55564691FC574039A510EB6E6C8A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613462   (1039652) от 18.02.2023
-
-VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anton Trian -  Weightless (Intro)  (2:38)
-02.  Sound Fusion -  Signals  (5:01)
-03.  Axel Zambrano -  Xone  (4:41)
-04.  Ormus -  Vishnu  (5:43)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C298DBD0440D8082BBD5D61ED1AB076E486A9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439696   (1039609) от 14.01.2021
-
-Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura & Kazusa - Move On (Original Mix) (8:43)
-02. Shingo Nakamura & Stendahl - Tribute (Original Mix) (7:37)
-03. Shingo Nakamura & RNX - Oregon (Shingo Nakamura Mix) (6:26)
-04. Shingo Nakamura - Thousands Of Sounds (Original Mix) (8:39)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA5DB01AA2D15274253C31B5D872F0BD45B337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439699   (1039564) от 14.01.2021
-
-Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundprank - Burner (Shingo Nakamura remix) 08:23
-02. PROFF - Starstruck (Shingo Nakamura remix) 08:06
-03. Dan & Sam - Breaking The Illusion (Shingo Nakamura remix) 07:23
-04. Jacob Henry & Approaching Black - Yesterday's Tears (Shingo Nakamura remix) 08:41(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564F7D4EC9A28B158D5640FC4C3E4D19DBFE630A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613985   (1039087) от 20.02.2023
-
-VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blufeld -  Allusive Alive  (6:00)
-02.  Gabriel Carminatti, Abel Mezzomo -  Ignition  (4:19)
-03.  Vladislav Maximov, 3-YA -  Heartbeat  (3:52)
-04.  DatabassЖанр: Progressive House, Techno, TranceПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
 ```
 
 https://mybot314.ru/tekegram_catalog/

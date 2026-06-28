@@ -1,3 +1,117 @@
+###  Публикация: 1612634   (207212) от 16.02.2023
+
+Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chance to Desire
+02. Desire
+03. Hey, Hey (Remix '89)
+04. Flight of Fantasy (Remix '89)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651196   (207088) от 05.08.2023
+
+Fancy - Viva la Vida (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva la Vida (Radio Edit)
+02. Viva la Vida (Extended)Жанр: Euro-DiscoПродолжительность: 00:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B742E8A7EB733AA38373770A870BA3BB7BB7A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614141   (206816) от 21.02.2023
+
+Bad Boys Blue - 25 (The Long Mixes - Extended Versions) (2022) 2xCD [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206816.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You’re A Woman (New Long Version) 6:56
+02. Gimme Gimme Your Lovin’ (New Long Version With Trevor Vocals) 6:02
+03. Lady In Black (New Long Version) 5:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80950ECD4549EACFD976676673512CDDA0EB742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614576   (206685) от 22.02.2023
+
+Silicon Dream - Time Machine (2022) 2 CD 35th Anniversary Delux Expanded Editon, Maschina Records [FLAC|Lossless|tracks + .cue] <Euro-Disco, New Beat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206685.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Time Machine (You Are The Master Of Time-Age)
+02. Jimmy Dean Loved Marilyn-Film Ab (The Hollywood-Age)
+03. Corleone Speaking (The Chicago-Age)(   Читать дальше...   )Жанр: Euro-Disco, New Beat |Продолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90330EAE952A6E0B2EE087E85F418511043C45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654400   (205844) от 20.08.2023
 
 Silent Circle - Best Of Silent Circle Volume II (1993) [FLAC|Lossless|tracks + .cue] <Eurodance, Italo-Disco>
@@ -628,122 +742,6 @@ Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американски�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433441   (160958) от 20.12.2020
-
-Mirko Hirsch - Return To Instrumentals (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Black (Instrumental Version) (5:46)
-02. Pandora's Box (Remix Instrumental Version) (5:01)
-03. Heart On Fire (Instrumental Version) (4:35)
-04. Return To Neon (Instrumental Version) (4:32)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2D3AA54515F88E3D795A1693CB6D0A49FFAED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600269   (159008) от 26.12.2022
-
-Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mr. Melody (03:10)
-02 Heaven Is With You (04:14)
-03 Sophisticated Lady (She's A Different Lady) (03:30)
-04 No Plans For The Future (03:15)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346821   (157536) от 20.12.2019
-
-VA- The Hit Factory 2 - The Best Of Stock Aitken Waterman (1988) [FLAC|Lossless|image + .cue] <Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 –Jason Donovan Nothing Can Divide Us (12" Remix) 6:11
-02 –Bananarama Love In The First Degree (7" Version) 3:26
-03 –Hazell Dean Who's Leaving Who? (7" Version) 3:43
-04 –Brother Beyond The Harder I Try (7" Version) 3:28(   Читать дальше...   )Жанр: Hi NRG, Synth-popПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C36BDD4BCCE91F06F9AE1C612F31568C76500F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600383   (157359) от 27.12.2022
-
-VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glz, Venessa Jackson - The Night (03:26)
-02. Cocolorez - Supersized (Souxsoul Refix Mix) (06:45)
-03. Vyktor Nova - Funked (06:05)
-04. Jerem A - Let's Work It Out (06:00)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
 ```
 
 https://mybot314.ru/tekegram_catalog/

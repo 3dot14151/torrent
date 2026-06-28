@@ -1,3 +1,90 @@
+###  Публикация: 1873450   (1071021) от 29.05.2026
+
+Magic Melody Makers - Italian Summer Hits 2026 (Dreamland Music House) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road to the Beach (Verso il Mare) (2:08)
+02. Golden Beach (Spiaggia Dorata) (3:02)
+03. Coffee in the Sun (Caffè al Sole) (2:49)
+04. Blue Umbrella (Ombrellone Blu) (2:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD35E7157C7941EE936EE2EF414180B2572BE20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872546   (1070335) от 23.05.2026
+
+VA - The Orient Collective: Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antea Minerva, Marco Mateus, Tibetania - Exodus (5:12)
+02. bahri bekil, Tibetania - East & West (4:31)
+03. Tamer ElDerini, Tibetania - Lafta (5:50)
+04. Kaisser Bouzriba, Tibetania - Yallah - Yallah (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C72F09B0F83EB9389C3861619003A6915E738E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870817   (1069640) от 17.05.2026
+
+VA - Beverly Hills Cop (Music From The Motion Picture Soundtrack) (1984) [FLAC|Lossless|image + .cue] <1985>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Patti LaBelle–	New Attitude	4:37
+2	Shalamar–	Don't Get Stopped In Beverly Hills	4:17
+3	Junior –	Do You Really (Want My Love?)	3:42
+4	Rockie Robbins–	Emergency	3:29(   Читать дальше...   )Жанр: 1984Продолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF347463109CCD0684F4BDC7832A60DD627AF83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870828   (1069639) от 17.05.2026
 
 VA - Soundtrack Smashes - The 80's (1989) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
@@ -658,93 +745,6 @@ VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A41AAE91F46233549F4BD1CAED0FA1BA7203FC39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863365   (1063477) от 04.04.2026
-
-VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gobi Desert Collective - Assez (5:02)
-02. Dj Renat - Busindre Reel (7:11)
-03. ARTYDAL - Viajero (Vocal Mix) (6:05)
-04. Marga Sol - Orolalo (4:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BD3FDA152DC097CAB0D0D093A1DE4E8FBFB239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864023   (1062939) от 08.04.2026
-
-Maura O’Connell - Helpless Heart (1989) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Stop the Girl    [0:03:13.42]
-02. Helpless Heart    [0:04:47.10]
-03. Summerfly    [0:03:02.60]
-04. Trouble in the Fields    [0:03:24.60](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE4961BD2FB61BD59B149C998F385B7AEA204CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859699   (1061238) от 17.03.2026
-
-Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daughters Of Erin (2:35)
-02. The Rap (2:34)
-03. Flow (3:29)
-04. Fantasia (4:40)(   Читать дальше...   )Жанр: Celtic, Neo-classical, New Age, Nordic FolkПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136FE356C7D81B39A356E944295B67B8B090D293
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1698045   (118608) от 08.02.2024
+
+Л. А. Исаченкова, Г. В. Пальчик, В. В. Дорофейчик | Сборник задач по физике. 9 класс (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник является составной частью учебно-методического комплекса по физике для 9 класса и содержит все виды задач различных уровней сложности, а также ответы на количественные задачи.
+
+Адресуется учащимся 9 класса учреждений общего среднего образования.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: АверсэвФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B7F282BF0A8C9E6CCF9119D296CF47E6871802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698483   (118467) от 09.02.2024
+
+Л.П. Баканина, В.Е. Белонучкин, С.М. Козел | Физика. Сборник задач по физике. 10-11 класс с углубленным изучением физики (2003) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит около 1000 задач по всем разделам курса физики в объеме и в соответствии с программой для 10 и 11 клас­сов школ и лицеев с углубленным изучением физики.
+
+Авторы при составлении сборника отдавали предпочтение за­дачам с глубоким физическим содержанием, решение которых тре­бует свободного владения физическими законами. Однако в каж­дом разделе имеются (   Читать дальше...   )Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: Вербум-МФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4873AE3C8BC5F0136B21794B5BA982FB597C56FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698475   (118424) от 09.02.2024
+
+А.П. Рымкевич | Физика. Сборник задач по физике. 10-11 класс (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118424.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник задач по физике включены задачи по всем разделам школьного курса для 10—11 классов. Расположение задач соответствует структуре учебных программ и учебников.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: ДрофаФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBA2D4A7A60011DE55A1DB5675D86846286D1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699280   (117962) от 12.02.2024
+
+Л. Нерсисян, С. Нерсисян | Изобразительное искусство 4 класс (2009) [PDF] [AM]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Կերպարվեստի 4 դասարանի դասագրքի մեջ ներառված են նկար գրեու դասեր, (   Читать дальше...   )Жанр: УчебникЯзык: АрмянскийИздательство: «Зангак» / «Զանգակ»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B703A3BD0E24DD21FC13DFBEF39DF3712797452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699548   (117869) от 13.02.2024
 
 В. В. Дорофейчик, М. А. Силенков | Физика. Сборник задач для 11 класса (2023) [PDF]
@@ -578,117 +686,6 @@ James Mitchem (editor) | My Encyclopedia of Very Important Animals (2017) [PDF] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72898E9E202DD01218F0424C54D4C17632389150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734041   (107182) от 02.07.2024
-
-Shaila Brown (editor) | Smithsonian. Ocean (2015) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте скрытые глубины океана с помощью этой потрясающей визуальной энциклопедии для детей.
-Возрастной диапазон: 8 - 12 лет
-Уровень класса: 3–7
-Океан: визуальная энциклопедия раскрывает тайны морей с помощью потрясающих изображений и красивых фотографий, которые привлекают и обучают детей. От Арктики до Карибского моря, от крошечного планктона до гигантских китов, (   Читать дальше...   )Жанр: учебное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C80F2C0984E1585EA2510F6E60C49BB60DE55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734415   (107134) от 03.07.2024
-
-Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107134.jpg" />
-</div>
-
-
-###  Подробнее
-
-From the first tools to the latest gadgets, Pocket Genius: Inventions showcases key inventors and inventions that changed the world from air, space, water, and land transportation to everyday objects in the home, medical tools and aids, plus telescopes, roller coasters, satellites, and robots, and a look at future technologies.
-Catalog entries packed with facts provide (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C623A385B6A440A5AFEB7CD1C3425C83A431AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734418   (107124) от 03.07.2024
-
-Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734444   (107115) от 03.07.2024
-
-Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Age Range: 5 - 8 years
-Grade Level: Kindergarten - 3
-Follow a Swallowtail butterfly from egg to caterpillar to pupa and then on to becoming a beautiful butterfly.
-Watch Me Grow, a groundbreaking series from DK, brings readers ages 5 and up into the fascinating world of animal development. Close-up photographs give children an animal's eye-view of growing up, while (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley PreschoolФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFE097D03BCA5285F4B0CB62841A2E55A0F00D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

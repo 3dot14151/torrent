@@ -1,3 +1,122 @@
+###  Публикация: 819506   (533682) от 07.09.2014
+
+V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronnie Price Orchestra - The First Time Ever I Saw Your Face
+02. Eddie Heywood - A Dreamer's Holiday
+03. Floyd Cramer Orchestra - It Had To Be You
+04. Ronnie Price with Nick Ingman Orchestra - Somewhere My Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367405   (533366) от 25.07.2011
+
+VA - Music Rough Guide - Arabesque (2002) [MP3|~226 kbps]<ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_533366.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:13] 01. Aisha Kandisha's Jarring Effects - A Muey A Muey
+[05:07] 02. Oojami - Fantasy
+[03:43] 03. Clotaire K - Beyrouth Ecoeurée
+[05:34] 04. Nickodemus ft. Andrea Montiero - Desert Dancer
+[06:24] 05. MoMo - Dourbiha
+[08:03] 06. Ali Slimani - S'Habi (Stereomovers remix)
+[05:41] 07. DuOuD (Mehdi Haddab-Smadj) - Zanzibar
+[04:36] 08. Mafia Maghrebine - Frère Faut Que Tu Saches
+[05:41] 09. Bled Runner ft. Dida Brother - Sidi Mansour (remix)
+[04:09] 10. Soap Kills - Tango(   Читать дальше...)2002Жанр: ethnic musicПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE86FBF253FE819264DF8E3333506932F26798BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926551   (533310) от 10.08.2015
+
+Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2011) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Else Matters
+02. Brothers In Arms
+03. Californication
+04. Don't Cry(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366000   (532734) от 25.07.2011
+
+Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Score, SoundtracksПродолжительность: 07:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051554   (532694) от 11.09.2016
 
 VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
@@ -658,122 +777,6 @@ Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312212   (530711) от 05.07.2019
-
-Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys and Girls (01:49)
-02. I Like Presents Too (01:27)
-03. Starcourt (03:05)
-04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312403   (530708) от 05.07.2019
-
-Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Responsorios (6:19)
-02. Graduale (6:38)
-03. Cosmos (4:51)
-04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312201   (530694) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312207   (530614) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
 ```
 
 https://mybot314.ru/tekegram_catalog/

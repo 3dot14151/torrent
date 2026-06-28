@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1878420   (1074656) от 
+
+VA - Celeste (mixed by Dj V) (2026) [MP3|320 Kbps] <Club House, Afro House, Tribal House, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Axwell feat. Steve Edwards - Watch The Sunrise (KVISION Remix)
+02-Jerry Ropero, Denis the Menace & Sabor x Non Grata (GR) - Coracao x Ganja (Caball Afro House Mashup)
+03-Dalida - Salama (Kev Lavigne Edit)
+04-Alexey Romeo - Night in Marrakesh (Extended Mix)(   Читать дальше...   )Жанр: Club House, Afro House, Tribal House, PopПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B06DC64D2070AA48A65A538E5E42B7E6E756A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877299   (1074010) от 
+
+VA - This is Miami Nights (2026) [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brent LeVasseur, Neon Dreams, Miami Nights - Neon Heart Trancified (7:18)
+02. Brent LeVasseur, Neon Dreams - Neon Dreams Midnight Haze Club Mix (6:58)
+03. Brent LeVasseur, Neon Dreams, Eileen Jaime - Steal The Show - Club Mix (6:20)
+04. Brent LeVasseur, Miami NightsMey - Electric Shadows (5:51)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE190E0CE44CE15BF5F1846653B86B42439EBE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876381   (1073222) от 
 
 VA - REDISCOVER THE '80s: Synth Pop (2026) [MP3|320 Kbps] <Synth Pop>
@@ -688,64 +746,6 @@ Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78C7A5B55FE24893BD39825A44773A7AE8DD7C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855349   (1057920) от 22.02.2026
-
-Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057920.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:40] . 01-Ten O'Clock Postman
-[3:03] . 02-Angel On Wheels
-[4:37] . 03-Oh Susie
-[3:11] . 04-She Wants Me(   Читать дальше...   )Жанр: electronicПродолжительность: 03:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03381F7800EDFB318EBEC85DEBC4D0D215534F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855195   (1057808) от 21.02.2026
-
-VA - DOWN LOW 9 (2026) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Agamirov & Anton Ishutin - The Boss (Original Mix) (5:29)
-02. Jordan Burns - Weekend - Slowed Mix (3:43)
-03. MVDNES - Carnage (3:32)
-04. PØP CULTUR, HÄWK - Stoppin (2:31)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 02:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BFF369738AA36B4E7BF6D0D620704FBBA8CFCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

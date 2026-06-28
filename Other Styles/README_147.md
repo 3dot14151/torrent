@@ -1,3 +1,119 @@
+###  Публикация: 1338894   (267982) от 17.11.2019
+
+VA – Super Instrumental Vol.2 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A. Ventura - Schiwago-Melodie
+02. C. Santana - Moonflower
+03. D. Modena - Song Of Ocarina
+04. G. Ventura - Une Belle Historie(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F50348F91080C64A207C9A0608706BE5552769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190292   (267760) от 09.12.2017
+
+Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Ambush
+3. Horde Patrol
+4. The Prince(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F52E08B8D55D5887D6E79C34A982664C7724DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190497   (267572) от 09.12.2017
+
+VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kbps] <Reggaeton, Salsa, Bachata>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquito Team Band - Abreme Los Caminos 3:21
+02. Raulin Rodriguez - Corazon Con Candado 4:23
+03. Osmani Garcia "La Voz", Dayami La Musa - Bumper 3:16
+04. El Chacal - Las Balas 3:50(   Читать дальше...   )Жанр: Reggaeton, Salsa, BachataПродолжительность: 03:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277E56BBE42033FC921C698377A92040F68E68AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219410   (267474) от 05.12.2018
+
+Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandora
+02. Dreaming Under Branches
+03. Na Vi
+04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 80962   (267387) от 05.12.2018
 
 Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original Soundtrack) (2003) [MP3|186 кб/с]<Soundtrack>
@@ -627,122 +743,6 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DB9467824A3592B0C89143501FAD01AE60F00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339504   (264283) от 22.11.2019
-
-VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Come All Ye Faithful (2:12)
-2. It's Christmas (2:25)
-3. Christmas Is Near (3:03)
-4. Christmas Time Back Home (3:12)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19861F651A36628C2F6A3E779799E95F84384BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339737   (264277) от 22.11.2019
-
-Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264277.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Across The Quiet Universe 5:18
-2. Calypso 4:52
-3. Blue World 4:39
-4. Eternal 5:57(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFC523F97C804A5F24AA72736052C275A8978F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338799   (264265) от 22.11.2019
-
-Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Theme
-02. Preparing for battle
-03. The Siege of Osaka
-04. Trouble on the Nakasendo(   Читать дальше...   )Жанр: OSTПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3C78C43132CC7D584B9CA855014B9873F33DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339819   (264210) от 22.11.2019
-
-The Chill Out Orchestra - Another Brick in the Wall (The Pink Floyd Cover Versions) (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Brick in the Wall (Original Mix) (03:57)
-02. The Other Side of the Moon (Original Mix) (05:17)
-03. Wish You Were Here (Original Mix) (04:33)
-04. Mother (Original Mix) (03:19)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F7029A209F6BE60C65139C7244889E60BE35C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

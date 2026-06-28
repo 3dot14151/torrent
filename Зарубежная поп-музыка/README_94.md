@@ -1,3 +1,32 @@
+###  Публикация: 1756660   (39566) от 22.10.2024
+
+Amanda Lear - Amanda Lear / Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Pack
+02. Queen Of Chinatown
+03. The Lady In Black
+04. These Boots Are Made For Walkin(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358D744369D7B0D7297AE65616F308E0A6756B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756861   (39392) от 24.10.2024
 
 Samantha Fox - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock>
@@ -716,35 +745,6 @@ VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1A512EC4BE89280184DA18E1A0258B898A1D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775902   (29376) от 29.01.2025
-
-VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic, Pop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinners - Working My Way Back To You Babe
-02. Real Thing - Can You Feel The Force
-03. Instant Funk - I Got My Mind Made Up
-04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C95E185476D1E4D10C64D9BE76B1430D74FEFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

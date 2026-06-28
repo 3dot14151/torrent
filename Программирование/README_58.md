@@ -1,3 +1,136 @@
+###  Публикация: 1736935   (49968) от 15.07.2024
+
+Е. Ю. Хрусталева | «1С:Предприятие.Элемент». Возможности встроенного языка (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга адресована специалистам, разрабатывающим прикладные решения на платформе «1С:Предприятие 8». Она содержит сжатое описание особенностей нового языка разработки, который используется в технологии «1С:Предприятие.Элемент». Основная цель издания – помочь максимально быстро начать разработку на новом языке, овладев новыми возможностями, подходами и не упустив (   Читать дальше...   )Жанр: 1С:Предприятие, программирование 1С, продукты 1СИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737119   (49956) от 15.07.2024
+
+Nimish Sanghi | Deep Reinforcement Learning with Python: RLHF for Chatbots and Large Language Models. Second edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gain a theoretical understanding to the most popular libraries in deep reinforcement learning (deep RL). This new edition focuses on the latest advances in deep RL using a learn-by-coding approach, allowing readers to assimilate and replicate the latest research in this field.
+New agent environments ranging from games, and robotics to finance are explained to help (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Apress Media LLCФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737446   (49737) от 17.07.2024
+
+Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using SwiftUI, Swift 5.5 and Xcode 13 (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49737.jpg" />
+</div>
+
+
+###  Подробнее
+
+The goal of this book is to teach the skills necessary to build iOS 15 applications using SwiftUI, Xcode 13 and the Swift 5.5 programming language.
+Beginning with the basics, this book provides an outline of the steps necessary to set up an iOS development environment together with an introduction to the use of Swift Playgrounds to learn and experiment with Swift. (   Читать дальше...   )Жанр: Программирование, язык программирования Swift, программирование для AppleЯзык: АнглийскийИздательство: Payload MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738185   (49287) от 21.07.2024
+
+T. Edet | Database Fundamentals (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49287.jpg" />
+</div>
+
+
+###  Подробнее
+
+In "Database Fundamentals: Strategies for Efficient Access to Information and Enhanced Decision Making," you’ll explore the historical evolution of databases, understand their critical importance in decision-making, and gain an in-depth understanding of various database models including hierarchical, network, relational, and object-oriented models. The (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CompreQuest BooksФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738195   (49280) от 21.07.2024
+
+S.L. Nita, M.J. Mihailescu | Cryptography and Cryptanalysis in Java. Second edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cryptography and Cryptanalysis in Java: Creating and Programming Advanced Algorithms with Java SE 21 LTS and Jakarta EE 11.
+Here is your in-depth guide to cryptography and cryptanalysis in Java. This book includes challenging cryptographic solutions that are implemented in Java 21 and Jakarta EE 11. It provides a robust introduction to Java 21's new features and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739210   (48855) от 26.07.2024
 
 О. Теобальд | Машинное обучение для абсолютных новичков. Вводный курс, изложенный простым языком (2024) [PDF]
@@ -548,138 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F04380AC9ABC3B6D6FF9647379AB4D90496BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758391   (38563) от 02.11.2024
-
-Павел Меликов | Изучаем основы Python. Практический курс для дата-аналитиков (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет собой практический курс, состоящий из 13 разделов (12 из которых интерактивные — для среды JupyterLab). Курс содержит введение в основы языка Python с дальнейшим упором на аналитику данных (работа с наборами данных, статистика, язык SQL, метрики и машинное обучение). Формат материала прост для понимания, а каждый новый раздел включает в себя (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Ай Пи Эр МедиаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C66203303377182FD0C18648AED2DD81ED1096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757533   (38456) от 03.11.2024
-
-Павел Анни | Поговорим на Python. Разработка ПО для начинающих (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программирование — это приключение, полное трудностей, нового опыта, побед и поражений. В книге «Поговорим на Python» вы присоединитесь к Эрику и Саймону, которые учатся программировать на Python и создают свое первое приложение. Книга написана специально для будущих программистов и идеальна, чтобы начать осваивать навык, который останется на всю жизнь!
-
-Книга «Поговорим (   Читать дальше...   )Жанр: Языки программированияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F443A32A2A08D006A378A7BBFBDF1E06E3E06B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759595   (37813) от 09.11.2024
-
-Morten Barklund | React in Depth (2024) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поможет вам овладеть стандартными навыками работы с React для создания эффективных и масштабируемых приложений. Если вы знаете основы, эта книга проведет вас через продвинутые паттерны компонентов, методы оптимизации и инструментарий разработчика. Каждый новый навык представлен и объяснен на практических примерах — от погодного приложения до клона Wordle. Научитесь (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning Publications CoФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760652   (37268) от 15.11.2024
-
-Томас Нилд | Математика для data science (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освойте математический аппарат, который необходим, чтобы преуспеть в сфере data science, машинного обучения и статистики. Автор книги Томас Нилд поможет вам разобраться в таких дисциплинах, как математический анализ, теория вероятностей, линейная алгебра и статистика, и научиться применять их в контексте таких методов, как линейная регрессия, логистическая регрессия (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ГавриловИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED530F1BC5054152D9C8ED1D792AA04F99475C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761409   (36709) от 20.11.2024
-
-Матеуш Факур | Causal Inference на Python. Причинно-следственные связи в IT-разработке (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько покупателей привлечет дополнительный доллар, вложенный в онлайн-рекламу? Какие клиенты будут покупать только по скидочному купону? Как разработать оптимальную стратегию ценообразования? Причинно-следственный анализ (casual inference) — лучший способ разобраться, как влиять на бизнес-метрики, которыми вы хотите управлять. И для этого понадобится всего пара (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Sprint BookФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1A66AFCE1F6C1C24AB3C0C2218BDC4CFFF9E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

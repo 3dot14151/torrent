@@ -1,3 +1,177 @@
+###  Публикация: 1426032   (216906) от 23.11.2020
+
+Ансамбль Детские Песни - Оранжевая песня (2019) [AAC|~301 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В каждом маленьком (1:37)
+02. Неприятность эту мы переживём (1:55)
+03. Рыжий, рыжий, конопатый (1:59)
+04. Топает малыш (2:40)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181EFE0E14A06ABAB3AAF9AAE9AF23848BA815F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426036   (216881) от 23.11.2020
+
+Ансамбль Детские Песни - Приходи, сказка! (2020) [AAC|~302 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большой хоровод (2:03)
+02. Три белых коня (2:35)
+03. В синем море, в белой пене (2:36)
+04. Во поле берёза стояла (1:53)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA6CE48CE58106AC4DC7517445F9DA5FAE72470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426035   (216874) от 23.11.2020
+
+Ансамбль Детские Песни - Алфавит (2020) [AAC|~302 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня кота Леопольда (1:59)
+02. Бандито (1:46)
+03. Доброта (2:28)
+04. Из чего же? (2:08)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16096DA6EA5FF3C1DAB49DFAD7444E81D8D007D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426038   (216850) от 23.11.2020
+
+Ансамбль Детские Песни - Дельфины (2020) [AAC|~286 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пропала собака (2:44)
+02. Подарки (2:11)
+03. Хороший ты парень, Наташка (2:19)
+04. На свете (1:10)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AEE3176C903737B9E2DDD0DFEC5D715D6E545F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426028   (216825) от 23.11.2020
+
+Ансамбль Детские Песни - По дороге с облаками (2019) [AAC|~304 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Паровозик из Ромашково (1:09)
+02. Ёлочке холодно зимой (1:53)
+03. Колыбельная медведицы (3:02)
+04. Ничего на свете лучше нету (1:31)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2E8B459ACACB5BCBDA27BBEE9964BE861BFFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426042   (216749) от 23.11.2020
+
+Ансамбль Детские Песни - Теремок (2020) [AAC|~289 Kbps] <Детская музыка>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Учимся считать (1:19)
+02. В первый класс (1:18)
+03. Расскажи сказку (1:38)
+04. Зайчик и лисичка (1:28)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FADAE96EC651CD8838A2F84C7E001923924CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426026   (216714) от 23.11.2020
 
 Ансамбль Детские Песни - В гостях у сказки (2018) [AAC|~294 Kbps] <Детская музыка>
@@ -534,177 +708,6 @@ Zodiac - Disco Alliance (2013) [AAC|~350 Kbps] <Electronic, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220B51EDEDED08CEF12162D4C207CA1025EC019E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515097   (213946) от 05.12.2021
-
-Arkay Koo - Terra Server (2021) [AAC|~328 Kbps] <Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.I'm (Original Mix) (5:45)
-02. Dia Verde O Fuera Del Tiempo (Original Mix) (8:24)
-03. Cybee (Original Mix) (6:16)
-04. Quantum Flowers (Original Mix) (6:12)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B0DABAFE2B4BEBBB1553F4276E84B5185EC076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515085   (213937) от 05.12.2021
-
-VA - In Love with Lounge, Vol. 4 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weathertunes - Take It Easy (Original Mix) (4:08)
-02. Road - Saudades do Brasil (Original Mix) (4:29)
-03. Euphonic Traveller - Le Ciel de Paris (Pier-O Pont des Arts Mix) (3:55)
-04. Yantra Mantra - Pink City (Ayurveda Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3904034FB26D5F558B8AB24BF2D31848F535A6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193828   (213922) от 23.12.2017
-
-Снеговик / The Snowman (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213922.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, ШвецияЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон, Шарлотта Генсбур, Йонас Карлссон, Майкл Йэтс, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  РусскиеПродолжительность: 1:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0448205CDC76C2247F1578FC33ED00D35DCAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515079   (213873) от 05.12.2021
-
-VA - Bedtime Stories, Vol. 1 (A One Night Lounge Affair) (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Summer in the City (Original Mix) (2:51)
-02. Carlos Corona - Empty Heart (Original Mix) (3:36)
-03. Andrew Morel - Make Your Heads Well (Original Mix) (4:06)
-04. Cool Laguna - Drive the Change (Chillout Mix) (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55271DEA8DF1F87E89C7016C3AA83646430DB134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515083   (213864) от 05.12.2021
-
-VA - Bossa & Latin Flavours (2021) [AAC|~339 Kbps] <Nu Jazz, Bossa Nova, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nostra - Inverno (Cybophonia Bossa 'N' Funk Remix) (10:38)
-02. 12 Fingers, Viviane Cruz - Rio (5:46)
-03. Bossa Nostra, Bruna Loppez - Espera (2:07)
-04. Silvia Donati, Clan Greco - Avenida (4:57)(   Читать дальше...   )Жанр: Nu Jazz, Bossa Nova, LoungeПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1C025B740228959E6C3970A21A2BF962C7B380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515113   (213850) от 05.12.2021
-
-VA - Lounge Erotique (Seductive Night in a Loungy Mood) (2015) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giacomo Bondi - A Noite Passa (4:39)
-02. St Project - One Night Only (3:35)
-03. Francesco Demegni - Seduction (3:15)
-04. Luna Lounge - Bengala Mantra (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59579EDFABD4A3F008E35E8A7AFC3A9BB1B005C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

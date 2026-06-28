@@ -1,3 +1,171 @@
+###  Публикация: 1505642   (803035) от 28.10.2021
+
+VA - Trance Missiles, Vol. 3 (2021) [AAC|~343 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. André Visior, Cathy Burton - Daylight (Radio-Edit) (4:22)
+02. Tau-Rine - Explorer (6:25)
+03. Matthias Pahl - Blow Out (Gayax Remix) (7:17)
+04. Hoyaa - Fragile (Ahmed Romel Remix) (8:52)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8E54F5E5029DE9B0E320D96DD3E803312B87C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505638   (803025) от 28.10.2021
+
+VA - Trance Missiles, Vol. 1 (2021) [AAC|~339 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synfoly, Misa D - Dark Light (7:12)
+02. Hypertrophy, Nicola Quilter - OMTS (Dark Moon & Invision Remix) (7:09)
+03. Dirkie Coetzee, Neo Kekkonen, Ridgewalkers - I Can See You Now (Neo Kekkonen 130 BPM Version) (5:32)
+04. Stella Project - Calypso (6:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBBF14EFD3EBB188F12D1B4452BA981DA6B839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505644   (803023) от 28.10.2021
+
+VA - Trance Missiles, Vol. 5 (2021) [AAC|~334 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Skyer - Polar Star (6:55)
+02. Dave Joy - First Impression (Yoshi Remix) (6:27)
+03. Matthias Pahl - Blow Out (Calvin O'Commor Remix) (6:53)
+04. Ikerya Project - Survivor (7:47)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B7665403BC78CAFAE209336C4607D478F85032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120305   (803016) от 30.03.2017
+
+Идеальные незнакомцы / Perfetti sconosciuti (2016) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семеро закадычных друзей, собравшись за ужином, в шутку начинают игру — читать все смс вслух, а на звонки отвечать по громкой связи. Они и представить себе не могут, какие скелеты вылезут из их шкафов и какие удивительные открытия им предстоит сделать.Производство: ИталияЖанр: Драма, комедияРежиссер: Паоло ДженовезеАктеры: Джузеппе Баттистон, Анна Фольетта, Марко Джаллини, Эдоардо Лео, Валерио Мастандреа, Альба Рорвахер, Касия Смутняк, Бенедетта Поркароли, Элизабетта Де Пало, Томмазо ТатафьореПеревод: Дублированный (iTunes)Субтитры: Русские,  Итальянские,  АнглийскиеПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB63C91A1268AC422EBF2F3B2F359A39E9CADA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885124   (802983) от 05.04.2015
+
+Avengers Grimm  /  Мстители: Гримм (2015) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Румпельштильцхен разрушает Волшебное зеркало и убегает в современный мир, четыре принцессы -Золушка, Спящая красавица, Белоснежка и Рапунцель - проникают на Землю вслед за ним. Хорошо обученные и наделены магическими способностями, эти девушки должны сразиться с Румпельштильцхеном и его армией рабов, прежде чем он поработит всех на Земле.Производство: СШАЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джереми ИнманАктеры: Каспер Ван Дин, Лорен Паркинсон, Лу Ферриньо, Майлин Сарли, Marah Fairclough, Райли Вандербилт, Elizabeth Peterson, Кимо Леопольдо, Andrew E. Tilles, Жюстин ХерронПеревод: Любительский (одноголосый) (datynet)Язык субтитров: АнглийскийПродолжительность: 01:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86B11E97C1B18ADAAB243FE7143033D00155BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884619   (802979) от 05.04.2015
+
+Bon Jovi - Have A Nice Day (2005) [ALAC|2.0 24/48|tracks]<Rock>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have A Nice Day
+02. I Want To Be Loved
+03. Welcome To Wherever You Are
+04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF27E56D2E73CC03505D640DBB02C8E7F55F0720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120348   (802918) от 30.03.2017
 
 Идеальные незнакомцы / Perfetti sconosciuti (2016) BDRip [720p] ATV
@@ -544,177 +712,6 @@ VA - Living Lounge (Music For Your Soul) (2021) [AAC|~318 Kbps] <Lounge, Chill O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768E536985B6268865EE69C548C52C2073EF3F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506083   (801159) от 30.10.2021
-
-VA - Chill out Mood, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madhukar - The Garden of Love (Original Mix) (5:41)
-02. Jazzamor - Fearless Migrants (Original Mix) (3:24)
-03. Roberto Bronco - Lighthouse (Original Mix) (6:19)
-04. Steen Thottrup - El Alba (Original Mix) (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B0F4CC136759F25419E8434D80AEBF0BED130C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506340   (801157) от 30.10.2021
-
-VA - Vanlife Chill, Vol. 8 (2021) [AAC|~312 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodean - The Poolside Chill (5:17)
-02. Roberto Bronco - Hang Loose (7:38)
-03. Tapelapse - Daydreaming (2:10)
-04. Twentyeight - By My Side (4:39)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FB9EA35C658D4389B3AD1EC1F71629F38955E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506073   (801154) от 30.10.2021
-
-Electric Light Orchestra - Ballads (2021) [AAC|~338 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Radio (5:04)
-02. Eldorado (5:18)
-03. Can't Get It Out of My Head (2012 Version) (4:35)
-04. Mister Kingdom (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865C74834423401EAB98AF8644124F83B92358A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121151   (801119) от 01.04.2017
-
-Аисты / Storks (2016) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.Производство: СШАЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Даг СвитлэндАктеры: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (Blu-ray 3D NORDiC)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19B7DC5491FA70D7031A2C9FBE399254217096A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506354   (801116) от 30.10.2021
-
-VA - Spiritual Spa, Vol. 3 (2021) [AAC|~295 Kbps] <Downtempo, Balearic, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Bach - Jade (Original Version) (3:43)
-02. Nordiatic - Rough and Smooth (1:14)
-03. Sebastian Bach - Transcending (Original Version) (3:48)
-04. Dave T - Lost Inside Your Love (Original Mix) (5:09)(   Читать дальше...   )Жанр: Downtempo, Balearic, Chill OutПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6D73D68DB6D6DF7E51968A89092B86510E0476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506149   (801103) от 30.10.2021
-
-VA - Ibiza Winter Session 2022 (The House Hotties) (2021) [AAC|~328 Kbps] <Electro, Techno, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirillich - How Low Can You Go (Pushkarev & Mike Temoff Remix) (6:30)
-02. Rino(IO)DJ - The Days of Disco (Original Mix) (5:30)
-03. Edwin Jack - One & Only (Sanny X & Funky Spacer Remix) (6:16)
-04. Frank Cotardo - Storm (Edwin Jack Remix) (5:59)(   Читать дальше...   )Жанр: Electro, Techno, HouseПродолжительность: 02:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50B80AE3CE4CE0ED64DDA4AA924B46EAA17E8C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

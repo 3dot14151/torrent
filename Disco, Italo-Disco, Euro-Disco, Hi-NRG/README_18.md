@@ -1,3 +1,61 @@
+###  Публикация: 1142830   (640911) от 15.06.2017
+
+VA - Disco Music Comeback (The Return Of The Glory Hits) (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travoltas - Boogie Nights (Radio Version) (3:58)
+02. Jack Dunston - Street Life (Radio Version) (3:41)
+03. Glenn & Eddie - Rapper's Delight (Rocfam Mix) (4:00)
+04. Jill Razer - Last Night a DJ Saved My Life (Radio Version) (4:07)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACAB3031C7E5DFE192882488350C99F304F9363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228042   (639272) от 30.05.2018
+
+VA - Dino Maxi Tops Vol. 1-5 (2001-2006) 10 CD, Compilation, Limited Edition [MP3|320 Kbps] <Italo-Disco, Europop, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639272.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pet Shop Boys - It's A Sin (Disco Mix) (7:40)
+02. Samantha Fox - Touch Me (I Want Your Body) (5:18)
+03. David Hasselhoff - Je T'Aime Means I Love You (5:45)(   Читать дальше...   )Жанр: Italo-Disco, Europop, Synth-popПродолжительность: 12:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B03D1E00C7646CD71D85463FD3A03C755E1E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143038   (639221) от 16.06.2017
 
 Estimado - Escape To Heaven (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -691,64 +749,6 @@ Revelacion - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67AFEEBECEAD12546E6BF092618765D9C8C78063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145932   (618094) от 27.06.2017
-
-La Flavour - Mandolay (1980) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandolay (6:20)
-02. Only The Lonely (Have A Reason To Be Sad) (4:32)
-03. Can You Dance (3:27)
-04. Can't Kill The Beat (3:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22433EE98857DA830CD04A83859B65240E08D59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230329   (617385) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert X - Vision
-02. Kono - Cleopatra (Dance Version)
-03. Raigo - Let Me Live
-04. J. Ford - Mind Wanderer (Japanese Mix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
 ```
 
 https://mybot314.ru/tekegram_catalog/

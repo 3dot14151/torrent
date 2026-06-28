@@ -1,3 +1,30 @@
+###  Публикация: 1371822   (888404) от 01.04.2020
+
+Daniel Behle - George Petrou Gluck: Opera Arias (2014) [FLAC|Lossless|image + .cue] <Classical opera vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antigono, Wq 21
+1. "Quercia annosa sull'erte pendici" (Ed. Giovanni Secchi) 4:06Жанр: Classical opera vocalПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6033B6C7F86D7293C3A132F82A504757C0EAC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994760   (888083) от 09.03.2016
 
 Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
@@ -709,35 +736,6 @@ Jenny Oaks Baker - Classic - The Rock Album (2014) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:790AE970F87360C56578A841E17B54533161879A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996521   (878769) от 14.03.2016
-
-Giuseppe Verdi - Un ballo in maschera (2014) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Opera>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prelude
-01. Prelude (4:17)
-Act 1
-02. Act 1: "Posa in pace, a'bei sogni restora" (Chorus, Samuel, Tom) (1:35)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CABF062AFA5459962EDF1EFA9DDACE6CDC0DAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1235177   (564203) от 09.07.2018
+
+VA - Trance Summer Essentials (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johan Vilborg - Altara (original mix)
+02. Eleven Five & Arielle Maren - Remember (Blood Groove & Kikis remix)
+03. Peter Illias & Lukas Solcani - Be Mine (original mix)
+04. Tara Louise & Masoud - My Dreams (Vintage & Morelli dub remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26478AAC5FC8B1BB26172DADDF582188EDEEB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304253   (564101) от 26.05.2019
+
+VA - Afterdark 002 [Los Angeles] (2019) (Mixed by Sneijder) [MP3|320 Kbps] <Trance, Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sneijder – Back Home (Club Mix) (8:34)
+02. Cold Blue – Another Life (7:30)
+03. Alessandra Roncone – Redemption (4:38)
+04. Billie Gillies – EvolveЖанр: Trance, Psy-TranceПродолжительность: 05:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78097282D39455A50D80B9BE476B1DCC20D13A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235627   (558672) от 12.07.2018
+
+VA - Trance Space Sound (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maratone and Dreamy feat. Emma Chatt - Out from Under (Radio Edit)
+02. Iris Dee Jay and Robert Holland feat. Erin - Faster (Type 41 Dub Mix)
+03. Max Denoise and Swoan Mayer feat. Hoxygen - Suspiria (Original Mix)
+04. DJ Gard - Industries (Extended Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC33D1B472842DABC6E362D16EDBE853E4C17B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306162   (555804) от 03.06.2019
 
 VA - Trance Euphoria Vol.4 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4A6A4569039B1B3B92C270DAC6CA8D8846202E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558217   (533754) от 19.06.2022
-
-VA - Black Hole Trance Music 06-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. tyDi & JES - Just Believe (Darude Extended Remix) [6:13]
-02. D72 & Alex Holmes - Finish Line (Extended Mix) [6:15]
-03. Dennis Sheperd & Mira Feder - Torture (Extended Mix) [4:55]
-04. Solarstone - Sovereign (Extended Mix) [7:44](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169AE07DE6115B206F503C4FEEEB1C1D6A65BBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155410   (533623) от 03.08.2017
-
-VA - A World Of Trance Vol. 4 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mellari - Sputnik (Ads Peri Remix) (07:44)
-02. Spaceptima - The End Of Melancholy (Original Mix) (06:54)
-03. Yuri Pike - Heaven Of Hope (Original Mix) (feat. Maureen Sky Jones) (06:09)
-04. Alex Shevchenko - Watching The Stars (Original Mix) (07:27)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0339111D57FC470106FCEC035A1551AD730CD1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155563   (533616) от 03.08.2017
-
-VA - Uplifting Trance Generation Vol.2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Damian Wasse - Rise Of Nation (Intro Mix)  5:33
-02.  Airwave - The Quest For Beauty (Original Mix)  12:05
-03.  Dereck Recay - Dream Way (Pluton Remix)  9:15
-04.  Andre Visior & Kay Stone - Sunrise (Jens Lonnberg Radio Version)  3:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DCDB26848D6999C223994A443C33C89D2CE2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

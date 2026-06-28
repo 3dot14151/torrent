@@ -1,3 +1,119 @@
+###  Публикация: 1227598   (644737) от 27.05.2018
+
+M.I.N.E (Marcus Meyn of Camouflage) - Unexpected Truth Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One
+02. Same but Different
+03. Meormy
+04. Undone(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03722D32D74F28402E23EA3BCDE2E289E3F3844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541825   (642842) от 04.04.2022
+
+Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Contact (00:03:55)
+02 - Love Scene in a Neon City (00:03:33)
+03 - Falling (00:03:03)
+04 - It's a Matter of Time (00:04:35)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E824E0F5D888EF37921681E1977543039139CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541893   (642728) от 04.04.2022
+
+Dmitriy N'Elpin (Dmitriy Nelepin) - Universe 2 Beyond Consciousness (2021) [FLAC|Lossless|image + .cue] <Electronic, Industrial, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets of the Universe
+02. Space hunters
+03. Dark Planet
+04. Droid attack(   Читать дальше...   )Жанр: Electronic, Industrial, Synth-popПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D7A0483DED304D3F179F5693E642B3292BEF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142553   (640907) от 15.06.2017
+
+Missing Persons - Spring Session M (1982) Reissue, 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noticeable One
+02. Windows
+03. It Ain't None Of Your Business
+04. Destination Unknown(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD51250C25C2E94EA989258804E673584C605367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033539   (637848) от 11.07.2016
 
 Space - All Gold Of The World (2002) [FLAC|Lossless|image + .cue] <Electronic>
@@ -624,122 +740,6 @@ VA - Blank & Jones Present: So80s (Soeighties) 10 (2016) [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC8C05DA862F11A345E955DE838AC0DF0B618C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545313   (614690) от 19.04.2022
-
-Давид Тухманов, Электроклуб - Тёмная лошадка (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нервы, нервы...
-02. Воздушные замки
-03. Чистые пруды
-04. Но всё-таки лето(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296336   (613310) от 16.04.2019
-
-VA - Kiez Beats: Synthwave, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Syntwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurecop! - Venice Beach (5:34)
-02. Sally Shapiro - All My Life (5:52)
-03. Room8 - Visions of You (4:33)
-04. Le Matos - All My Life - Venice Beach (4:33)(   Читать дальше...   )Жанр: Synthpop, Syntwave, RetrowaveПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9123DAEE2938914D8C6B9B9003382F7379433AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147281   (609384) от 02.07.2017
-
-Northern Lite - Hollywood Girl (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609384.jpg" />
-</div>
-
-
-###  Подробнее
-
-1/6. Hollywood Girl (5:13)
- 2/6. Enjoy the Silence (4:00)
- 3/6. Right Now (5:11)
- 4/6. Mistakes (4:37)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433E07C6FEE042D44427818F58B3E117B24B3CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296874   (608408) от 19.04.2019
-
-VA - Kiez Beats: Synthwave, Vol. 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina - My Mistake (4:04)
-02. Le Matos - The Kid (6:00)
-03. Das Mortal - Hotline Miami II (3:47)
-04. Germany Germany - With You (feat. Kotomi) (4:16)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8082BED0A059F1ED64C8EA82730FC026F064FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1143548   (635252) от 18.06.2017
+
+Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Dancer
+02. Hotline
+03. In The 25th Century
+04. Living In A Fantasy (Single Version)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67473EEA5403D1DA6F69AA0F99FC73D57308C90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143546   (635250) от 18.06.2017
+
+Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taken To The Stars
+02. Videogirl
+03. Digital Love
+04. Lightspeed(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D708678DE1AAFE7962F2B7AD0B2514F2796EC1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143552   (635122) от 18.06.2017
+
+Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora 5:26
+02. Night Sky 4:58
+03. You Tell Me 3:48
+04. The Future 4:15(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542881   (633431) от 09.04.2022
+
+Patty Ryan - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Love, You're My Life
+02. I Don't Wanna Lose You Tonight
+03. Love Is The Name Of The Game
+04. Love Emotion(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6175A5487D665057AC8A6F9CBF36F6E691B2F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034953   (632162) от 14.07.2016
 
 Ottawan - серия "Золотые хиты дискотек" (2001) compilation [FLAC|Lossless|image + .cue] <Disco>
@@ -641,122 +757,6 @@ VA - ZYX Italo Disco New Generation vol.7 (2015) 2CD, Compilation [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E72A82EA21A79C5B9B61AEE4230A8C434BE30A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148287   (604260) от 05.07.2017
-
-VA - ZYX Italo Disco New Generation vol.8 (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven42 Feat. Mirko Hirsch - Strong To Fight (Extended Version) (00:06:17)
-02. Lenroy - You Are The Girl (Extended Edit) (00:07:10)
-03. Magic System DJ - Angels (Extended Version) (00:06:30)
-04. Cristina Manzano - Only Dreams (Extended Edit) (00:07:02)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E6BACF86C65AC091F7A85CC9FE4DE526499568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231552   (603198) от 21.06.2018
-
-Italoconnection - Metropoli (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizon (5:00)
-02. Humanize (3:55)
-03. Sleeping (4:39)
-04. King of the Night (3:39)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467FE3BC3DD30DFA5BD04C1AABDE0C33CD8A447C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231943   (603175) от 21.06.2018
-
-Donna Summer - Love to Love You Donna (2013) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love To Love You Baby (Giorgio Moroder Feat. Chris Cox Remix) (4:21)
- 02. Dim All The Lights (Duke Dumont Remix) (6:01)
- 03. Hot Stuff (Frankie Knuckles And Eric Kupper As Director's Cut Signature Mix) (6:00)
- 04. I Feel Love (Afrojack Remix) (6:00)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2D3EB6C301A8AF9E7682B90771E5C91E1D4777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548074   (599882) от 02.05.2022
-
-Modern Talking - Les Essentiels (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco,Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Louie
-02. You're My Heart You're My Soul
-03. Cheri Cheri Lady
-04. You Can Win If You Want(   Читать дальше...   )Жанр: Euro-Disco,EuropopПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636F0CA4E86D35595C14D94451ECB035AEF60385
 ```
 
 https://mybot314.ru/tekegram_catalog/

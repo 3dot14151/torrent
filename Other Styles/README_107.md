@@ -1,3 +1,137 @@
+###  Публикация: 935945   (497520) от 10.09.2015
+
+VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Lorenzito - Cika (feat. Mario)
+02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
+03. Northbound - Holy Road
+04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381509   (497179) от 30.08.2011
+
+VA - The Rough Guide To Irish Music (1996) [FLAC|Lossless] <world, celtic, irish>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_497179.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:54] 01. Dolores Keane - Solid Ground
+[03:17] 02. Altan - Tommy Peoples / The Windmill / Fintan McManus's
+[05:46] 03. Clannad - Coinleach Ghlas An Fhómhair
+[03:10] 04. Eileen Ivers - On Horseback
+[02:49] 05. Kevin Crawford - Season Of Mists
+[05:01] 06. Déanta - The Lakes Of Pontchartrain
+[04:37] 07. Patrick Street - The White Petticoat / The Kerry Jig
+[02:59] 08. Sliabh Notes - Terry 'Cuz' Teahan's Polka / Murphy's Polka
+[03:51] 09. Dervish - Molly And Johnny
+[04:18] 10. Joe Derrane & Carl Hession - Humours Of Lissadell(   Читать дальше...   )1996,Жанр: world, celtic, irishПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543115   (496433) от 05.09.2012
+
+Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496433.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:18) 01. Too Late
+(3:56) 02. The Tree In The Heaven
+(3:03) 03. Beautiful Bride
+(4:29) 04. In Love With You
+(4:14) 05. A Letter To Myself
+(3:40) 06. Just When I Needed You Most
+(4:54) 07. There Is Not So Easy
+(4:34) 08. Zhuyingtai
+(4:28) 09. Flower Sea
+(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543094   (496339) от 05.09.2012
+
+Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496339.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:40) 01. Preludes
+(6:34) 02. April Morning
+(6:24) 03. Bubbles
+(5:07) 04. Aurora
+(5:31) 05. Healing Waters
+(6:23) 06. Rebirth
+(5:43) 07. Bliss
+(5:28) 08. Kama
+(6:29) 09. Aqua
+(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543054   (496086) от 05.09.2012
 
 WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
@@ -679,122 +813,6 @@ Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937359   (490071) от 14.09.2015
-
-Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
-02. Marcelo Zarvos - Hawaii (01:29)
-03. Marcelo Zarvos - Rivalry Call (01:17)
-04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A264F9F7B544FB4CE42F3ECA50C6783AC2877486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937275   (489897) от 14.09.2015
-
-Ernesto Cortazar - Memories Of The Fall (2010) [MP3|320 кб/с]<Instrumental, Neoclassical, New age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Of The Fall
-02. Lady
-03. Living A Dream
-04. Falling Leaves(   Читать дальше...   )Жанр: Instrumental, Neoclassical, New ageПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5D20E0EF1BD519F926CB5E82690F2D82AEB4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055451   (488360) от 22.09.2016
-
-David Hollandsworth - Edge of Forever (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Destination (02:20)
-02. A Road Called Hope (04:43)
-03. Calm Night (01:24)
-04. Edge of Forever (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292B27CB2C48119AFBC4EA393D18556DA3381480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055340   (488259) от 22.09.2016
-
-Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inception (01:18)
-02. Beauty (04:24)
-03. Nature (06:08)
-04. Love (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95281207FBDE2B0C8EAD12EAD12FDE952CE095B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 929001   (520309) от 18.08.2015
+
+Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1999-2003) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charra Broiled (1:29)
+02. Woman Can Drive (2:39)
+03. Moribund Mifune (3:49)
+03. Kid Fried (4:49)(   Читать дальше...   )Жанр: Score |Продолжительность: 05:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA806027F35FEC68DB1432C76D90CFF2A8398C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929489   (519591) от 19.08.2015
+
+Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Session
+02. Long Rain
+03. Elements
+04. Four(   Читать дальше...   )Жанр: Ambient, New Age, ElectronicПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0FC368631D7B7502B7DA1CAEA2D6AF60098B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241684   (519211) от 18.08.2018
+
+Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Endless Sky
+02 Deep Blue
+03 A Distant Light
+04 1924(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAA5CDDB7A9948EF2730499F87311FF71C9CB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241643   (519197) от 18.08.2018
+
+Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urban Warfare [02:19]
+02. Chaotic Dream [02:06]
+03. Champion [02:48]
+04. Ready to Launch [04:00](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209B01B71DB8E78245AF4D0DA86FB294FCDE551D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534897   (518695) от 14.08.2012
 
 Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
@@ -641,119 +757,6 @@ Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89EE41514E200CFA5F6EF57EBB17061A60937A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315177   (513806) от 19.07.2019
-
-Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Word
-02. Faith
-03. Soul
-04. Conscience(   Читать дальше...   )Жанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E7FDE585A7E15F0E151DF47B613BB1982367CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536439   (513188) от 19.08.2012
-
-Мельница - Ангелофрения (2012) [FLAC|Lossless]<Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315364   (512792) от 20.07.2019
-
-Cliff Martinez - Too Old To Die Young (2019) Original Series Soundtrack  2CD [FLAC|Lossless|tracks + .cue] <Psychedelic, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Hunting (03:35)
-02. I Got Time (02:36)
-03. Viggo and Diana (03:15)
-04. Some Complications (02:20)(   Читать дальше...   )Жанр: Psychedelic, ScoreПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E99CBC2B2FA69BF8849508937207CDDC00942A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562044   (512509) от 07.07.2022
-
-Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bakeina's Dream (00:04:45)
-02 - Golden Cage (00:04:22)
-03 - Quicksand Blues (00:05:29)
-04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
 ```
 
 https://mybot314.ru/tekegram_catalog/

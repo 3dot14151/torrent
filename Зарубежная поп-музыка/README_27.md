@@ -1,3 +1,32 @@
+###  Публикация: 1218676   (721736) от 10.04.2018
+
+Brad Paisley (Брэд Пейсли) - Who Needs Pictures (1999) Arista Nashville [MP3|320 Kbps] <Country, Country Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брэд Пейсли (полное имя - Брэд Дуглас Пейсли) - американский кантри-исполнитель и автор песен, один из самых популярных в 2006-2010 годах в своём стиле в «Billboard Top 200». Обладатель трёх премий «Грэмми», четырнадцати «Academy of Country Music Awards», четырнадцати «Country Music Association Awards» и двух «American Music Awards». В 2011 году Пейсли выпустил автобиографическую (   Читать дальше...   )01. Long Sermon 3:19
+02. Me Neither 3:20
+03. Who Needs Pictures 3:46
+04. Don't Breath 2:54(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D361916F5F173CFF3E17ECD7E8852F6C32F0843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218514   (721399) от 10.04.2018
 
 Fancy - 30 Years - The New Best Of (2018) [MP3|320 Kbps] <Pop, Disco>
@@ -714,35 +743,6 @@ VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5E2321BED14E1B973F926A37EB3D39DF2D57A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286666   (711023) от 03.03.2019
-
-VA - 100 Hits American Anthems (2019) 5CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711023.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Survivor - Eye of the Tiger
-02. The Bangles - Hazy Shade of Winter
-03. Belinda Carlisle - (We Want) The Same Thing(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC91B377F0BE34E8D39193B3540DB8E4D6854535
 ```
 
 https://mybot314.ru/tekegram_catalog/

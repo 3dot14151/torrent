@@ -1,3 +1,61 @@
+###  Публикация: 835956   (364504) от 31.10.2014
+
+Apathy - Connecticut Casual (2014) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connecticut Casual
+02. Back In New England (feat. Chris Webby)
+03. Don't Give Up The Ship (feat. Kappa Gamma)
+04. Locals Only! (feat. ANoyd)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109C699D3E6DED512B7813CDC00E7F4FF49C773C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255679   (361226) от 19.10.2018
+
+Travis Scott - Astroworld (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazing (04:30)
+02. Carousel (feat. Frank Ocean) (03:00)
+03. Sicko Mode (feat. Drake) (05:12)
+04. R.I.P Screw (feat. Swae Lee) (03:05)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E73EA8FC5CDA9DFDFAD333BBCA65C1C578DFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417572   (358064) от 20.10.2020
 
 Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Underground Hip-Hop>
@@ -687,64 +745,6 @@ Emil Amos - Zone Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18CD9185DA2B08C0C900893038EF6A92F122DD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342928   (221526) от 04.12.2019
-
-Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haters 101 (Intro)
-02. Give Em Some Mo
-03. Fall-N ft. G.I.B.
-04. Balla Baby(   Читать дальше...   )Жанр: Crunk/Midwest Hip-HopПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514012   (221110) от 01.12.2021
-
-VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moods – Snaring River (2:54)
-02. Otxhello – Happy In My Mind (2:03)
-03. Taro – The Little Place (2:08)
-04. Ian Ewing, Toonorth, Philanthrope – Mortal Wombat (2:50)(   Читать дальше...   )Производство: Chillhop MusicЖанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
 ```
 
 https://mybot314.ru/tekegram_catalog/

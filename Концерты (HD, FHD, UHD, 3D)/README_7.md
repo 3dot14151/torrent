@@ -1,3 +1,116 @@
+###  Публикация: 181699   (906490) от 09.03.2010
+
+Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wembley Stadium, London, England, July 7th, 2007
+Выступление группы Metallica на концерте Live Earth в Лондоне, летом 2007 года на Уэмбли.
+Треклист:
+01. Sad But True(   Читать дальше...   )Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 00:18:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098809   (906167) от 31.01.2017
+
+Машина Времени - Концерт в Киеве, 2012 (2014) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906167.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица (   Читать дальше...   )Производство: CD LAND, Sintez RecordsЖанр: RockРежиссер: Герман СадченковПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FB12B905009395D8DC5D4EB79476F43F267F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100125   (901318) от 03.02.2017
+
+Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот диск сделан по ассоциации с двойным альбомом Scorpions 1978 года "Tokyo Tapes", где Ульрих ещё выступал в качестве соло-гитариста Скорпов. Этот концерт проходил в том же, что и тогда, концертном зале - "Nakano Sun Plaza Hall". Ульрих даже попытался идентифицировать среди зрителей тех, кто 37 лет назад присутствовал на первом концерте.1. All Night Long (Uli Jon Roth)
+2. Longing For Fire (Rudolf Schenker)
+3. Crying Days (Rudolf Schenker)
+4. Sails Of Charon (Uli Jon Roth)(   Читать дальше...   )Производство: UDR MerchstoreЖанр: Hard RockПеревод: ОтсутствуетПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33D76A8276EAB5815C44BBD14ED1B6D2E092FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759952   (900155) от 26.02.2014
+
+Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сам концерт записан 23 августа 1983 года, Greek Theater, Los Angeles.01. Intro (Live) 1:32
+02. Pick Myself Up (Live) 4:01
+03. African (Live) 4:09
+04. Coming In Hot (Live) 4:13(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE09F282090543BDE0710B8A7034B90CF914798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760676   (899531) от 26.02.2014
 
 Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert - Daniel Barenboim & Wiener Philharmoniker (2014) Blu-Ray [1080i]
@@ -606,119 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11E1EE550D6A7D6E5A19398227A74DB05E21DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188629   (868053) от 02.04.2010
-
-Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868053.jpg" />
-</div>
-
-
-###  Подробнее
-
-На концерте, состоявшимся 25 мая 2006 года в Blossom Music Center города Cleveland звучат бессмертные хиты знаменитой группы, включая "Boat On The River", кавер-версия The Beatles "I Am the Walrus" и две совершенно новые композиции. А помогает группе, в которой три ветерана "золотого состава" – гитара, вокал Tommy Shaw и James Young (   Читать дальше...   )Жанр: RockРежиссер: Styx & Charlie BruscoАктеры: Tommy Shaw - vocals, guitar, mandolin
-James Young - vocals, guitar
-Lawrence Gowan - vocals, keyboards
-Ricky Phillips - acoustic guitar, electric guitar, bass guitar, background vocals(   Читать дальше...   )Продолжительность: 01:52:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496092   (867871) от 20.09.2021
-
-Александр Розенбаум. 70. Обратный отсчет (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт народного артиста России, поэта, певца и музыканта Александра Розенбаума. На сцене БКЗ «Октябрьский» артист отметит свой юбилей — 70 лет! Его голос завораживает мелодичностью и в то же время пронизывает жизненной энергией, а его песни пробуждают в душах слушателей и зрителей доброту и надежду. У зрителей НТВ появится уникальная возможность не только насладиться (   Читать дальше...   )Производство: РоссияЖанр: ШансонПродолжительность: 02:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E29452A93990FBB9B24F6E2CADE95B9F398786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998434   (867599) от 20.03.2016
-
-Тейлор Свифт / Taylor Swift - The 1989 World Tour Live (2015) WEBRip [XviD/720p-LQ]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт The 1989 World Tour Live снят в Сиднее, на стадионе ANZ, где собралось 76 000 фанатов.В «The 1989 World Tour Live» вошло полностью выступление певицы на стадионе ANZ в Сиднее. Кроме того, в фильме показаны не публиковавшиеся раньше кадры из-за кулис и с репетиций концертов, а также интервью со знаменитостями, участвовавшими в туре в качестве приглашенных (   Читать дальше...   )1. Welcome To New York
-2. New Romantics
-3. Blank Space
-4. I Knew You Were Trouble(   Читать дальше...   )Производство: Apple MusicЖанр: МузыкаРежиссер: Jonas kerlundАктеры: Taylor SwiftПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC894B798B6FE9BC831D33E83652B7106FAFCD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690637   (863376) от 18.03.2014
-
-Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane 2000
-02. Moment Of Glory
-03. You And I
-04. We Don't Own The World(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50347F462341FC99C618ECF6E440E4D3B24C3F48
 ```
 
 https://mybot314.ru/tekegram_catalog/

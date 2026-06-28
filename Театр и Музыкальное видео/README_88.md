@@ -1,3 +1,227 @@
+###  Публикация: 943852   (444752) от 05.10.2015
+
+VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
+2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
+3. Alex Adair - Heaven (Official Video) (00:03:07)
+4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706263   (444038) от 02.10.2013
+
+Сборник клипов - VA - Various Music part. 46 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 50 Cent - Outta Control 1080p (3:23)
+2. Aircraft & Miss Palmer - Dont Ever Let Go 1080p (3:23)
+3. Alchemist Project Feat.Angie - Don't let me down 1080p (3:10)
+4. Alex C feat. Lisa Rowe - Feed Me Diamonds 1080p (3:38)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E87DB59ECAB6DFB15A6A4359C593CAEC047E173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588987   (443834) от 31.08.2019
+
+Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фестиваль Coachella (Коачелла), музыкальный фестиваль, проводимый компанией Goldenvoice в городе Индио, штат Калифорния с 1999, а потом с 2001 года. В этом году состоялось невероятное, без преувеличения, выступление легенд/ветеранов West Coast - Dr.Dre & Snoop Dogg, они вели этот концерт и исполнили свои главные хиты времён 90-х, также выступили звёзды, с которыми (   Читать дальше...   )Жанр: МузыкаРежиссер: CoachellaПеревод: Отсутствует/Не требуетсяПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5E2151C929EBED444A7078E2D028BEF318F2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447926   (443699) от 19.09.2018
+
+Новогодний концерт Венского Филармонического оркестра / Vienna New Year's Concert (2012) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
+Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Johann and Joseph Strauss: "Vaterländischer Marsch (Fatherland March)"
+Johann Strauss: "Rathausball-Tänze (City Hall Ball Dances)", Waltz, op. 438
+Johann Strauss: "Entweder – oder! (Either - Or!)", Fast Polka, op. 403
+Johann Strauss: "Tritsch-Tratsch (Chit-Chat)", Polka, op. 214(   Читать дальше...   )Производство: SONY MasterworksЖанр: Классика, концерт Большого Симфонического оркестраПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CF3E26D0D5C652F00E324A1B0768E3C8493049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061467   (443628) от 12.10.2016
+
+Баджирао и Мастани / Bajirao Mastani (2015) BDRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами роскошные клипы из фильма, повествующего об удивительной истории любви Баджирао и его второй жены, принцессы Мастани... Наслаждайтесь восточным зрелищем!1. Aayat
+2. Deewani Mastani
+3. Malhari
+4. Mohe Rang Do Laal(   Читать дальше...   )Производство: Индия (EROS)Жанр: Музыка, клипыРежиссер: Санджай Лила Бхансали (Sanjay Leela Bhansali)Актеры: Приянка Чопра, Дипика Падукон, Ирфан Кхан, Ранвир Сингх и др.Язык субтитров: РусскийПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B08664B9F82E322A94ADB29EB1C60D5EF81684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553243   (443354) от 28.09.2012
+
+Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видео группы Uriah Heep01.Жанр: Музыка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0729DFA1E1C2AC8A94EBD6A6AAC4326ECA335F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409174   (442682) от 18.09.2020
+
+Ария - Классическая Ария (2015) HDRip [H.265/1080p] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442682.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Классическая Ария» – это запись аншлагового концерта группы при участии симфонического оркестра «Глобалис» под управлением шведского дирижера Ульфа Ваденбрандта, записанный на видео 29 ноября 2015 года в Москве в концертном зале «Stadium Live».01. Интро
+02. Игра с огнём
+03. Ангельская пыль
+04. Чёрная легенда(   Читать дальше...   )Производство: М2БАЖанр: Heavy metalПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BA69804866B77E4FFFDB29F6E9E7A7EC563011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322967   (442213) от 01.09.2019
+
+Квартирник НТВ у Маргулиса. Леонид Агутин (31.08.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442213.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришел заслуженный артист России, певец и композитор Леонид Агутин. Первый его сольный альбом «Босоногий мальчик», вышедший в 1994 году, мгновенно поднял артиста на вершину музыкального Олимпа. Второй альбом «Декамерон» укрепил интерес к его творчеству. Мастер сцены по сей день остается в списке самых востребованных звезд отечественного (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A06285C59352F734AA8AE061AC8C0D2C991FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942916   (439923) от 07.10.2015
 
 Антон Чехов - Дядя Ваня (2010) SATRip (Театр им. Е. Вахтангова)
@@ -483,260 +707,6 @@ David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8805E4EA77CB21E4F7A9721FE7EBC5AA1385B219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062954   (436372) от 15.10.2016
-
-Земфира. Маленький человек (2016) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный концерт Земфиры в «Олимпийском» состоялся 1 апреля 2016 года и стал завершающим аккордом концертного тура исполнительницы под названием «Маленький человек».Телекомпания: Первый каналЖанр: Концерт, рок, поп-рокСубтитры: ОтсутствуютПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5475326389FAA0657EFB6871F63C5857B3E353DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554288   (436371) от 01.10.2012
-
-Status Quo -The Greatest Hits (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех почитателей творчества легендарной группы01. Caroline
-02. Down Down
-03. Paper Plane
-04. Big Fat Mama
-05. Roll Over Lay Down
-06. Don't Waste My Time
-07. Little Lady
-08. Mystery Song
-09. Rain
-10. Break The Rules(   Читать дальше...   )Жанр: Музыка Rock, Rock n RollПродолжительность: 02:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB4F181421773BF3A88D0E6615711BE8D8F151A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554388   (436234) от 01.10.2012
-
-Сборник клипов - VA - Various Music part. 34 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9BBA44F6335D5AB86A5B7EEDE5A427073CAEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554645   (436037) от 01.10.2012
-
-Santana - Hymns for Peace, Live at Montreux (2004) [1080p] Blu-ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный в 1967 году джазовый фестиваль в Монтрё зарекомендовал себя одним из наиболее престижных ежегодных музыкальных событий в мире. Выдающийся список артистов выступавших тут охватывает все музыкальные стили и включает представителей со всего света. Карлос Сантана частый гость этого фестиваля. 15 июля 2004 года он вместе с другими выдающимися музыкантами участвовал в историческом концерте "Гимны во имя мира"1. Afro Blue
-2. Adouma
-3. Redemption Song
-4. Exodus / Get Up Stand Up
-5. Blowin' In The Wind / A Place In The Sun
-6. Just Like A Woman
-7. What's Going On
-8. Peace On Earth / Boogie Woman
-9. Why Can't We Live Together
-10. Light At The Edge Of The World(   Читать дальше...   )Жанр: ROCK LIVE CONCERT AT MontreuxРежиссёр: Thierry AmsallemПеревод: отсутствуетПродолжительность: 02:40:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554261   (435838) от 01.10.2012
-
-Smokie  Greatest Hits 1975-1979 (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие клипы группы01. Living Next Door To Alice
-02. Needlies And Pins
-03. Don't Play Your Rock'n'Roll To Me
-04. If You Think You Know How To Love Me
-05. Do To Me
-06. Mexican Girl
-07. Run To Me
-08. Oh Carol
-09. I'll Meet You at Midnight
-10. Living Next Door to Alice (from "Musikladen")(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E0EF2A2700E3BB7ABC7AACEF992BBFCDDD6209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249269   (435711) от 23.09.2018
-
-Квартирник на НТВ у Маргулиса. Лигалайз (09.22.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435711.jpg" />
-</div>
-
-
-###  Подробнее
-
-На «Квартирнике НТВ у Маргулиса» выступил знаменитый рэпер Лигалайз. Специально для зрителей НТВ музыкант исполнил свои лучшие композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8332B35830B2D04A778F7CE8A8106D3B336C9EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554702   (435702) от 01.10.2012
-
-Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nazareth — шотландская рок-группа, созданная в 1968 году музыкантами группы The Shadettes в городе Данфермлин. В оригинальный состав вошли: вокалист Дэн Маккаферти, гитарист Мэнни Чарлтон, басист Пит Эгнью и барабанщик Дэррил Свит.
-Собраны лучшие клипы группы.01. Morning Dew. (72).
-02. Love Hurts. (1974).
-03. This Flight Tonight.(74).
-04. Jetlag (75).
-05. Bad Bad Boy (75).
-06. Kentucky Freid Blues.(77) .
-07. Place In Your Heart. (1977).
-08. Born To Love.(77).
-09. Night Woman.(77).
-10. Shot Me Down (1977).(   Читать дальше...   )Продолжительность: 02:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA7EDEFBA231076D96E4DC00E7E7AACA590E10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554887   (433672) от 02.10.2012
-
-W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы группы01. Animal F*** Like A Beast
-02. L.O.V.E. Machine
-03. I Wanna Be Somebody
-04. On Your Knees
-05. Blind In Texas
-06. Wild Child
-07. I Don't Need No Doctor
-08. The Real Me
-09. Forever Free
-10. The Idol(   Читать дальше...   )Жанр: Музыка, Metal, Hard rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE98089D64E9166137944DBBFA2C34CCDA5F91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

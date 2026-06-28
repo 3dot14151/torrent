@@ -1,3 +1,148 @@
+###  Публикация: 984488   (939010) от 09.02.2016
+
+VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939010.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cor Fijneman feat. Jan Johnston - Venus (Meant to Be Your Lover) (Tiesto remix)
+002. Marc Simz feat. Emma Lock - Untimate Love (Original Mix)
+003. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix)
+004. Christian Peter Stier - Last Summer (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Progressive, Vocal TranceПродолжительность: 10:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A87599AA065326CE95A91C3B4942B9B87F6CC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092530   (938947) от 12.01.2017
+
+VA - Best Electronic Republic Trance (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Richard Durand - Breakdown (Original Mix)  7:40
+02.  Miroslav Vrlik - Soul Of Darkness  6:00
+03.  Denis Kenzo & Alexandra Badoi - More Time (Original Mix)  5:49
+04.  Gordey Tsukanov - Flight To Infinity (Original Mix)  6:47(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 02:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274F3E2F23DF81C766446D86280D4F501F8A61ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092505   (938943) от 12.01.2017
+
+VA - TrackStarter: Higher Funky Place (2017) [MP3|320 Kbps] <House, Tech House, Progressive, Tribal, Afrobeat>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pablo Dichiara - Move Body  4:27
+02.  Armin van Buuren & Garibay Feat. Olaf Blackwood - I Need You (Radio Edit)  3:27
+03.  Nacho Chapado - There's No Love (Ennzo Dias Circuit Mix)  6:53
+04.  DJ Farre & Celeste - What s Love (Extended Mix)  4:07(   Читать дальше...   )Жанр: House, Tech House, Progressive, Tribal, AfrobeatПродолжительность: 08:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BEFAE195329EB736052C95D0AABC119B0A8AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092410   (938941) от 12.01.2017
+
+VA - State Singles Home (Trance Pack  8 January) (2017) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen Watts & Jak Aggas - Spitfire (Original Mix)  6:37
+02.  Daydreamer - Levitation (Original Mix)  6:58
+03.  Masaru Hinaiji - Dear Yui (Original Mix)  10:53
+04.  Armin Van Buuren & DBX - Indestructible (Protoculture Remix)  4:04(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 05:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F51526CACD8B1B6578B0A24FBFAB7E4BD27CD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364226   (937958) от 02.03.2020
+
+VA - EDM International Techno Dance (2020) [MP3|320 Kbps] <Techno, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rafael Dutra - Let's Make Love
+002. Taptune - Apollo (Original Mix)
+003. Crowd & Norah B. - In The Middle
+004. Joyhauser - Rtrig(   Читать дальше...   )Жанр: Techno, Dance, ElectroПродолжительность: 10:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F3A03D71EEF1F3D0955913ABFCEFDBDE8CFB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364184   (937956) от 02.03.2020
 
 VA - Black Night Empire: New Trance Music (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
@@ -603,151 +748,6 @@ VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF3562A11B9E04A2F66D9FD936B8C5D8D08FED9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094084   (930951) от 17.01.2017
-
-VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930951.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aurosonic, Sue Mclaren - Captured By Gravity (Original Mix) 8:08
-002. Fabio Xb & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
-003. Juventa - A Thousand Words (Original Mix) 7:41
-004. 4 Strings - Wondering (Original Mix) 6:02(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094080   (930858) от 17.01.2017
-
-VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubstep, Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930858.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wonderland Avenue - White Horse (Alexander Holsten Trap Remix) 3:10
-002. Wilkinson, P Money & Arlissa - Heartbeat (Calyx & Teebee Remix) 3:53
-003. Vato Gonzalez, Lady Bee - The World Is Mine (Original Mix) 4:18
-004. Under This - Dancing Right (Original Mix) 6:58(   Читать дальше...   )Жанр: Dubstep, Drum And BassПродолжительность: 10:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A394B017B8D8E6C07400FD6549A0E5289E1D6C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094101   (930595) от 17.01.2017
-
-VA - Best Chillout Vol.24 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adventure Club ft Yuna - Gold (CAYA Remix) 4:05
-002. Alan Walker - Faded (Yuriy Pilin Remix) (Instrumental) 5:11
-003. Alexander Volosnikov - Lost Chapter (Original mix) 2:58
-004. Antent - Drifting Away (Original Mix) 4:01(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9464E541491D3D9D5E88481DC95E24B8B613FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094072   (930248) от 17.01.2017
-
-VA - Record Russian Mix Top 100 January (2017) [MP3|320 Kbps] <Club House, Pop-Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930248.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 9 мир - Да Будет Так (Dj Tol-Life Remix) 4:35
-002. A-Sen feat. Samoel - Сладкие Ночи (Denis Agamirov & Stylezz Radio Remix) 3:24
-003. Aisha - Таю я (DJ Andy Light & DJ O Neill Sax Remix) 4:26
-004. Alekseev - Пьяное Солнце (Roma Pafos Radio Edit) 3:47(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro HouseПродолжительность: 07:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031ABCC56072F1E2AB00734B8339D2741DEDFA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094096   (930128) от 17.01.2017
-
-VA - Deep House Collection Vol.104 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Acid Eyes,A. Rassevich - I'm Moving (A. Rassevich Remix) 5:37
-002. Aiiso - Your Love Is an Echo (Original Mix) 5:32
-003. Alex Cruz feat. Gabbi Lieve - Sweet Child (Original Mix) 4:46
-004. Alok & Fractall Ft. Bea Jourdan - Don't Ya (Natema & Kary Remix) 7:08(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80F3BF89FD89AA6219E4EA1C929A65A80E27016
 ```
 
 https://mybot314.ru/tekegram_catalog/

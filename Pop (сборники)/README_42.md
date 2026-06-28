@@ -1,3 +1,119 @@
+###  Публикация: 1284210   (729828) от 20.02.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 6) (2019) [MP3|320 Kbps] <Pop, Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. СКАЙ - Допоможи Мені (3:14)
+02. Kozak System - Баста (3:47)
+03. Океан Ельзи - Скільки Нас (4:21)
+04. Morphine Suffering - Сам (3:23)(   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 02:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146162F02E70C85CA5DA2372C4464DA15368BC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284223   (729821) от 20.02.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 7) (2019) [MP3|320 Kbps] <Pop, Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan NAVI - Казково (2:45)
+02. Sonya Kay - Рай (3:14)
+03. Max Barskih - Небо (4:32)
+04. NK (Nastia Kamenskykh) - Тримай (3:05)(   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947D740CD79DA41CA3B07BB9E12E9BF5BA2F109C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530163   (729687) от 10.02.2022
+
+VA - EuroDance Hits (2022) [MP3|320 Kbps] <Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valmont & Sanderson - T'as Le Look Coco (3:22)
+02. Love Collective feat. Robin Cook - Love & Respect (3:15)
+03. 2 Eivissa - I Wanna Be Your Toy (Extended Radio Mix) (3:51)
+04. 2 Unlimited - Wanna Get Up (3:16)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 05:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A30595AE01F3C37F4C0482E0E5827F4106C026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021990   (729382) от 01.06.2016
+
+VA - Top 100 Зайцев Нет Май 2016 (2016) [MP3|192-320 кб/с] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729382.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Потап и Настя – Умамы
+2. Светлана Лобода – К Чёрту Любовь!
+3. Alekseev – Пьяное Солнце
+4. Sia – Unstoppable(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 05:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF377EE91A16E01DA38DD5516A0AB61DFF3A3614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128301   (728436) от 24.04.2017
 
 VA - Popular European Megamix (2017) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Душевный сборник Русского радио выпуск �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D4881F2DD370A691A104A405C1FF893DD80C0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128981   (724366) от 27.04.2017
-
-VA - 100-ка популярных весенних хитов на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724366.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Лекс - Кроме Нас 3:29
-002. Vikki - Помолчим 3:16
-003. Гена Селезнев - Ливни 3:13
-004. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B6BCA8A50C7C511147E0314C8B104029CDC190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023398   (724238) от 05.06.2016
-
-VA - Хитовый Свежачок. Русский Выпуск (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hann - Я Тебя Приму Любой
-002. Sasha Holiday - Цвет Желаний
-003. Din-Go - Я Скучал По Тебе
-004. Katrin Mokko - В Моем Кино(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8421247B8883CE78514A123E5FF456AECE17B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128876   (724236) от 27.04.2017
-
-VA - Дискотека Hit FM. Любимая музыка (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Polisha - Я Не Сказала Нет 3:23
-002. Анна Шульгина - Мама 3:27
-003. Miela - Отпускаю Тебя 3:27
-004. Лада Мишина - Мой Город 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628E6E36E2D674EE2A9F9CB10357798923287017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023277   (723515) от 05.06.2016
-
-VA - Хиты от 90-х до сегодня (2016) [MP3|320 кб/с] <Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера Брежнева - Мамочка (02:58)
-02. C.C.Catch - Heaven And Hell'2014 (06:40)
-03. Пропаганда - Подруга (03:36)
-04. Dub Step Two Steps From Hell - Strength Of A Thousand Men (Instrumental Core Remix) 2012 (04:20)(   Читать дальше...   )Жанр: Pop, Retro, Pop-RockПродолжительность: 05:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301228F50EAE7DABC09CF60E1D09987CFE4F19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

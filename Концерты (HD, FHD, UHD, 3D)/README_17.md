@@ -1,3 +1,114 @@
+###  Публикация: 506234   (689389) от 05.06.2012
+
+Вудсток, 3 дня мира и музыки / Woodstock, 3 Days of Piece & Music (1970) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о музыкальном фестивале в Вудстоке. Режиссер фильма Майкл Уэдли, в этой работе, не просто запечатлел ряд выступлений популярных исполнителей своего времени, но и создал уникальный портрет поколения шестидесятых годов в Америке. Организаторы фестиваля в Вудстоке анонсировали его как "Три Дня Мира и Музыки" и изначально надеялись собрать аудиторию в 150,000 человек. Фестиваль начался в пятницу, 15 августа 1969 года, но количество его участников быстро перевалило за 450,000, тем самым вызвав огромные пробки на порогах, нехватку пищи и медикаментов, а также вскрыло организационные проблемы. В субботу стали пускать всех, чтобы было где разместить людей, которые всё прибывали просто так, без билетов.
+Одни исполнители сменяли других, музыка играла практически без остановок, даже несмотря на дожди которые периодически принимались поливать гостей и участников фестиваля. Среди зрителей использование психореактивов было самым обычным делом, а санитарные условия были примитивны, да и качество (   Читать дальше...   )Жанр: Рок, документальныйРежиссер: Майкл УодлиАктеры: Richie Havens, Joan Baez, The Who, Sha Na Na, Joe Cocker, Country Joe and The Fish, Arlo Guthrie, Crosby, Stills and Nash, Ten Years After, Santana, Sly and the Family Stone, Jimi Hendrix, Canned Heat, John Sebastian, Jefferson Airplane, Janis JoplinПеревод: нетПродолжительность: 03:44:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028026   (688575) от 23.06.2016
+
+VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления звезд Rock and Metal музыки на ежегодном рок фестивале Hellfest проходящем в этом уикенд june 17-19, 2016 в французском городе Клисон01. Twisted Sister - Destroyer
+02. Twisted Sister - You Can't Stop Rock 'n' Roll
+03. Rammstein - Ramm 4
+04. Rammstein - Reise, Reise(   Читать дальше...   )Производство: ARTEЖанр: Rock, MetalПродолжительность: 01:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9627B31D1B45A709CB7709DC86BCB9FBFF5307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897268   (687415) от 12.05.2015
+
+Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
+02. Overload
+03. Traveller In Time
+04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506462   (687404) от 06.06.2012
+
+30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живой концерт группы 30 seconds to Mars 5 июня 2010 года в Германии в рамках фестиваля Rock am Ring.Жанр: Alternative RockПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028869   (686091) от 24.06.2016
 
 Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
@@ -598,125 +709,6 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB7E0DA10611BB13D62D1CD2ED952E4503AA5A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514117   (658693) от 23.06.2012
-
-Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just The Beginning
-02. We’re On Our Way
-03. Blood On The Highway
-04. You’ve Got It
-05. It Won’t Last
-06. Think Twice
-07. There Comes A Time
-08. Okay (This House Is Down)
-09. What You Gonna Do
-10. Postscript(   Читать дальше...   )Жанр: Hard RockАктеры: Ken Hensley, Jorn Lande, Eve Gallagher, John LawtonПеревод: ОтсутствуетПродолжительность: 02:25:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140249   (656684) от 05.06.2017
-
-UK - Curtain Call (2015) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая группа 70-х. Запись сделана на последнем японском туре 8 ноября 2013 года.1. In The Dead Of Night
-     -In The Dead Of Night (Jobson, Wetton)
-      -By The Light Of Day (Jobson, Wetton)
-      -Presto Vivace and Reprise (Jobson, Wetton)(   Читать дальше...   )Производство: Ward RecordsЖанр: Progressive RockПеревод: ОтсутствуетСубтитры: ЯпонскиеПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672DBDF0F78C3836B4388A4778604EB1441F3505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226365   (655763) от 20.05.2018
-
-Квартирник на НТВ у Маргулиса. Валерия (05.19.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655763.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла знаменитая эстрадная певица, народная артистка Валерия, которая недавно отметила юбилей. Она рассказала, что в детстве пела буквально везде, устраивала выступления для родных и принимала участие в утренниках в детском саду. Валерия призналась, что отказалась от участия в группе «Комбинация», поделилась историей поступления в Гнесинку (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD18EBE0BA4F3A8C57D003F0DC14C6A7EF750D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140432   (655737) от 06.06.2017
-
-UK - Curtain Call (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая группа 70-х. Запись сделана на последнем японском туре 8 ноября 2013 года.1. In The Dead Of Night
-     -In The Dead Of Night (Jobson, Wetton)
-      -By The Light Of Day (Jobson, Wetton)
-      -Presto Vivace and Reprise (Jobson, Wetton)(   Читать дальше...   )Производство: Ward RecordsЖанр: Progressive RockПеревод: ОтсутствуетПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F649239CB9356F86A36E5F13B4A534975D94B22B
 ```
 
 https://mybot314.ru/tekegram_catalog/

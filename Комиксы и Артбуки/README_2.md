@@ -1,3 +1,32 @@
+###  Публикация: 1385657   (792430) от 31.05.2020
+
+Terry Scott Taylor, Doug TenNapel | Возвращение в Neverhood / Return to the Neverhood (2012) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комикс по вселенной игры Neverhood выполненый в жанре музыкальной новеллы.
+При просмотре комикса вы должны параллельно слушать музыку и перелистывать страницы при смене трека.
+
+Саундтрек: Return To The Neverhood (Comic Book Soundtrack) (2012)Жанр: Музыкальная новеллаФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591BCC3DA3A1A67D9CAB1D0AC374BF507DC74840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388312   (786835) от 05.06.2020
 
 Lucasfilm | Артбук по фильму Звёздные войны: Империя наносит ответный удар / Star Wars: The Art of The Empire Strikes Back (1980) [CBR] [EN]
@@ -653,32 +682,6 @@ DICE | Артбук по игре Battlefield 1 / The Art of Battlefield 1 (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F89DA3EE3F04FD9D58ABB38D6ABFA0FA0773F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546340   (607551) от 23.04.2022
-
-Respawn Entertainment | Артбук по игре Titanfall / The Art of Titanfall (2014) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре Titanfall.Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E15072A8179B8ADDCA140E1B73FCABC065BD740
 ```
 
 https://mybot314.ru/tekegram_catalog/

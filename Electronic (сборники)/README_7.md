@@ -1,3 +1,61 @@
+###  Публикация: 1456131   (1025319) от 21.03.2021
+
+VA - Big Room Dance (2021) [MP3|320 Kbps] <House, Dance, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bassjackers, Wolfpack, Richie Loop - Old Money (2:26)
+02. Maddix, SaberZ - Follow Me (3:06)
+03. Showtek, sonofsteve - Show Some Love (Showtek Festival Edit) (3:42)
+04. David Guetta, MORTEN - Kill Me Slow (3:28)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 02:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53951014B7D6AFD0CAA68817D8A09FC26CA2D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456344   (1025137) от 22.03.2021
+
+VA - Beatport Disco Jackin' House: Sound Pack #258 (2021) [MP3|320 Kbps] <Funky, Disco Groove,  Jackin' House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна вступает в свои права, но одного весеннего солнца для хорошего настроения точно недостаточно. Необходимо добавить ко всему еще и соответствующую музыку, именно её и несет с собой эта отличная 258-я подборка танцевальной музыки от Beatport, которая включила в себя целую сотню ремикс-треков диско стиля!001. Monique Rossi - How Wonderful You Are
+002. Mali - One Two Three Four
+003. Pva - Talks
+004. Domscott - The Cracks About(   Читать дальше...   )Жанр: Funky, Disco Groove,  Jackin' HouseПродолжительность: 09:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6151AB15E4A200531429DF7DE62E369BBF6641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456318   (1025126) от 22.03.2021
 
 VA - Let's Dance (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -687,64 +745,6 @@ Ambient - это не просто музыка, это образ жизни, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:593E70C6E8EB225586C6EB36B3B4B5DCA9DD044C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460156   (1022795) от 04.04.2021
-
-VA - Record Super Chart 03.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-02. Tiesto - The Business (2:44)
-03. Eneli, Monoir - 3 to 1 (3:39)
-04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ (2:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E96E397893173C89CDB1B37383B2C3F061E312C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460133   (1022771) от 04.04.2021
-
-VA - Top 100 DJs (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo, Adam Levine - Lifestyle (David Guetta Slap House Mix)
-002. Dimitri Vegas & Like Mike, DVBBS, Roy Woods - Too Much
-003. Martin Garrix, Tove Lo - Pressure (feat. Tove Lo)
-004. Armin van Buuren - Turn The World Into A Dancefloor (ASOT 1000 Anthem)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 05:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA6D05EEA7894DE8596AABA44F6B858721522B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

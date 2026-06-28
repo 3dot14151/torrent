@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1877950   (1074649) от 
+
+Kitaro - India (1983) Unofficial [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Mist - 6:08
+02 - Caravansary - 4:51
+03 - Mountain Streams - 4:45
+04 - Pray - 6:36(   Читать дальше...   )Жанр: New AgeПродолжительность: 43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC31D2081A13B012DFA58753B547CDB27BBF537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877211   (1074308) от 23.06.2026
+
+Kitaro - The Light Of The Spirit (1987) Unofficial [FLAC|Lossless|image + .cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mysterious Encounter - 6:03
+02 - Sundance - 6:19
+03 - The Field - 4:54
+04 - The Light of the Spirit - 7:32(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C476B9F556B158C70DCCAAF0327B1BF8E4B8749A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875979   (1073190) от 
 
 Enigma - 1991-Best-1996 (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <New Age>
@@ -688,64 +746,6 @@ Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446749   (1032507) от 10.02.2021
-
-Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Монастыренко - профессиональная пианистка и талантливый композитор из России. Автор и продюсер инструментальной музыки.01. Meetings and Partings (4:22)
-02. Gothic Venus (5:12)
-03. Christmas Lullaby (3:46)
-04. Dive in September (4:01)(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447543   (1031654) от 14.02.2021
-
-VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Brunetti - Clear Nights (01:56)
-02. Adriano Pupillo - Arpeggio in B Major (02:12)
-03. Alessandro Martire - L'ultimo desiderio (03:05)
-04. Adriano Pupillo - Sostenuto in C Major (01:55)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

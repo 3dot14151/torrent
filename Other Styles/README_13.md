@@ -1,3 +1,119 @@
+###  Публикация: 1356270   (980506) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55577E204176F458A41F231A55DDD0243735E190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356231   (980497) от 29.01.2020
+
+Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys for Life (02:47)
+02. It's Good Shit Lieutenant (03:19)
+03. Take Back What's Ours (02:09)
+04. We're Dangerous People (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356271   (980489) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356229   (980356) от 29.01.2020
+
+Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meek Mill & Farruko - Uptown II (02:54)
+02. City Girls - Money Fight (02:38)
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
+04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973429   (980258) от 08.01.2016
 
 Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
@@ -644,122 +760,6 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974420   (976718) от 11.01.2016
-
-Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mass (3:41)
-02. Looking for Something (4:09)
-03. Don't Go Away (4:24)
-04. Don'Era - If You Shout (3:49)(   Читать дальше...   )Жанр: New Age, Modern Classical, DowntempoПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA7DB4B211A8132AB2F552F1E24191575CA9B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974808   (975681) от 12.01.2016
-
-Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11.000 Miles
-02. Living In Awe
-03. Changing Skies
-04. Full Of Love(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5BAD5BFA2A38F4AA57AFB46B967D8EC9984152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357094   (975610) от 02.02.2020
-
-Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score - FYC) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shelby Races Le Mans (01:37)
-02. Shelby Drives Mulholland (01:29)
-03. Ford Arrives (00:41)
-04. Lee's Got An Idea (00:26)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357095   (975548) от 02.02.2020
-
-Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Mans 66 (05:42)
-02. Wide View (01:36)
-03. Driving in the Rain (01:52)
-04. Henry Ford the Second (00:45)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D7CF592B81294BFA83C50745ED8E325C4F2EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

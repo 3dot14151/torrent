@@ -1,3 +1,148 @@
+###  Публикация: 1216977   (744749) от 03.04.2018
+
+VA - 100% Clubland X-Treme (4CD) (2018) [MP3|320 Kbps] <Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - Jumping All Over The World
+02. Sak Noel - Loca People
+03. Artemesia - Bits & Pieces (Tidy Boys Remix)
+04. Special D - Come With Me (Single Edit)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 04:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8092D92162A857A8131D433D327E3D99DC345FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524347   (744652) от 15.01.2022
+
+SuperVox - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Panorama
+03. Black Hole
+04. Blue Rose(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49A487AE4667A5A344B0067B1DA6781E359E9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524354   (744650) от 15.01.2022
+
+Galactic Warriors - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outro
+02. Mission Phoenix
+03. Space Ranger
+04. No Return(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 01:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1087799CF53D940784A44121CE5190276B32978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524375   (744649) от 15.01.2022
+
+Various Artists - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abbsynth - Starlines
+02. Macrocosm - Retro Generation
+03. Spoonfly - Star Traveler
+04. Macrocosm - Morning in the Dark(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B788633CEFBBF6329B51264A470929D2514FBBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396843   (744076) от 17.07.2020
+
+VA - EDC Clubbing House (2020) [MP3|320 Kbps] <Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744076.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Davide Alpino - Atlantis (Original Mix)
+002. Scheffwell - I Just Want To Party
+003. Empire B - Beautiful Life
+004. Brown Sneakers - Am I Wrong(   Читать дальше...   )Жанр: Club HouseПродолжительность: 08:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D5F7224089470895B964C51AE90161066A5381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020885   (743955) от 27.05.2016
 
 VA - Tropical Island Paradigm (2016) [MP3|236-320 кб/с] <House, Progressive House, Indie Dance>
@@ -600,155 +745,6 @@ VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E2AFCAA86FFEAB77930DAE6463627CF65C12EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021296   (740680) от 29.05.2016
-
-VA - Неформатная Электронная Музыка Vol.1 [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Glitch, Bass, Cosmic Dub>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Refraq - Semantics (05:25)
-02 Charlesthefirst - Miuris Cave (04:02)
-03 Eyeseeu - Tre... The Gun (04:50)
-04 Pierrothemoon - 3Msi (05:29)(   Читать дальше...   )Жанр: Glitch, Bass, Cosmic Dub, Crunk, Downtempo,
-Future Bass, Hypnotic, Midtempo, Psydub, PsyglitchПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF64E6968A98811E804FD8628FD3BC835090CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283235   (740262) от 16.02.2019
-
-VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progressive, Melodic Progressive, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolier & NBLM - Follow Me (BLR Remix) [5:16]
-02. Deep Fog - Eagle Nebula (Original Mix) [7:50]
-03. JFR - Rainy Day In Mendoza (Original Mix) [7:58]
-04. Nerutto - Illuminate (Original Mix) [5:33](   Читать дальше...   )Жанр: Deep Progressive, Melodic Progressive, Progressive HouseПродолжительность: 03:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282973   (740145) от 16.02.2019
-
-VA - Hits of My Soul Vol. 44 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Original Mix) (08:51)
-02. Morvan - Kiss Of A Muse (Original Mix) (07:41)
-03. Dannie Denito feat.Wenturo - Rain On The Venus (Original Mix) (06:12)
-04. Neo & Farina - Alba Rossa (Remastered Original Vocal Mix) (09:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283475   (739724) от 17.02.2019
-
-VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739724.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Manuel Rocca Feat. Charmy - Heat Of Love (Original Mix)
-002. Abstract Vision Pres. Subbota - Noonday Shadows (Extended Mix)
-003. Accado - Remedy (Extended Mix)
-004. Daniel Garrick - Alive(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A7F4310542C20E33DDDA3BAFE7B7E13C46DFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283403   (739672) от 17.02.2019
-
-VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calvin Harris & Rag'n'Bone Man - Giant
-02.  Marnik & Smack - Gam Gam
-03.  Boostereo - Dirty Dancing
-04.  Hugel & Amber Van Day - Wtf(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AA89FADCC37B6AEE023ED6BB0BDB9B92C1391E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,170 @@
+###  Публикация: 1526791   (737815) от 26.01.2022
+
+VA - Anti Stress Music (Instrumental sound and beats for your relaxing moments) (2022) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IKE - Seeds 'N Flowers (4:48)
+02. Diego Damiani - Stillness (2:50)
+03. Paolo Sessa, Polose - Blue River (4:08)
+04. Honeymunch - Dennier Verre (4:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BEEA1814B3E4D4812DD091979872DE9F13A002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526763   (737805) от 26.01.2022
+
+VA - Ностальгия по настоящему (вечер музыки Микаэла Таривердиева в кремле) (2021) [AAC|~288 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфонический Оркестр Российского государственного Телерадиоцентра - Полет (5:20)
+02. Трио Меридиан - Ностальгия по настоящему (2:51)
+03. Тамара Гвердцители - Музыка (4:48)
+04. Сергей Никитин - Я к вам пишу (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D02B910BF99044DA4F42A6BFD204CFD2963A812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526352   (737800) от 26.01.2022
+
+Василий Головачев | Очень большой лес. (Книга 7). Возвращение (2021) [M4B|AAC, Антон Ческидов]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставив за спиной Гардаград и кучу связанных с ним проблем, друзья устремляются в давно запланированный поход. Впереди их ждут Проклятые земли с населяющими их чудовищами, у которых друзья вместе с
+горсткой наемников попытаются отобрать…Жанр: ФантастикаФормат: M4BПродолжительность: 08:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2582E1D212881030843BFE30620DD7E0DD0D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526951   (737796) от 26.01.2022
+
+Sky Soul - Message from the Sun (2022) [AAC|~335 Kbps] <Psychill, Psybient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call of Nature (Original Mix) (5:52)
+02. We Are Mirrors (Original Mix) (5:26)
+03. Sky Soul, E-Mantra - Endlessness (Original Mix) (6:54)
+04. Son of the Sun (Original Mix) (7:17)(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95C31D0034D74A965777286298275B179EC7C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527009   (737782) от 26.01.2022
+
+Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отобрав наиболее перспективных заключенных из тюрьмы, в которой содержатся не только самые опасные преступники, но и люди со сверхспособностями, и даже не люди, правительственный агент отправляет их на самоубийственное задание в одну латиноамериканскую страну, где недавно произошел военный переворот. А чтобы те наверняка не сбежали, каждому в голову вживляется взрывное (   Читать дальше...   )Производство: США, Канада, Великобритания / Warner Bros., DC Entertainment, Atlas Entertainment, Safran CompanyЖанр: Боевик, фантастика, комедия, фэнтезиРежиссер: Джеймс ГаннАктеры: Марго Робби, Идрис Эльба, Джон Сина, Юэль Киннаман, Джай Кортни, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Майкл Рукер, Виола ДэвисПеревод: Дублированный, профессиональный многоголосый, любительский двухголосый, авторский одноголосыйСубтитры: Русские, украинские, английские
+Внимание! В переводе HDrezka Studio и М. Яроцкого присутствует ненормативная лексикаПродолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54811ABFA26E9A6D5A4398FCDE19334ABEC165B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526816   (737716) от 26.01.2022
+
+Нимфоманка: Часть 2 / Nymphomaniac: Vol. II (2013) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории нимфоманки по имени Джо, чья жизнь была полна множества эротических переживаний, впечатлений и опытов. Она рассказывает о себе немолодому одинокому холостяку Селигману, который наткнулся на нее, избитую и находящуюся в полубессознательном состоянии, в переулке, доставил к себе домой и выходил.Производство: Дания, Германия, Франция, БельгияЖанр: ДрамаРежиссер: Ларс фон ТриерАктеры: Шарлотта Генсбур, Стеллан Скарсгард, Шайа ЛаБаф, Джейми Белл, Стэйси Мартин, Уиллем Дефо, Миа Гот, Жан-Марк Барр, Майкл Пас, Кристиан СлэйтерПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, украинские, английскиеПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8FBB8A9135EA6C87C47B0EE4835F3702DBBDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526815   (737715) от 26.01.2022
 
 Нимфоманка: Часть 1 / Nymphomaniac: Vol. I (2013) BDRip [720p] ATV
@@ -556,180 +723,6 @@ VA - Cappuccino Lounge, Vol. 3 (Relaxed Coffee Tunes) (2017) [AAC|~343 Kbps] <Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:219FCC15FEEB78452209AC6F7BC89901CA5948DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527392   (736942) от 28.01.2022
-
-VA - Cappuccino Lounge, Vol. 1 (Relaxed Coffee Tunes) (2015) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Phunk Society - De Janeiro (4:14)
-02. Elisabetta - L'idea Dell'amore (Sax on the Beach Mix) (3:30)
-03. Peter Pearson - Bossalove (4:43)
-04. Florito - Shirabyoshi Love (Instrumental) (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901627D8E91E1B93CBB38DDA741AEFF84804F26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527295   (736938) от 28.01.2022
-
-VA - Mediterraneo 3 (2020) [AAC|~332 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Papadopoulos, Dim Angelo, Alex Mihalakis - Sunset In Aegean (3:51)
-02. Elias Fassos, RisK (Gr), Ghenwa Nemnom - Ilios (6:15)
-03. Nikos Kaponis - Gypsy Day (6:46)
-04. Bassi, Jojo Rose - Epidaurus (4:26)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8681B209FBCD1085E4A23BA80E390806C065C9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527293   (736937) от 28.01.2022
-
-VA - Electro Swing Dance Session (2018) [AAC|~324 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marebo - Jamaican Klezmer (4:07)
-02. Doobie - Swing Interlude (0:53)
-03. DJ Tissue, Googirl - The Time (Tik - Tak) (Electro Swing Mix) (5:42)
-04. Half Decent - Something Like This (4:04)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18118489221E1D6046E12FEDF5B1E51A38972690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527494   (736933) от 28.01.2022
-
-VA - Cafe Deluxe Chillout - Nu Jazz / Lounge, Vol. 8 (2022) [AAC|~297 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightview - Deep Flow (3:43)
-02. Soundset City - Sweeping (3:55)
-03. Jean Mare - Break of Day (3:10)
-04. Soundset City - Smooth and Funky (2:59)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8210F5B8474FD4B118B9D70DD04A74EAB891887E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527258   (736926) от 28.01.2022
-
-VA - Best of Cafe De Anatolia 3 (2020) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jose Solano - Kanun (8:06)
-02. Martin Hiska - Dust (4:59)
-03. Serkan Eles - Tevafuk (6:29)
-04. Elias Fassos, RisK (Gr) - Sunset in Ayia Napa (7:08)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 04:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5466EE284D2FB3807B2D9D1550591D6337169FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527500   (736924) от 28.01.2022
-
-VA - Vintage Remix Cafe (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Menescal - Here Comes the Sun (Remix) (2:38)
-02. Urban Love, Bellestar - Love is in the Air (Bellestar Remix) (3:13)
-03. Banda Do Sul, Cherie Currie - Here Today, Gone Tomorrow (Positive Remix) (2:49)
-04. Banda Do Sul, Natalie Renoir - Watermelon Sugar (Ronan Remix) (2:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, PopПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F11220FECC9F937C9C0A510AA713131C0E57879
 ```
 
 https://mybot314.ru/tekegram_catalog/

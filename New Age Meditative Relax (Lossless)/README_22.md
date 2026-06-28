@@ -1,3 +1,90 @@
+###  Публикация: 950892   (363658) от 29.10.2015
+
+Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minaret
+02. Ariv El Pos
+03. Caravana
+04. Carima(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951018   (363653) от 29.10.2015
+
+Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyberspace 4:31
+02. Lost Paradise 8:50
+03. Beyond The Ocean Waves 5:53
+04. Inside The Heart Of Universe 4:43(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951361   (363067) от 29.10.2015
+
+Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage To Paradise
+02. The High Road
+03. Almeria
+04. Cabriolet(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416392   (360369) от 19.10.2020
 
 Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -662,93 +749,6 @@ Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578222   (341076) от 25.09.2022
-
-Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Vine Part 1
-02. Heart Of Green
-03. Dietera Dreams
-04. Yage(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43739D1CAE29E751F3BDEC50C361334BA8BEE4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953917   (339724) от 08.11.2015
-
-Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|image+.cue]<New Age, Downtempo,Electronic, Folk, World, & Country>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339724.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Monk's Introduction    (05:05)
-02. Hazimari / Sozo    (09:52)
-03. Caravansary    (05:57)(   Читать дальше...   )Жанр: New Age, Downtempo,Electronic, Folk, World, & CountryПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419088   (339581) от 28.10.2020
-
-Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always (6:43)
- 02. Our Journey (6:50)
- 03. Together (6:08)
- 04. Our Future (Piano Version) (8:26)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B5783210C0169C649B28F7F525D4BE773580D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

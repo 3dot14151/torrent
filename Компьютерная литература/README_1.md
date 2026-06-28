@@ -1,3 +1,216 @@
+###  Публикация: 1865931   (1065973) от 
+
+Aurélien Géron | Hands-On Machine Learning with Scikit-Learn and PyTorch. Concepts, Tools, and Techniques to Build Intelligent Systems (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065973.jpg" />
+</div>
+
+
+###  Подробнее
+
+The potential of machine learning today is extraordinary, yet many aspiring developers and tech professionals find themselves daunted by its complexity. Whether you're looking to enhance your skill set and apply machine learning to real-world projects or are simply curious about how AI systems function, this book is your jumping-off place.
+
+With an approachable yet (   Читать дальше...   )Жанр: Computer Vision & Pattern Recognition, Machine Theory, Computer Neural NetworksЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF15071C503E6D66D3B27E94586EBD5D2FBE4F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865928   (1065971) от 
+
+Nicole Koenigstein | Transformers. The Definitive Guide. Applications Beyond NLP. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065971.jpg" />
+</div>
+
+
+###  Подробнее
+
+The vast potential of AI technology remains untapped in areas like audio, video, and complex data analysis. In fact, many of today's professionals find it challenging to apply AI innovations across these diverse domains due to a lack of guidance and practical implementations.
+
+This comprehensive guide, tailored especially for intermediate to advanced ML engineers, (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Natural Language Processing, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81FA753C8AC8B8AF6C1BE9906AE23794EBA1E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865926   (1065970) от 
+
+Аманда Берлин, Ли Бразерстон, Уильям Ф. Рейор | Defensive Security: лучшие практики обеспечения безопасности инфраструктур. 2-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то что рекордные утечки данных, резонансные взломы и атаки вымогателей происходят с пугающей частотой, многие компании не спешат выделить бюджет на информационную безопасность.
+Если ваша работа состоит в том, чтобы импровизировать, защищая активы работодателя это прагматичное руководство обеспечит вас инструментами и идеями, которые позволят максимально (   Читать дальше...   )Жанр: Intranets & Extranets, Computer Viruses, Viruses & MalwareИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4438E3882DBA25873450C8B4A2FE18A1159F57A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865923   (1065969) от 
+
+Mohit Mishra | Executable Files for Linux. Under the Hood of ELFs for Flexible and Secure Low-Level Coding. First Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Focusing on the Executable and Linkable Format (ELF) used in Linux and Unix systems, this book explores how code is compiled, linked, and loaded into memory, and how the operating system executes it. You’ll learn to analyse ELF files, debug and optimize programs at the binary level, write custom linker scripts, and understand dynamic linking and symbol resolution. (   Читать дальше...   )Жанр: Linux Programming, Linux Networking & System Administration, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5531B4660555842E4523F343C2A9ADF970B5BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865921   (1065968) от 
+
+Kerem Tomak | Learning AutoML. Automating ML Pipelines with AutoGluon, Leading Frameworks, and Real-World Integration (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learning AutoML is your practical guide to applying automated machine learning in real-world environments. Whether you're a data scientist, ML engineer, or AI researcher, this book helps you move beyond experimentation to build and deploy high-performing models with less manual tuning and more automation. Using AutoGluon as a primary toolkit, you'll learn how to (   Читать дальше...   )Жанр: Software Engineering, Software Design Tools, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A738F6E0F87437744E828F8CDAC55BA22E01BC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865918   (1065967) от 
+
+Dhivya Nagasubramanian | Agentic AI for Engineers. Architecting Goal-Driven Systems (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065967.jpg" />
+</div>
+
+
+###  Подробнее
+
+As AI rapidly evolves from passive models to autonomous systems capable of setting goals, reasoning, and acting independently, engineers find themselves at the threshold of a new technological era. This book serves as a bridge—connecting the world of traditional engineering to the emerging domain of Agentic AI. It is crafted for hands-on professionals who may not (   Читать дальше...   )Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAC0D71E2B1C212C7E2F9988C034EB6139C0052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865916   (1065966) от 
+
+Nitin Borwankar | Vector Databases. A Practical Introduction. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065966.jpg" />
+</div>
+
+
+###  Подробнее
+
+The AI revolution is here, and at its core lies a game-changing technology that most developers haven’t fully explored: vector databases. From powering semantic search to enabling large language models (LLMs) and generative AI, vector databases are reshaping how we build applications with unstructured data like text, images, and audio. But how do you go from curious (   Читать дальше...   )Жанр: Natural Language Processing, Data Processing, Data WarehousingЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4933680EAFC84E6A863D7520157C713CC8145FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865915   (1065965) от 
+
+Александр Гинько | Анализ и визуализация данных в Yandex DataLens. 2-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга представляет собой обновленное и дополненное издание руководства, опубликованного в 2023 году. Она посвящена стремительно развивающемуся отечественному инструменту для бизнес-аналитики Yandex DataLens, который со времени выхода первого издания очень сильно изменился. Автор не останавливается на описании функционала DataLens и погружает читателя в полноценные (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9C9E3F7F3AAED41EDC71357B99EEE079C3E6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865913   (1065964) от 
 
 Steve Klabnik, Carol Nichols, Chris Krycho | The Rust Programming Language. 3rd Edition (2026) [PDF, EPUB] [EN]
@@ -475,222 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8CCBF83358B6BDB7FDCD3FEF4E82D05E74A6C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861639   (1062910) от 26.03.2026
-
-Светлин Наков | JavaScript. Основы программирования. Полный курс для начинающих (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие по программированию на современном высокоуровневом мультипарадигменном языке JavaScript с помощью продвинутого редактора кода Visual Studio Code представляет собой тщательно структурированный и систематизированный сборник задач в области разработки программного обеспечения начального уровня. Все задачи подробно разобраны и снабжены готовым решением (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA1D429917BC7FB8987D4EC5C4BC8E17B508AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861715   (1062893) от 27.03.2026
-
-Rob Ciampa, Matt Ciampa, Rich Murphy и др. | YouTube Channels For Dummies. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash Your Video Stardom!
-
-Ready to shine on the world's biggest stage? With YouTube Channels For Dummies, you'll unlock the secrets to creating powerful videos and channels that captivate audiences and propel your brand to stardom. Four renowned experts guide you through every step, from ideation to production, promotion, and monetization.
-(   Читать дальше...   )Жанр: Digital Audio Production, Podcasts & Webcasts, Digital Video ProductionЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369E4E8B0EDA8302FBA6C0E23E95B0D7930CB93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861725   (1062834) от 27.03.2026
-
-Alexia Mandeville | Video Game Design For Dummies (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn what it takes to design a video game, as a hobby or as a career!
-
-Video Game Design For Dummies teaches you what it takes to design games from concept to completion. You'll learn the theory behind great gaming experiences, and you'll discover tools you can use to bring your game ideas to life. An experienced video game developer teaches you the basics of game (   Читать дальше...   )Жанр: Computer & Video Game Design, Game Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1C67A891A2F0129B351CF3257ABA9220CE72B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861827   (1062829) от 27.03.2026
-
-Patrick Marie | Modern Web Cartography. Open Source Map Solutions with OpenStreetMap, Overpass, Nominatim, Leaflet and Folium. First Edition (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Web Cartography is your ultimate guide to practical web maps using open source tools, with a particular focus on OpenStreetMap (OSM) and its rich ecosystem. In an era where maps are embedded in virtually every digital service from navigation apps to data dashboards, understanding how to build and customize them is more valuable than ever. While proprietary (   Читать дальше...   )Жанр: Cartography, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF1057CF06192E35BAD56A8FDFDCA0AF12AB595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861832   (1062827) от 27.03.2026
-
-Raúl Pimienta, Pedro López | Ultimate .NET MAUI Projects. Design and Deploy Cross-Platform Applications with .NET MAUI Using C#, XAML, MVVM Architecture and SQLite (2025) [EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062827.jpg" />
-</div>
-
-
-###  Подробнее
-
-As the need for unified mobile and desktop applications continues to rise, .NET MAUI offers a modern, efficient solution—enabling developers to create native apps for Android, iOS, Windows, and macOS using a single codebase in C# and XAML. Ultimate .NET MAUI Projects is your comprehensive, hands-on guide to mastering this powerful framework, and building production-ready, (   Читать дальше...   )Жанр: Cross-platform Software Development, Microsoft .NET, Software DevelopmentЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633785F35C2656A6B6FB22C30E947E3DE1EC2E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861835   (1062824) от 27.03.2026
-
-Sreejith Salgunan | Ultimate React Testing with Jest. Build Reliable Web Applications Using React Testing Library, Modern Testing Patterns, Async Flows and CI/CD Integration (English Edition) (2026 ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultimate React Testing with Jest uses Jest as the foundation to introduce practical, production-ready frontend testing that fits the pace of real engineering teams.
-
-The book begins by understanding why testing matters and how to approach it the right way, then moves into testing React applications incrementally. Early chapters focus on testing components and user (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: Orange Education Pvt LtdФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508030F0D577AD71A5E82D059B0A3987DB177713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861837   (1062821) от 27.03.2026
-
-Soumaya Erradi | Web3 Development with Angular. Building Web Applications with Blockchain and Web3 Technologies. First Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062821.jpg" />
-</div>
-
-
-###  Подробнее
-
-his book is a comprehensive guide that will help you create blockchain-based web applications using Angular, a powerful framework that, while not the most popular choice in the Web3 community, offers distinct advantages. Suitable for both junior developers with some knowledge of front-end development and senior developers transitioning into Web3 development, this (   Читать дальше...   )Жанр: Software Development, Web Development & Design Programming, Computer Security & EncryptionЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733E9A192BBE69C62AB54A532B6C640AB0F3C2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861711   (1062817) от 27.03.2026
-
-Ольга Козлова | Геймдев по классике. Откуда берутся сюжетные приемы в видеоиграх (2025) [PDF, FB2, EPUB]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоигры существуют уже больше полувека. За это время искушенные геймеры, казалось бы, видели уже все… Но талантливые разработчики умеют удивлять! Современный геймдизайнер – это человек-оркестр, который знает о всех компонентах видеоигр и умеет грамотно соединять их в единое целое.
-В книге рассматриваются все составные части видеоигры и рассказывается, как они создают (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571CF19B24CDF9CEBB618F774D1153A54507A416
 ```
 
 https://mybot314.ru/tekegram_catalog/

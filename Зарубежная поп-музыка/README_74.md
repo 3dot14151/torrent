@@ -1,3 +1,32 @@
+###  Публикация: 1084981   (216708) от 20.12.2016
+
+Soraya Arnelas - Universe In Me (2013) [MP3|320 Kbps] <Europop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something (04:15)
+02. Plastic (03:56)
+03. Love Song (04:16)
+04. When You Were My Friend (04:18)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0FCC3DBDE91255E849489BD2CF79687474B70A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652596   (216691) от 12.08.2023
 
 VA - Party Nacht 2024 (2023) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -714,35 +743,6 @@ VA - Romantic Collection. Cinema (2005) [OGG Vorbis|480 Kbps] <Jazz, Stage & Scr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12D1BF3E482943868F6D8CC672EF718E1C8886E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611995   (207417) от 14.02.2023
-
-VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Pop, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Aswad–	Shine
-02.	Sasha–	I Feel Lonely
-03.	Laid Back–	Sunshine Reggae
-04.	Saint & Campbell–	Stop That Train(   Читать дальше...   )Жанр: Reggae, Reggae-Pop, DancehallПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
 ```
 
 https://mybot314.ru/tekegram_catalog/

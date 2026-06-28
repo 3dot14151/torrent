@@ -1,3 +1,119 @@
+###  Публикация: 1122501   (798844) от 05.04.2017
+
+VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midori - The Rivers Of Home
+02. Medwyn Goodall - The Fire Dance
+03. Florie Brown - Garrai Na Bhfeileoig/The Hunters Purse/June Apple/Silver Spire
+04. Saor Patrol - Toomtabard(   Читать дальше...   )Жанр: New Age, Celtic, Folk, WorldПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71DCB04F7BA328304D9E1DDD9FC78729B1134D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122513   (798824) от 05.04.2017
+
+VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean Waves (2017) [MP3|320 Kbps] <New Age, Chillout, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Crystal Sounds Divine - Relaxing Ocean Waves
+02. Calming Water Cosort - Energy Flow of Nature
+03. Tropical Ocean Waves Oasis - Beautiful Ocean Waves
+04. Relaxing Nature Sounds Collection - Chakra Alignment(   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122371   (798814) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507287   (798447) от 04.11.2021
+
+David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798447.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
+02. Am I Blue (3:41)
+03. Go Away Little Girl (4:02)
+04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507320   (798415) от 04.11.2021
 
 Clannad - Studio Albums (1973 - 2013) 13 CD [APE|Lossless|image + .cue] <Celtic, Irish Folk>
@@ -632,122 +748,6 @@ Sungha Jung - Mixtape (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671B59FD91DCCD9563E6C83CE48580782A4FD751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200894   (793960) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC86A91D3D6EC9A2258455AF7C8CA6A502C86ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201085   (793954) от 23.01.2018
-
-VA - Quiet Nights Of Quiet Stars (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jo Stafford - Quiet Nights of Quiet Stars (3:16)
-02. Vic Damone - It's Impossible (4:32)
-03. Frank DeVol - The Tender Trap (3:41)
-04. Margaret Whiting - I Only Have Eyes for You (3:40)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, VocalПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886C4DBE4EABA0FF502CFBA80FF42035D80F0BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200898   (793899) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199918   (793892) от 23.01.2018
-
-Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Король фей
-02. Амстердам
-03. Мексика
-04. Бороды(   Читать дальше...   )Жанр: Pub Folk, Celtic Punk, Folk RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

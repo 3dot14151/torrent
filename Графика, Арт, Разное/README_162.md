@@ -1,3 +1,55 @@
+###  Публикация: 1819756   (1148) от 24.09.2025
+
+Промты - SevenUnited LLC - 387 Midjourney Prompts for Sci-fi Characters - 2093175 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1148.jpg" />
+</div>
+
+
+###  Подробнее
+
+387 промтов для ИИ-арта Midjourney для персонажей научной фантастики.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FAF17DCB698D94FBDEAD90D6057853C83385AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819910   (984) от 25.09.2025
+
+Промты - SevenUnited LLC - 430 Midjourney Prompts for The 90’s Vol 2 - 2832775 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 430 настраиваемых промтов Midjourney для 90-х: Том 2Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30003DF12F423D0F9AC0BF6F916BA939B01C98C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820090   (808) от 26.09.2025
 
 Картинки (AI) - UI8 -  Realistic Faces - Diverse Pack of 92 [PNG, PSD]

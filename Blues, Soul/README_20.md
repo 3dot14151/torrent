@@ -1,3 +1,32 @@
+###  Публикация: 918838   (586010) от 16.07.2015
+
+Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dust My Broom (2:55)
+02.  It Hurts Me Too (3:05)
+03.  Coming Home (2:26)
+04.  Knocking At Your Door (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F02C11FFC6624B6E4109E57740ED3A29CE417E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918829   (586001) от 16.07.2015
 
 B.B. King - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
@@ -716,41 +745,6 @@ Jerry Butler - Les Genies du Rock - For Your Precious Love (1995) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBE55DFB520853C5145CD29F35FE44F5217E7BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529178   (569382) от 30.07.2012
-
-Lil' Cliff & the Cliffhangers - The Lovin' Kind (2011) [MP3|320 кб/с]<Blues / Jump Blues, Swing, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lovin' Kind
-02. Twenty-Nine Ways (To My Baby's Door)
-03. Three Cool Cats
-04. Ace Don't Ace Me Out
-05. Creola Belle
-06. Heaven Can Wait
-07. Oopin' Doopin' Doopin'
-08. Spank That Monkey
-09. That Ain't What I Gave You My Love for
-10. Down in Louisiana(   Читать дальше...   )Жанр: Blues / Jump Blues, Swing, Rockin' BluesПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808988848416720A7EE153BDB01185A47E7953C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

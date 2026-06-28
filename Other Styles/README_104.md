@@ -1,3 +1,116 @@
+###  Публикация: 1315177   (513806) от 19.07.2019
+
+Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Word
+02. Faith
+03. Soul
+04. Conscience(   Читать дальше...   )Жанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E7FDE585A7E15F0E151DF47B613BB1982367CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536439   (513188) от 19.08.2012
+
+Мельница - Ангелофрения (2012) [FLAC|Lossless]<Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315364   (512792) от 20.07.2019
+
+Cliff Martinez - Too Old To Die Young (2019) Original Series Soundtrack  2CD [FLAC|Lossless|tracks + .cue] <Psychedelic, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Hunting (03:35)
+02. I Got Time (02:36)
+03. Viggo and Diana (03:15)
+04. Some Complications (02:20)(   Читать дальше...   )Жанр: Psychedelic, ScoreПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E99CBC2B2FA69BF8849508937207CDDC00942A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562044   (512509) от 07.07.2022
+
+Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bakeina's Dream (00:04:45)
+02 - Golden Cage (00:04:22)
+03 - Quicksand Blues (00:05:29)
+04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536792   (512278) от 20.08.2012
 
 Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalists>
@@ -663,126 +776,6 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933223   (505273) от 02.09.2015
-
-London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [FLAC|Lossless|WEB-DL]<Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 20th Century Fox Fanfare [00:24]
-02. Cleopatra (excerpts) (arr. J. Mauceri): Caesar and Cleopatra [14:32]
-03. Cleopatra (excerpts) (arr. J. Mauceri): Anthony and Cleopatra [11:11]
-04. The Godfather (arr. J. Mauceri) [15:20](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D475A08B70AC05BD6CD04C46C3383360B86662B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933444   (505271) от 02.09.2015
-
-VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Minions - Universal Fanfare
-02. The Turtles - Happy Together
-03. The Spencer Davis Group - I’m a Man
-04. The Kinks - You Really Got Me(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13D0E6C15547318E3B6BCBB58C3BD98DA617D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538175   (504885) от 28.08.2012
-
-VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native American, Ethno, New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sacred Ground - Bill Miller (6:21)
-2. Can You Hear The Call - Robert Mirabal (6:37)
-3. Mountain Song - Star Nayea And Primeaux & Mike (6:00)
-4. Spirit Wind - Bill MIller (5:05)
-5. Seeking Light - Joanne Shenandoah (6:13)
-6. Raven - Little Wolf Band (5:43)
-7. People Of Yesterday - Robert Mirabal (5:00)
-8. Prayers In The Wind - Little Wolf Band (4:07)
-9. Let Us Dance - Primeaux & Mike And David Carson (5:16)
-10. Mother Earth - Walela And Joanne Shenanadoah (4:50)Жанр: Native American, Ethno, New Age, Ambient, DowntempoПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539369   (504867) от 28.08.2012
-
-Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504867.jpg" />
-</div>
-
-
-###  Подробнее
-
-(30:03) 1. Raga Jhinjhoti
-(27:30) 2. Raga DarbariЖанр: Relax, Meditative, InstrumentalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

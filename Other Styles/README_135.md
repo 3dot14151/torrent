@@ -1,3 +1,119 @@
+###  Публикация: 1075567   (320990) от 22.11.2016
+
+Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowden Symphonic (03:30)
+02. Burden Of Truth (02:05)
+03. Opening - Secret Downloading (01:40)
+04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331788   (320841) от 17.10.2019
+
+Preludio Italiano - Toccata (2001) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gioco Italiano (Variazione Praeludium II BWV 847) (3:47)
+02. Sogno Italiano (3:54)
+03. Ludium (4:06)
+04. Toccata Fiorentina (Variazione Toccata) (3:51)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EFE24AE0A5826A6D55606B048AA62D468522B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075344   (320419) от 22.11.2016
+
+Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix) 3:45
+02. Cathar Rhythm 3:17
+03. Mother (Remix) 4:09
+04. Avemano 4:17(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC205D55590D891A6937D639831F5CF95CEEAC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075588   (320109) от 22.11.2016
+
+Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel’s Oboe (The Mission) (02:17)
+02. Deborah’s Theme (C’Era Una Volta In America) (04:28)
+03. Il Buono, Il Brutto, Il Cattivo (Il Buono, Il Brutto, Il Cattivo) (02:43)
+04. Gi? La Testa (Gi? La Testa) (04:19)(   Читать дальше...   )Жанр: Instrumental,classical,soundtrackПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF96C0FBC19BC20C48F08ECBAE4105BF35558C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581549   (319520) от 29.11.2012
 
 Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
@@ -635,128 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CC58CA086B0557B511B40E06C42AFAF0C7492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076392   (313694) от 25.11.2016
-
-Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (04:21)
- 02. Isle of Hope, Isle of Tears (05:02)
- 03. As She Moved Through the Fair (2016 Version) (03:56)
- 04. Mo Ghile Mear (My Gallant Star) (03:37)(   Читать дальше...   )Жанр: Celtic, Folk, WorldПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582511   (312776) от 02.12.2012
-
-Патруль / End of Watch (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Public Enemy -  Harder Than You Think
-02 David Sardy -  I Am The Police
-03 David Sardy -  My Evil Is Big
-04 The Delfonics -  Hey! Love
-05 David Sardy -  Follow Me Into The House
-06 David Sardy -  Heroes
-07 David Sardy -  Hold The Baby - You Can't Live Without Her
-08 The Latin Rascals -  Lisa's Coming
-09 David Sardy -  Take Care Of Janet
-10 David Sardy -  Minivan Tail(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802C7C1F6C156936904EAF63B198044C9B01A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583471   (312450) от 02.12.2012
-
-Симфонический оркестр ''Русская филармония'' - Музыка российского кино (1997) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_312450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это как раз тот случай, когда прошлое не превзойдено пока никем. Уже мало кто помнит о канале ТВ-6, да и оркестра под таким названием не осталось, а вот гениальная интерпретация музыки из советских (хотя в заголовке и сказано российских, но Вы понимаете, что это скорее политес :) 1997 года) кинофильмов звучит сегодня! Думаю, что она доставит Вам истинное наслаждение.1. И. Дунаевский. Увертюра из к/ф 'Дети капитана Гранта' (4:22)
-2. С. Прокофьев. Мертвое поле из к/ф 'Александр Невский' (5:59)
-3. Д. Шостакович. Бал во дворце из к/ф 'Гамлет' (3:22)
-4. Д. Шостакович. Романс из к/ф 'Овод' (6:24)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959937   (312414) от 26.11.2015
-
-Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pale Surface (6:18)
-02. Hills (6:11)
-03. Enlightened Soul (6:38)
-04. Lead Me (6:31)(   Читать дальше...   )Жанр: New Аge, RelaxПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741A3F6345631820B7313AC73022E08BB9B0D64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

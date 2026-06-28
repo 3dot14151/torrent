@@ -1,3 +1,61 @@
+###  Публикация: 961277   (300815) от 01.12.2015
+
+Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) [MP3|320 кб/с]<Progressive Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine on you crazy diamond
+02. High hopes
+03. Welcome to the machine
+04. Wish you were here(   Читать дальше...   )Жанр: Progressive Rock, Melodic RockПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87397580EA45EF73A14487E05660E99D27CF350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847002   (299594) от 03.12.2014
+
+Freddie Mercury - Mr. Bad Guy (Alternative Extended Version) (2014) 2CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let's Turn It On (Extended Version)   (5:15)
+02.  Made In Heaven (Extended Version)   (4:51)
+03.  I Was Born To Love You (Extended Version)   (7:06)
+04.  Foolin' Around (Unreleased Extended Version)   (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FEA7C94B33802A189F2C10B13EC11827176DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078433   (299581) от 01.12.2016
 
 Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
@@ -693,64 +751,6 @@ Quiet Riot - Hollywood Cowboys (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CFC25CB0DEBF6EA67175A5BFB2BAA88BEE2BBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963723   (287641) от 08.12.2015
-
-Foggy Mountain Rockers - Angel Heart (1999) [MP3|160-192 кб/с]<Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble (02:26)
-02. Hold me tight (03:39)
-03. All I can do is cry (02:10)
-04. Cat's rhythm (02:40)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0C2E466AD039B12D1F779EE94901D24C0D46E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186598   (286204) от 25.11.2017
-
-Elvis Presley - Christmas With Elvis And The Royal Philharmonic Orchestra (2017) [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Santa Claus Is Back In Town
-2. White Christmas
-3. Here Comes Santa Claus (Right Down Santa Claus Lane)
-4. Merry Christmas Baby(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E75F6BB210824436C348767FBBB2B3AB21C292
 ```
 
 https://mybot314.ru/tekegram_catalog/

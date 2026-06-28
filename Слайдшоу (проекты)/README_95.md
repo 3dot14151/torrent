@@ -1,3 +1,107 @@
+###  Публикация: 1344421   (170044) от 10.12.2019
+
+Проекты - VideoHive - Fashion Opener | Bold Typography - 23175243 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Opener | Bold Typography - модный динамичный проект с текстовыми эффектами.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269AA3A4F82266D1024FA79F6F32BE1946F58AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345118   (167785) от 13.12.2019
+
+Проекты - VideoHive - Travel Memories - 20160841 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с эффектом параллакса широкого спектра применения, подходящий под разные категории оформления: путешествия, отпуск, воспоминания, ваши лучшие моменты.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA23177FA1A3FAAB2FF5BD7FE3BC8DDE5B0E4CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344913   (167779) от 13.12.2019
+
+Проекты - VideoHive - Parallax Promo - 18515367 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallax Promo - создание слайдшоу с 3D эффектом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F86CD90C5446B375EF88F132B5CA51F9CD3938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344918   (167769) от 13.12.2019
+
+Проекты - VideoHive - Neon Mood Slideshow - 19460533 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neon Mood Slideshow - Создайте невероятную атмосферу высоких технологий и погрузитесь в мир будущего.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C352EF5BEB5649C29985E4BA4D29FD9C8F44A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431346   (167388) от 13.12.2020
 
 Проекты - Motion Array - Old History Album Opener - 865796 [AEP]
@@ -574,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6AE120FA3FB9D1D0EEDA47362533DF79267E958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086611   (149504) от 25.12.2016
-
-Проекты - Проект ProShow Producer - Winter Swirl [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. Зимнее слайдшоу. За основу взят проект "Swirl" от Stranger2156. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086644   (149493) от 25.12.2016
-
-Проекты - VideoHive - Photo Shots 2 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания стильного, элегантного и красивого фото слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B12900930EEF938307F86E687D0DF2A1FD52BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086737   (149429) от 25.12.2016
-
-Проекты - VideoHive - Watercolor Slideshow - 17733386 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor Slideshow - проект для создания слайд-шоу с эффектом размытия акварелью, выполненный в современном и динамичном дизайне.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A8A5EBD2C0AD4FAA807DBDAC602889C174663A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969107   (149050) от 26.12.2015
-
-Проекты - RocketStock - Colorama [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E819E1C5B0FD2A430ED38DD72E6ED35D72970A
 ```
 
 https://mybot314.ru/tekegram_catalog/

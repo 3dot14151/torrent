@@ -1,3 +1,32 @@
+###  Публикация: 994576   (889782) от 08.03.2016
+
+Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American English
+02. In Some Other World
+03. Ready Or Not
+04. Call It Destiny(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AEF5C30E13EB81C82949CD29690F989764C5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371818   (888699) от 01.04.2020
 
 Kristina Bazan - EPHV1 (2018) [MP3|320 Kbps] <Pop, Electronic>
@@ -719,35 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E74DCC19349598819DACE216C6964F268EFCEAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373512   (876826) от 08.04.2020
-
-DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876826.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.DJ BoBo, Faye Wong - Freedom (4:13)
-2.DJ BoBo - Rock My World (Extended Version) (4:46)
-3.DJ BoBo - Where Is Your Love (Remix from Spain) (4:07)
-4.DJ BoBo - Its My Life (40o Brasil Mix) (4:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FC6B085BF298C35F51E4741EE60A9150199117
 ```
 
 https://mybot314.ru/tekegram_catalog/

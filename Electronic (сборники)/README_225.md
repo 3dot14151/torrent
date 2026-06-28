@@ -1,3 +1,148 @@
+###  Публикация: 1783344   (25607) от 05.03.2025
+
+VA - Compilation part 146 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muvi - Siena
+02. Jumanov - Need You
+03. A-Sultan - Be My Lover
+04. Hamidshax - Solo(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D9571A8ED4895A469B783F59AA31117ED275BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784382   (25015) от 11.03.2025
+
+VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muvi - Species
+02. Jumanov - Be Careful
+03. Davit Barqaia - Listen to Me
+04. Jambeats - Drift Away(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785260   (24578) от 15.03.2025
+
+VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Those Moments
+02. Delal Derin - Hard to Forget You
+03. Muvi - April
+04. Akmalov - Bassline(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961B55E197BF33A5FE6A0A9B21401B3E866760CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785485   (24452) от 16.03.2025
+
+VA - Record Super Chart 15.03.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misha Miller feat. Alex Velea - Bam Bam (2:30)
+02. Alan Walker & Meek - Dancing In Love (2:36)
+03. Anyma & Ellie Goulding - Hypnotized (3:00)
+04. Hugel, Topic, Arash, Daecolm - I Adore You (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484A4E61BE4A180E9EA64B5786B6EDE1FCA6134D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545744   (23597) от 25.03.2025
+
+VA - Workout Motivation ( #GHouse Edition)[Mixed by Sergey Sychev] (2018-2025) [MP3|320 Kbps] <GHouse, Hard House, Bass House> -  Обновляемая раздача
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23597.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Furkan Soysal & Sozer Sepetci - Money
+2. WHOWHENWHY - Monsters 'n' Stuff (feat. Matthew Anthony)
+3. Freaky DJs, LUJANO - Blood Moon
+4. Solomonio - Yali Yali(   Читать дальше...   )Жанр: GHouse ,Hard House,Bass HouseПродолжительность: 1 день, 16:29:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A6A23E15951D8F6C8225650991B901B0AD5EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787430   (23530) от 25.03.2025
 
 Agata Viola - Compilation (2025) [MP3|320 Kbps] <Electronic>
@@ -600,151 +745,6 @@ VA - Compilation Part 158 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8203C7F200C42DFC2278E5F1C9248C226529EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795413   (19371) от 04.05.2025
-
-VA - Compilation Part 159 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dndm - Like Girl
-02. Muvi - Siena
-03. Akmalov - Another Love
-04. Jumanov - Oh Well(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956AD71F0BD9EEC1F4307E53F0186FCF3F1D2A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795489   (19230) от 05.05.2025
-
-VA - Musical kaleidoscope part 39 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Enigma French 52
-02. Dj Aurm - Just Say Yes
-03. Dj Lava - And Life Isn't That Long
-04. Danekoo1 - Girls on the Beach(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8E94512C8965ED2922CDE4D2F9B021F07A5AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796183   (18813) от 09.05.2025
-
-VA - Compilation Part 160 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Me Before You
-02. Jumanov - Oh Well
-03. A-Sultan & Akmalov - You
-04. Jumanov - Take A Rest(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F268236721880404772A7EFA4C522F0890CC39B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796725   (18499) от 12.05.2025
-
-VA - Big Room Dance 4 (2025) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Angello & Francis - Fast Moving (4:21)
-02. Third Party & Mark Roma - Shut Up (Nicky Romero Edit) (3:48)
-03. Elley Duhé & Whethan - MONEY ON THE DASH (Armin van Buuren Remix) (2:19)
-04. Martin Garrix & Jex - Told You So (Agents Of Time Remix) (3:41)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 03:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C62F5C4777B5FD4C65539B1745A8239315AC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796961   (18420) от 13.05.2025
-
-VA - Compilation Part 161 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Muvi - Star Night
-02 - Azimov - Love Song
-03 - A-Sultan - Light in the Dark
-04 - Muvi - Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559265D01402F5459677C7EDA618D8B8D56DEAA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

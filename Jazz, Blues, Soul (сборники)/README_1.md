@@ -1,3 +1,32 @@
+###  Публикация: 1619698   (1032712) от 17.03.2023
+
+VA - My Heart's In Blues (2023) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032712.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ray Charles, Natalie Cole - Fever (with Natalie Cole) [03:31]
+002. The Blues Mystery - Back to the Dirty Town [05:33]
+003. ZZ Top - Blue Jean Blues (2005 Remaster) [04:40]
+004. Keb' Mo' - Somebody Hurt You [03:37](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 13:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A654D4443FE06C1D9704C3EFAD2F46F963F2F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447721   (1031623) от 14.02.2021
 
 VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
@@ -710,35 +739,6 @@ VA - Blues 100 (2021) [MP3|320 Kbps] <Blues, Soul, Rock, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:012BE6EF92EBCECFD42209E64CC9EB0229134899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474637   (1012790) от 03.06.2021
-
-VA - Sex, Blues and Rock! (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engerling - Moll-Blues
-02. Blues Delight - Slightly Hung Over
-03. Scott Holt - I've Been Searching
-04. Freddie King - Help Me Through The Day(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 14:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC05B1D0073138203F352E450313865B9D90043D
 ```
 
 https://mybot314.ru/tekegram_catalog/

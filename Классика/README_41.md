@@ -1,3 +1,32 @@
+###  Публикация: 959998   (309258) от 27.11.2015
+
+Моцарт - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленькая ночная серенада: Allegro
+02. Симфония №40: Molto allegro
+03. Женитьба Фигаро: Увертюра
+04. Турецкий марш(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806817332AD436E3A08684508F6D18D85234567D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584830   (307415) от 04.12.2012
 
 VA - Best of Tchaikovsky (1996) [FLAC|Lossless]<Classic>
@@ -726,35 +755,6 @@ VA - 100 Christmas Masterworks (2018) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A6EB8235336C0927D97ED7504A9950127361EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249423   (300610) от 26.10.2019
-
-Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrumental, New age, Relax, Neoclassical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состояние на 04.01.2015:
----Добавлены новые альбомы:
-1993 - Follow Me Homeм (320 кб/с)
-2005 - Spring Rain Piano And Rainfall (320 кб/с)(   Читать дальше...   )Жанр: Instrumental, New age, Relax, Neoclassical, PianoПродолжительность: 14:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DBF806766F708E036254CEC01AC8F4600AA165
 ```
 
 https://mybot314.ru/tekegram_catalog/

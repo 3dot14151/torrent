@@ -1,3 +1,32 @@
+###  Публикация: 1249384   (435536) от 23.09.2018
+
+Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Way To Go (03:28)
+02. Babylon Is Falling (03:59)
+03. One More Heartache (03:01)
+04. Might Take A Lifetime (02:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F445E19A73D29D3B0F77FD53FCCCB1CA171D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945346   (433933) от 10.10.2015
 
 Willie May - Blues Mona (2015) [MP3|320 кб/с]<Blues, Country Blues, Funky>
@@ -724,35 +753,6 @@ Jackie Venson - Live in Texas (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3B0A2278FE4D7B931AB7106794A2E40686FB6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251824   (413351) от 03.10.2018
-
-Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come To Me (03:52)
-02. 81 (05:34)
-03. Run (04:03)
-04. The Ice Queen (06:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B16B144E0088A28B07F3724E845170ABD6A3AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

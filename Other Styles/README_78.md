@@ -1,3 +1,122 @@
+###  Публикация: 517279   (647264) от 01.07.2012
+
+Новый Человек-паук / The Amazing Spider-Man (2012) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647264.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Title (Young Peter)
+2. Becoming Spider-Man
+3. Playing Basketball
+4. Hunting For Information
+5. The Briefcase
+6. The Spider Room (Rumble In The Subway)
+7. Secrets
+8. The Equation
+9. The Ganali Device
+10. Ben`s Death(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E788B6D257EEE668CD77C4ED1D71F8B047BDA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517024   (646868) от 01.07.2012
+
+VA - 599 фраз из нашего кино и мультфильмов (2009) [MP3|32-64 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292148   (646812) от 29.03.2019
+
+Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Indie-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisyphus (04:06)
+02. Bloodless (06:29)
+03. Olympians (04:00)
+04. Cracking Codes (03:12)(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292486   (646807) от 29.03.2019
+
+Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclectic, Guitar Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip, Slip, Slippin' In (feat. Eddie Bond & The Stompers)
+02. Carol (feat. Bill Black's Combo)
+03. A Touch of the Blues (feat. Bobby "Blue" Bland)
+04. Dream Baby (feat. Jerry Lee Lewis)(   Читать дальше...   )Жанр: Eclectic, Guitar RockПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CF37E6D103E01D1693D09C90A77BB2043E9D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227290   (646708) от 26.05.2018
 
 Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -659,128 +778,6 @@ Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518255   (642881) от 03.07.2012
-
-VA - Золотые Хиты Советского Кино - 2 Альбома (2011) [MP3|256 кб/с]<Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песенка о шпаге (Достояние республики) (2:49)
- 2. Ночной разговор (3:04)
- 3. Синема (Человек с бульвара Капуцинов) (4:02)
- 4. Разговор со счастьем (Иван Васильевич меняет профессию) (2:41)
- 5. У природы нет плохой погоды - Служебный роман (3:00)
- 6. Я пережил и многое, и многих ("О бедном гусасре замолвите слово") (3:16)
- 7. Жалобы Марселлы ("Собака на сене") (2:07)
- 8. Ветер перемен (3:56)
- 9. Блиндажи той войны... (2:10)
- 10. Берег Моря (Вперед Гардемарины) (2:31)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 05:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4988B1C8155DF6751FDF9C72B712AC20DE6968E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142580   (642704) от 14.06.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-The Fabulous Johnny Cash
-01. Run Softly, Blue River
-02. Frankie's Man, Johnny(   Читать дальше...   )Жанр: CountryПродолжительность: 03:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA35FB8CDE25DDF7CD0951908836C7E94641CE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541659   (642606) от 04.04.2022
-
-Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 RimWorld Trailer Music.mp3 - 1:47
-02 Entry Screen.mp3 - 3:48
-03 Terraformer.mp3 - 3:03
-04 Moving On.mp3 - 4:45(   Читать дальше...   )Жанр: light guitar instrumentalПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032698   (642101) от 09.07.2016
-
-Jim Brickman - Blessings (2014) [MP3|320 Kbps] <New Age, Piano, Christian & Gospel>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  How Great Thou Art    04:04
-02.  Were You There    02:58
-03.  Abide With Me    03:16
-04.  Come You Thankful People    03:11(   Читать дальше...   )Жанр: New Age, Piano, Christian & GospelПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEE4AD081B45F930CA63AADE88E55BD0B4CE68F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1660793   (188742) от 14.09.2023
+
+VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica - Adult Smooth Jazz (3:15)
+02. Saxophone - Erotic Slow Emotions (3:33)
+03. Slow Sex Music - Taste My Lips (3:32)
+04. Erotica - Crying Guitar (4:58)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB862E95747568141240AA09369D386B93F92E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202959   (187895) от 17.09.2023
+
+Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow, 1953
+02. Beria's Plan
+03. First On The Scene
+04. We Cry For You(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590719   (187816) от 16.11.2022
+
+Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sternenwind [00:06:00]
+02. Home Is Where You Are [00:04:23]
+03. Searchlight [00:04:26]
+04. Scarborough Fair [00:03:42](   Читать дальше...   )Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291D0A623B04312C592DC494C13750788B906F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590974   (187537) от 17.11.2022
+
+Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon (04:05)
+02. Penelope Graves (06:17)
+03. Gambit of Night (Extended) (03:53)
+04. Come Take a Trip in My Airship (04:05)(   Читать дальше...   )Жанр: Progressive Rock, Cinematic RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591262   (187518) от 17.11.2022
 
 VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
@@ -628,122 +744,6 @@ Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3787BC41B6ECED2E88AA488B3E0AECA1E4CBB9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429166   (177371) от 05.12.2020
-
-Blackmore's Night - Here We Come A-Caroling (2020) EP [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here We Come A-Caroling
-02. It Came Upon a Midnight Clear
-03. O Little Town of Bethlehem
-04. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA3AF3FE364386D7D96A48A78A0FD48E16F3099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428728   (176682) от 06.12.2020
-
-Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's So Intoxicating [03:47]
-02. Got My Country Girl [02:59]
-03. Cherokee Butterfly [03:54]
-04. Somehow I Know You [03:05](   Читать дальше...   )Жанр: Country, RockПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC35178BB5B563B0985E5CFCC2C505DDB9B39FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429491   (176529) от 06.12.2020
-
-VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tebra - Jovano (6:33)
-02. Kled Mone - Manastir (6:06)
-03. Tebra - Sve Na Crno (6:58)
-04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: Chillout, Downtempo, Deep-House, MiscellaneousПродолжительность: 04:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A109E5AAC441D7C672E1930CA46BA4112896D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595337   (175130) от 06.12.2022
-
-Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blameless [00:04:28]
-02. Green Cross [00:02:58]
-03. Shadowforce [00:03:40]
-04. Flowers of Essence [00:04:10](   Читать дальше...   )Жанр: Post-Punk, Dark FolkПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

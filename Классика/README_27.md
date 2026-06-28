@@ -1,3 +1,32 @@
+###  Публикация: 918999   (584663) от 17.07.2015
+
+Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Piano, Instrumental>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Mattina
+02. Fly
+03. Nuvole Bianche
+04. I Giorni(   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E33E14FF7EB13A807762F973F34E5B0CA9249D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041000   (583261) от 08.08.2016
 
 Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classical, Concerto>
@@ -734,35 +763,6 @@ Mikhail Gnesin - Russian Futurism (Vol.4)(Konstantin Krimets & Russian Philarmon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBFADFD8F32DCD7500103EEEBDD75FF20E00446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959996   (561794) от 10.07.2018
-
-Шопен - Гении классической музыки (2012) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вальс ми бемоль мажор, соч.18 (Большой блестящий вальс)
-02. Этюд до диез минор, соч.10 н.4
-03. Вальс ля бемоль мажор, соч.42 (Большой вальс)
-04. Соната для фортепиано н.2 си бемоль минор, соч.35, Похоронный марш. Lento(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C007CB39F851794E3F37BD7B091CE08430C580
 ```
 
 https://mybot314.ru/tekegram_catalog/

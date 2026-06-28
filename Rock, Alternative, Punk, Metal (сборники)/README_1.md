@@ -1,3 +1,148 @@
+###  Публикация: 1859613   (1061264) от 16.03.2026
+
+VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:17]. 001-Би-2 - Детство
+[3:32]. 002-Инкогнито - Чучело
+[3:44]. 003-Mireia - Карма
+[3:41]. 004-Сурганова и оркестр - Привыкай(   Читать дальше...   )Жанр: rockПродолжительность: 10:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDB0910ED4EC92593BD4703CB20122D477275B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858433   (1060485) от 10.03.2026
+
+Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New wave, Miscellaneous>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Single Night (& Martina McBride) ❂ Lucky Numbers 2013
+02. Tragedy Street ❂ Greetings From The Gutter 1994
+03. All Messed Up (& Martina Mcbride) ❂ The Blackbird Diaries 2011
+04. Happy To Be Here ❂ SlyFi 1998(   Читать дальше...   )Жанр: Pop rock, Soft rock, New wave, MiscellaneousПродолжительность: 06:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9A6C073B520BF52E393A5258DFB06C84ADBAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856485   (1058796) от 28.02.2026
+
+VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058796.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:41]. 001-7Б - Майская звезда
+[3:51]. 002-Стереозвук - Без тебя
+[3:29]. 003-Инкогнито - Воздух
+[3:31]. 004-Ночные снайперы - Рим(   Читать дальше...   )Жанр: rockПродолжительность: 08:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8182C6AE938614A4ABF7C72F9909379EF33AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854607   (1057663) от 20.02.2026
+
+Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Ass ❂ So Happy It Hurts 2022
+02. Summer Of '69 ❂ Reckless 1984
+03. (Everything I Do) I Do It For You ❂ Waking Up The Neighbours 1991
+04. Lonely Nights ❂ You Want It-You Got It 1981(   Читать дальше...   )Жанр: Soft rock, Pop rock, Arena rockПродолжительность: 08:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F94D8BAB954D3E9EEC7B6B00E4116E49193560E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852965   (1056283) от 10.02.2026
+
+Агата Кристи & Братья Самойловы - Compilation (1988-2025) [MP3|320 Kbps] <Alternative, Gothic rock, Art rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эвтаназия ❂ Резня в Асбесте 2015
+02. 1_1 ❂ Живые, Но Мёртвые 2013
+03. Барон и За Рекой ❂ Маленький Фриц 1990
+04. Бриллиантовые Дороги (& Могилевский А) ❂ Иллюминатор. Песни на стихи Ильи Кормильцева 2017(   Читать дальше...   )Жанр: Alternative, Gothic rock, Art rockПродолжительность: 09:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851948   (1055857) от 06.02.2026
 
 Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electronic rock>
@@ -549,6 +694,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608190   (1043529) от 31.01.2023
+
+Vanilla-Ninja - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Tattoo Unplugged
+02. Gotta Get it Right
+03. Kingdom Burning Down
+04. Tough Enough(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 02:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E960C25E9EF0759E0CEDA7D03A4D9E25C50632F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607787   (1043521) от 31.01.2023
 
 VA - Now That's What I Call A Love Song (4CD) (2023) [MP3|320 Kbps] <Rock, Pop>
@@ -571,180 +745,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609102   (1043327) от 02.02.2023
-
-Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin The Blood [03:29]
-02. Runnin' Wild [03:38]
-03. Stand and Deliver [05:06]
-04. It’s Never Too Loud For Me [03:24](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B7B577A1BDF789B1C78560EECD08653FC5EB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609727   (1043164) от 04.02.2023
-
-VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gambardella - Ascensiones
-002. Kesem - No Future
-003. Liquify - Subzero Descent
-004. The Tyromancers - Behold ! The Tyromancers(   Читать дальше...   )Жанр: Psychedelic-RockПродолжительность: 09:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609738   (1043143) от 04.02.2023
-
-VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Waterboys - Bed On The Floor
-002. U2 - Even Better
-003. Electric Light Orchestra - Moment In Paradise
-004. Morgen - Everything's Gone(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01849C3A8ADA77203C1FEB9278F1025FAE2DA93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609758   (1043141) от 04.02.2023
-
-VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kvasir - Authenticity
-002. Sleeping Romance - Smoke And Mirrors
-003. Goatwhore - Born Of Satan's Flesh
-004. Infection Code - Daily Slavery System(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 11:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609741   (1043140) от 04.02.2023
-
-VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043140.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Black Keys - Lonely Boy
-002. Frank Turner - The Work
-003. The Relentless - Lost In Control
-004. Jeff Lynne's Elo - Losing You(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610383   (1042436) от 07.02.2023
-
-VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenobiotic - The Wretched Strive
-02. Sigh - Shoujahitsumetsu
-03. Psycroptic - Enslavement
-04. Sun Eater - Vermin (feat. Charles Pierron & Daniel Bramley)(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metal, deathcoreПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EB1E81BD5CCB2E6BBE48C19282BC2A89665176
 ```
 
 https://mybot314.ru/tekegram_catalog/

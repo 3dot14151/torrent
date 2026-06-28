@@ -1,99 +1,3 @@
-###  Публикация: 362352   (571542) от 13.07.2011
-
-VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8D702AB2E7D5B476AC67F5E307E6410E434BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528733   (571294) от 29.07.2012
-
-VA - Летняя улетная вечеринка (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MiXi - До Рассвета (DJ VAL Remix)
- 02. Ирина Билык И Ольга Горбачева - Не Ревную
- 03. MaXimA - Алло (Fidel Wicked mix)
- 04. Женя Вилль feat. Van Lider - Ты Для Меня
- 05. Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (EU Radio Edit)
- 06. Фабрика - Зацелую
- 07. Jennifer Lopez feat. Pitbull - Dance Again
- 08. Иракли - Ты Одна
- 09. Milena & MaXimA - Города
- 10. Virus - Sekrety (Club Mix)Жанр: PopПродолжительность: 05:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB1E7103550A0273E50191C184040212FB25ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528716   (571048) от 29.07.2012
-
-VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Джиган (Geegun) - Поиграем В Любовь
- 02 Ольга Lucky - Последний Поцелуй
- 03 Денис Майданов Feat. Филипп Киркоров - Стеклянная Любовь
- 04 Катя Чехова - Новая Я
- 05 Никита - Танец В Темноте (Dance Remix 2012)
- 06 Дискотека Авария - Недетское Время (Alex Neo Remix)
- 07 Лавика - Осень Это Я (Dj Melloffon Radio Edit)
- 08 Алиби - 5 Элемент
- 09 Наталья Пугачева - Разлюбила
- 10 G-Nise & Алексей Кабанов Feat. Dj Half - Наше ЛетоЖанр: PopПродолжительность: 05:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9992B071FFC534106E660D9C0291E058357B39EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151913   (570357) от 20.07.2017
 
 DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
@@ -772,6 +676,93 @@ VA - Лучшие новинки Мая. Зайцев.нет, но есть MP3 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9314F3848FFCADBAF067B522086D869219D668C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923456   (564432) от 31.07.2015
+
+VA - Летний популярный музыкайф. Зарубежный сборник (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564432.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cecilia Gayle & Dj Sanny J - La Pipera
+002. Tony Bennett & Lady Gaga - I Can't Give You Anything But Love
+003. Eminem Vs. Royce Da 5'9, Big Sean, Danny Brown, Dej Loaf & Trick Trick - Detroit Vs. Everybody
+004. Calvin Harris Feat. Hurts - Ecstacy(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC13F85436EAD53FC9DD2B3C4523983C8125C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044545   (563702) от 21.08.2016
+
+VA - German Top 50 Official Dance Charts 29.08. (2016) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tujamo Ft. Inaya Day - Keep Pushin
+02. Don Diablo Ft. DYU - Drifter
+03. Felix Jaehn Ft. Alma - Bonfire
+04. Bingo Player - Cry Just A Little (A-Trak And Phantoms Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FA8D32DD61AE11ED8F030212DEDAF11C4FC80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044686   (563684) от 21.08.2016
+
+VA - Disco Cruiser Invasion (2016) [MP3|308~320 Kbps] <Pop, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Service  -  Like A Morning Song  3:29
+02. Stars On 45  -  Star Sisters (Bad Girls Medle)  7:54
+03. Ice MC  -  It's A Rainy Day  4:14
+04. Haddaway  -  Make Me Believe  4:36(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 05:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578052AF8F0C91EFF5BAB03C5EE8A517826EF373
 ```
 
 https://mybot314.ru/tekegram_catalog/

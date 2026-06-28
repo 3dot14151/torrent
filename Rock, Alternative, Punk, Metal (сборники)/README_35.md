@@ -1,3 +1,177 @@
+###  Публикация: 548095   (360161) от 30.10.2015
+
+VA - Рок в Авто (Rapcore) (2012) [MP3|320 кб/с]<Rapcore, Nu Metal, Alternative Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRoject Oxid - One Step Closer (Linkin Park)
+02. Hollywood Undead - Levitate (Rock Mix)
+03. Limp Bizkit - Rollin' (Air Raid Vehicle)
+04. Avery Watts - A Cut Above(   Читать дальше...   )Жанр: Rapcore, Nu Metal, Alternative MetalПродолжительность: 05:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89C4F91C15BFCEE2EB68341FFB8F542D21BE6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599154   (360156) от 30.10.2015
+
+VA - Рок в Авто (vol. 7) (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Power Metal, Nu Metal, Alternative metal, Electronic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Stahli - Doubt
+ 02. The Bloody Beetroots feat. Refused - New Noise
+ 03. Within Temptation - What Have You Done (feat. Keith Caputo)
+ 04. DefRage - Puddle Of Nirvana(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Power Metal, Nu Metal, Alternative metal, Electronic RockПродолжительность: 05:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DABC8A16E501AB7C0604E2F3BE2B1A52CB700B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503810   (360152) от 30.10.2015
+
+VA - Рок в Авто (vol. 2) (2012) [MP3|320 кб/с]< Metal , Hard Rock >
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-HA - Analogue
+ 02. Apoptygma Berzerk - Love To Blame
+ 03. Panic! At The Disco - The Ballad Of Mona Lisa
+ 04. Gamma Ray - It's A Sin(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 05:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9656B947F572D6AB17144395BF1D195A803F80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328716   (359254) от 02.10.2019
+
+VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atlas - Signal Of Hope
+002. Awakebutstillinbed - Interlude
+003. Earthless - Black Heaven
+004. Viagra Boys - Shrimp Shack(   Читать дальше...   )Жанр: RockПродолжительность: 10:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3112150C3F5D86875CF8436EF55AABF2CFF35FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255733   (359028) от 20.10.2018
+
+VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Genesis - In Hiding
+002. I, The Lion - Escape
+003. Leader Of Down - Paradise Turned Into Dust
+004. Beartooth - Manipulation(   Читать дальше...   )Жанр: RockПродолжительность: 10:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328955   (358757) от 02.10.2019
+
+The Beatles - Abbey Road De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Come Together (Anthology 3 Version) (03:41)
+02-Something (Studio Demo) (03:19)
+03-Maxwell's Silver Hammer (Take 12) (03:43)
+04-Oh! Darling (Take 4) (03:31)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AC83F739A49715C4892E77308100EAC864A492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071454   (358671) от 10.11.2016
 
 Ляпис Трубецкой - Лучшее за все годы (2016) [MP3|320 Kbps] <Rock, Ska, Punk>
@@ -572,180 +746,6 @@ Robert Plant - Funny In My Mind (2CD Compilation) (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5BC997055E32A2B6D9FED439FEDAD027F1148E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419329   (339582) от 28.10.2020
-
-VA - Рок впрок 15 (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7линия - Меняем
-02. Лока 2.0 - По спирали
-03. Dругой Ветер - Нас не станет
-04. АЛЬТАВИСТА - Уникальная тварь(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 03:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679F535A69326DDB3A7D405C825C92564E092315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181007   (337650) от 05.11.2017
-
-VA - Rock Homily (2017) [MP3|192-320 Kbps] <Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337650.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Goldfrapp - Anymore
-002. Maverick - Free
-003. All but One - For the Waiting Good
-004. Slowdive - Slomo(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 08:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5466B77B52539A9A173BAC34BA8F917908B473AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181236   (334919) от 06.11.2017
-
-VA - Mark Knopfler & Dire Straits (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knopfler & Dire Straits -  Fade to Black  (03:47) 
-02. Mark Knopfler & Dire Straits -  Heavy Fuel  (05:07) 
-03. Mark Knopfler & Dire Straits -  Iron Hand  (03:07) 
-04. Mark Knopfler & Dire Straits -  Lady Writer  (03:43) (   Читать дальше...   )Жанр: RockПродолжительность: 04:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255BD477ACCCDDEDD4D79B6428994F137B2C3693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955599   (333711) от 11.11.2015
-
-VA - Winter Rock (2015) [MP3|192-320 кб/с]<Rock, Hard Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Idol - Rebel Yell
-02. Wax Audio - Whole Lotta Sabbath
-03. Queen - We Will Rock You
-04. Led Zeppelin - Rock And Roll(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam RockПродолжительность: 02:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787148E0449E3E55D14ADB5F773C8B84F5474A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955676   (333705) от 11.11.2015
-
-VA - Всё это Рок-&-Ролл (2009) [MP3|192 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Монгол - Summertime
-02. Бригада С - Звезда микрорайона
-03. Високосный год - Лучшая песня о любви
-04. Константин Никольский - Мой друг художник и поэт(   Читать дальше...   )Жанр: RockПродолжительность: 04:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5BC73614D21CC5FF242D140C3DF38B0B8032E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579643   (333359) от 29.09.2022
-
-Eliza Neals - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten Town
-02. Another Lifetime
-03. Hey, Take Your Pants Off
-04. Cold Cold Night(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5A9C782838859816C3D94084C0260ACA98CA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

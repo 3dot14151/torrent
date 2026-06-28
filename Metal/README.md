@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1877486   (1074472) от 
+
+Vayper - Песни на стихи Branikald (Часть 02) (2026) AI-generated content [MP3|~190 Kbps (V2)] <Pagan Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Европейская мечта (Cinematic Orchestral) [00:04:57]
+02 - Европейская мечта (Cinematic Orchestral) MiX [00:05:49]
+03 - Братья в Вальхалле (Dark Folk) [00:03:27]
+04 - Братья в Вальхалле (Dark Folk) MiX [00:03:49](   Читать дальше...   )Жанр: Pagan Folk Metal, Dark AmbientПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79800E2DEEB31B4ADCE6FCD1E73989B319CD8E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877484   (1074189) от 22.06.2026
+
+Vayper - Песни на стихи Branikald (Часть 01) (2026) AI-generated content [MP3|~190 Kbps (V2)] <Russian-Bard-Music, Pagan, Viking-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Арийский Миф (Russian Black Metal) [00:04:30]
+02 - Арийский Миф (Russian Black Metal) (MiX) [00:04:39]
+03 - Борьба Это Жизнь (Russian Bard Music, Acoustic) [00:04:32]
+04 - Борьба Это Жизнь (Russian Bard Music, Acoustic) MiX [00:05:03](   Читать дальше...   )Жанр: Russian-Bard-Music, Pagan, Viking-MetalПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC338C1C0A647F49D43A576D3605AF67E00037B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876291   (1073104) от 
 
 Atomic Terror - Acts Of Violence (2026) [MP3|320 Kbps] <Thrash Metal>
@@ -689,64 +747,6 @@ Soen - Reliance (2026) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC081E3CBA267C3A2064BBC67A7CE7008742615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847982   (1052392) от 15.01.2026
-
-Kreator - Krushers of the World (2026) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Serpents(4:40)
-02. Satanic Anarchy(3:33)
-03. Krushers Of The World(4:20)
-04. Tränenpalast(4:43)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F14D95A66389530D748DEC363BF121B0FB3EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844453   (1049945) от 26.12.2025
-
-Souls of Sorrow - King in the Past (2025) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049945.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sometimes [00:03:10]
-2. Renegades [00:04:08]
-3. King in the Past [00:04:11]
-4. End of Me [00:04:10](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E111C32E3FB1A3FF9CF860136231D3BBF8A8DB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

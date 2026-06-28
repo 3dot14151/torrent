@@ -1,3 +1,177 @@
+###  Публикация: 1535146   (244219) от 06.03.2022
+
+VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out, Chill Hop, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Deeper Love (Original MIx) (5:50)
+02. Living Room - A Cup of Jazz (Original Mix) (3:42)
+03. Digby Jones - Heatwave (3:40)
+04. James Butler - Piano Suite De Luxe (Original Mix) (2:07)(   Читать дальше...   )Жанр: Chill Out, Chill Hop, Lo FiПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C350C8E7C809134ADFF4B0B42EACC981FE38521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536406   (244155) от 12.03.2022
+
+VA - Fresh Vibes: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firas Tarhini - Apricity (Original Mix) (4:17)
+02. SoulAvenue - Swept Away (Original Mix) (4:54)
+03. Lazygrooves - Walk with Me (Original Mix) (5:19)
+04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8630166B733AA772AD8A80BD47F9EA21B3DA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536442   (244130) от 12.03.2022
+
+VA - Il Caffe Italiano Rimini (Italian Lounge Espresso Music) (2022) [AAC|~316 Kbps] <Nu Jazz, Pop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melania, Christian Lisi - Ma Che Bella Compagnia (3:02)
+02. D'Andy, Bodyles, Paola Iezzi - Balla balla ballerino (4:32)
+03. Papik, Alan Scaffardi - Canzoni Stonate (4:00)
+04. David Florio - Doce Doce (4:53)(   Читать дальше...   )Жанр: Nu Jazz, Pop, LoungeПродолжительность: 01:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F944BCE7709E8D3D4E26A35E8EF66A95C07920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537367   (243953) от 17.03.2022
+
+VA - Hangover Lounge Grooves, Vol. 6 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun - Just for Now (5:30)
+02. Simon Le Grec - I Need U (5:46)
+03. Tim Angrave - Refined Interjection (6:41)
+04. Man In A Room, CIVILIAN - Night Mail (5:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F4F55FB8954743B6FE725AFEBB877C2BFFFA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537371   (243927) от 17.03.2022
+
+Lyre le temps - Lady Swing (2010) [AAC|~278 Kbps] <Electro Swing, Hip Hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Swing (Intro) (0:18)
+02. About the Trauma Drum (4:24)
+03. Against the Grain (4:10)
+04. Go Down (4:29)(   Читать дальше...   )Жанр: Electro Swing, Hip HopПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B3937EE685542CD0D0ECF261B0109C79C3F971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537360   (243921) от 17.03.2022
+
+VA - Hangover Lounge Grooves, Vol. 4 (2013) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Le Grec, Kelly Johnson - Tell Me What Love Can Do (5:25)
+02. Lemongrass, Jane Maximova - Riddle (4:28)
+03. Cardinal Zen - Summer Solstice (4:48)
+04. Ilirjan Guri - Ancient Love (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D6E5C91606997BD1854364ADEFCC54675A6DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537376   (243915) от 17.03.2022
 
 Lyre le temps - Clock Master (2019) [AAC|~333 Kbps] <Electro Swing, Hip Hop>
@@ -571,180 +745,6 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 1 (2022) [AAC|~322 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DF67186BB93F0A34BBC7D4735610724250A694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537888   (243700) от 19.03.2022
-
-VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slippy Beats - Daydream (Extended Mix) (4:39)
-02. Tim Nice - Lonely (6:35)
-03. Hoxtones, Amfree, Jenson - Stay The Night (Extended Mix) (4:06)
-04. Housetronix - Turn It Up (6:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74689C9967B8AD93E2E6F3887483B7DF5F8504D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538122   (243692) от 19.03.2022
-
-VA - Late Night Chillout Music (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalokagathia Union - Long Bright River (6:24)
-02. Gamma Orionis - Spring Trees (5:44)
-03. The Sura Quintet - Keep On (5:51)
-04. Basics On Lounge - Hovering (6:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339EBC76C20AC0A49A1D7531B415805CF09DF83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538123   (243684) от 19.03.2022
-
-VA - Ibiza Lounge Music 2022 (2022) [AAC|~291 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The third floor - Timeline (5:50)
-02. Acceptable Drunk - Blooming Souls (5:46)
-03. Hints of soul - Sheer Elegance (5:52)
-04. Sonnenburg - Ethereal Quality (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3698BB50247EB4AD33D2629C22A4500D786098C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538119   (243662) от 19.03.2022
-
-VA - You and Me - Special Lounge (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proxy Brides - Echoes of Childhood (5:30)
-02. Roesselsprung - Walkabout (5:46)
-03. Silentloops - The Great Mystery (Guitar Mix) (6:10)
-04. Ace Of Duty - Little Moments of Love (6:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D97B095D2CC7B7183B42733CC44D6546426948A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538125   (243589) от 19.03.2022
-
-VA - Lounge & Beauty, Vol. 3 (2022) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e, Tim Gelo - Beauty & Seduction (Original Mix) (4:52)
-02. Luis Hermandez - Anything (Original Mix) (3:38)
-03. Hatar - Nelumbo Nucifera (Original Mix) (6:19)
-04. Steen Thottrup, Evamaria Linnet - Faces (Original Mix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A64E25156FC91EB4474A9CCA879D9CA544D4C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538385   (243494) от 20.03.2022
-
-VA - Chilling Collection (2022) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Keep On (5:51)
-02. Kalokagathia Union - Long Bright River (6:24)
-03. The third floor - Timeline (5:50)
-04. Sonnenburg - Ethereal Quality (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372A89E2D00B67473B99E1A641B6296BE5AEA308
 ```
 
 https://mybot314.ru/tekegram_catalog/

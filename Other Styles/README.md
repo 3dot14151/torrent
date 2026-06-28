@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1877950   (1074649) от 
+
+Kitaro - India (1983) Unofficial [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Mist - 6:08
+02 - Caravansary - 4:51
+03 - Mountain Streams - 4:45
+04 - Pray - 6:36(   Читать дальше...   )Жанр: New AgeПродолжительность: 43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC31D2081A13B012DFA58753B547CDB27BBF537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877211   (1074308) от 23.06.2026
+
+Kitaro - The Light Of The Spirit (1987) Unofficial [FLAC|Lossless|image + .cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mysterious Encounter - 6:03
+02 - Sundance - 6:19
+03 - The Field - 4:54
+04 - The Light of the Spirit - 7:32(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C476B9F556B158C70DCCAAF0327B1BF8E4B8749A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877296   (1074013) от 
+
+VA - The Orient Collective: Skybound Spirits (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortisha - Equinox (7:06)
+02. Ancient Soul - Way to Fuji (6:38)
+03. Willco - Whispering Leaves (7:20)
+04. Cox (EG) - Am I Dreaming (6:34)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CB77F24D455DA51E477C65C7182B33B670656C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876610   (1073454) от 
 
 Paul Mauriat - Best Of France (1988) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
@@ -658,93 +745,6 @@ Magic Melody Makers - Turkish Nights 2026 (Dreamland Music House) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDAEE6349B2C56FDE3E306DBDB0D9E0A305DD8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873450   (1071021) от 29.05.2026
-
-Magic Melody Makers - Italian Summer Hits 2026 (Dreamland Music House) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road to the Beach (Verso il Mare) (2:08)
-02. Golden Beach (Spiaggia Dorata) (3:02)
-03. Coffee in the Sun (Caffè al Sole) (2:49)
-04. Blue Umbrella (Ombrellone Blu) (2:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD35E7157C7941EE936EE2EF414180B2572BE20F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872546   (1070335) от 23.05.2026
-
-VA - The Orient Collective: Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antea Minerva, Marco Mateus, Tibetania - Exodus (5:12)
-02. bahri bekil, Tibetania - East & West (4:31)
-03. Tamer ElDerini, Tibetania - Lafta (5:50)
-04. Kaisser Bouzriba, Tibetania - Yallah - Yallah (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C72F09B0F83EB9389C3861619003A6915E738E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870817   (1069640) от 17.05.2026
-
-VA - Beverly Hills Cop (Music From The Motion Picture Soundtrack) (1984) [FLAC|Lossless|image + .cue] <1985>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069640.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Patti LaBelle–	New Attitude	4:37
-2	Shalamar–	Don't Get Stopped In Beverly Hills	4:17
-3	Junior –	Do You Really (Want My Love?)	3:42
-4	Rockie Robbins–	Emergency	3:29(   Читать дальше...   )Жанр: 1984Продолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF347463109CCD0684F4BDC7832A60DD627AF83
 ```
 
 https://mybot314.ru/tekegram_catalog/

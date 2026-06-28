@@ -1,3 +1,29 @@
+###  Публикация: 1849420   (1053796) от 23.01.2026
+
+Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849376   (1053793) от 23.01.2026
 
 Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
@@ -664,34 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63B1D1C1BB49980785EDCB006E3FB0C3ED3C5A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843327   (1049202) от 20.12.2025
-
-Коллектив авторов | Популярная медицинская энциклопедия (2015) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный авторский коллектив представляет Популярную медицинскую энциклопедию. В ней содержится более 1000 самых распространенных заболеваний, различного рода патологий, симптомов и синдромов.
-Эта книга поможет уточнить правильность поставленного диагноза, проанализировать причину возникновения заболевания, назначение того или иного метода лечения.
-Стильное подарочное (   Читать дальше...   )Жанр: Энциклопедии, медицинаИздательство: ЭксмоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33C64114F580149AFDCE4A974951433F5A9126C
 ```
 
 https://mybot314.ru/tekegram_catalog/

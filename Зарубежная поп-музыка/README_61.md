@@ -1,3 +1,32 @@
+###  Публикация: 959406   (317210) от 24.11.2015
+
+Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландцы Texas выпустили новый альбом «Texas 25». Стандартное издание включает в себя 12 треков, - в том числе восемь перезаписанных известных хитов (а ля «Black Eyed Boy», «Halo», «I Don't Want a Lover», «Say What You Want», «Summer Son» и «The Conversation») и четыре совершенно новых. Специально в честь юбилейного релиза, старые песни были переработаны и перезаписаны (   Читать дальше...   )01. Start A Family
+02. Black Eyed Boy
+03. Say What You Want
+04. Supafly Boy(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182224   (317066) от 10.11.2017
 
 Collage - I Grandi Successi (1997) CD [MP3|320 Kbps] <Electronic, Pop Rock, Disco, Europop>
@@ -748,35 +777,6 @@ Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EA4FC9DD410D0899DF632C9C8A44F78DA9FEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960358   (305448) от 29.11.2015
-
-Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Hyde (06:21)
-02. Video Night (04:42)
-03. Remember September (04:17)
-04. Lady Mystery (05:32)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A04B1EFEF486E89BDA95B89CA619566B412EE9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

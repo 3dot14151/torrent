@@ -1,3 +1,32 @@
+###  Публикация: 1666371   (179468) от 04.10.2023
+
+Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With A Little Help From My Friends (04:52)
+ 02. Ohio (03:40)
+ 03. Been Here Before (03:18)
+ 04. I Think That She Knows (03:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1744819EABF0D03578C123096B483FCB5F2A66D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593767   (179286) от 29.11.2022
 
 Catch 23 - Blues Hotel (2022) [mp3|320 kbps|tracks] <Blues, Classic Rock>
@@ -715,35 +744,6 @@ Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9BCEE6D37D7D83F2EF390C1408A89277C7BA049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967440   (158482) от 21.12.2015
-
-Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Letter (04:38)
-02. Goodbye Jeff (03:09)
-03. Willie and Laura Mae Jones (04:10)
-04. Put Me Down (03:13)(   Читать дальше...   )Жанр: Country BluesПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB0F5EFA37D9E66E7A49E5EC06BFB51ABFE01ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

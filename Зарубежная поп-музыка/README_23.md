@@ -1,3 +1,32 @@
+###  Публикация: 1213880   (767339) от 18.03.2018
+
+Kim Wilde - Here Comes The Aliens (2018) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1969 (4:03)
+02. Pop Don't Stop (3:51)
+03. Kandy Krush (3:16)
+04. Stereo Shot (3:39)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F2BC1F7B7605AB9221ACBEADF4AA7FC2C9BCC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279093   (766918) от 28.01.2019
 
 Emin - Good Love (2019) [MP3|320 Kbps] <Pop>
@@ -712,38 +741,6 @@ VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018015   (759271) от 18.05.2016
-
-Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский певец, гитарист и продюсер.
-Имел множество хитов в 1970-х и начале 1980-х годов.
-Наиболее известными стали эти два альбома, сделанных и спродюсированных совместно с лидером группы E.L.O. Джеффом Линном (Jeff Lynne), чей стиль
-исполнения невозможно не узнать!01. Slipping Away   (4:22)
-02. Don't You Double   (3:16)
-03. I Want You Bad   (2:36)
-04. Wait   (4:11)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Rock & RollПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

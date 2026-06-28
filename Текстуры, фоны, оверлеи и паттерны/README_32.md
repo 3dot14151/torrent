@@ -1,3 +1,56 @@
+###  Публикация: 1791889   (21261) от 16.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Luxury Emerald Green Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с изумрудно-зелёной текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976057CEFAFF74ADEF1B47A07AF3CEA882937DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791870   (21258) от 16.04.2025
+
+Фоны - themefire pro - Behance - Free Frosted Glass Backgrounds - 205428025 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные абстрактные яркие градиентные фоны с зернистостью.
+Матерал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 5300 x 3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC80B2E3268CFD4A56319A6D258CE3EA284CC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791890   (21256) от 16.04.2025
 
 Фоны - Wout Hardy - Behance - Aqua Drift - 8 Premium 3D Gradient Backgrounds - 219025167 [PNG]
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4EDA00181802796DF4C8F833E4E380C88EAC03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795773   (19123) от 06.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Watercolor Ocean Waves Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельные фоны с океаническими волнами.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9B0597BDE6CFC4B54D4E09CE90B241FF1D1863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795838   (18406) от 13.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Victorian Lace Elegance Digital Paper Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны с викторианским кружевом.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD239CA7D1D8AAE2037561181BD44BA027694ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

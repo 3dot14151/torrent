@@ -1,3 +1,119 @@
+###  Публикация: 1312212   (530711) от 05.07.2019
+
+Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys and Girls (01:49)
+02. I Like Presents Too (01:27)
+03. Starcourt (03:05)
+04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312403   (530708) от 05.07.2019
+
+Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Responsorios (6:19)
+02. Graduale (6:38)
+03. Cosmos (4:51)
+04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312201   (530694) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312207   (530614) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927215   (529929) от 12.08.2015
 
 Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
@@ -633,137 +749,6 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE09780271A085A1BB1A0596B65E1A92058642FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156770   (526403) от 09.08.2017
-
-VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Romantic Strings and Orchestra with Don Lusher, Trombone - (I Love You) For Sentimental Reasons (5:09)
-02. Richard Alden, His Piano and Orchestra - Skylark (3:16)
-03. Peter Knight and His Orchestra - Let's Fall In Love (2:48)
-04. Acker Bilk, His Clarinet and Orchestra - Stranger On The Shore (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEF36D17E61E90A596B0322167A80882761716F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369569   (526326) от 31.07.2011
-
-VA Gnawa - Mali - Ceremonies rituelles des Dogon (1994) [MP3|320 kbps]<gnawa, african music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526326.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:09] 01. Gomboy - Tambours de lutte
-[06:07] 02. Sendi ni - Chant de circoncision
-[13:29] 03. Na ba - Chants de mariage
-[10:17] 04. Badiu ni - Chants de funerailles des musiciens
-[12:46] 05. Ya go - Chants de finerailles des musiciens
-[09:22] 06. Bulu - Fete des samailles
-[10:44] 07. Pelu nu - Chants satyriques des jeunes filles1994Жанр: gnawa, african musicПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E0F2B102B52434F64A0FB901DB6E06D6488407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369564   (526324) от 31.07.2011
-
-VA Gnawa - Night Spirit Masters (1990) [MP3|128 kbps]<gnawa, african music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526324.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01.  Baba L'Rouami
-[05:14] 02.  Mimoun Mamrba
-[02:59] 03.  Tramin
-[06:28] 04.  Chabako
-[04:13] 05.  Moulay Brahim
-[04:09] 06.  Toura Toura Tour Kelilah
-[06:01] 07.  Baniya
-[04:50] 08.  Jillala
-[02:15] 09.  Said Fafy Drum Solo
-[03:14] 10.  Toura Toura Tour Kelilah(   Читать дальше...   )1990Жанр: gnawa, african musicПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2580F2E7236B990CA8B4CECD88C07338777E0724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369576   (526315) от 31.07.2011
-
-VA Gnawa - Gbaya Music - Songs For Reflection (1995) [MP3|~241kbps]<gnawa, african music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526315.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:16] 01.  Garafi
-[03:25] 02.  Naa-zambara
-[04:27] 03.  Naa-koro
-[03:51] 04.  Dai-te
-[04:02] 05.  Yaa-kuri
-[04:36] 06.  Ndio
-[11:40] 07.  Mbodomon (1)
-[01:49] 08.  Mbodomon (2)
-[03:28] 09.  Kenge
-[03:17] 10.  Gima-biro(   Читать дальше...   )1994Жанр: gnawa, african musicПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11DD4962AEBA3C9C1D7946C5824A805778870C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

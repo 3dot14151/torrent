@@ -1,3 +1,177 @@
+###  Публикация: 1498274   (234948) от 13.10.2021
+
+VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 1 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Moon Shadow (5:24)
+02. Thomas Lemmer, Lena Belgart - Is It Too Late (Stefan Groll Acoustic Guitar Mix) (2:41)
+03. Izar Malia - Electric Mesh (3:50)
+04. Smooth Deluxe, Nizam Kharda - The Beauty of Taj Mahal (2:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2805079096CA96B202621FB0D26E1FEFABAF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497263   (234940) от 13.10.2021
+
+Chillhop Guitar - Lazy Mood (2021) [AAC|~308 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Blue (6:32)
+02. Virtual Smoke (5:11)
+03. Green Clay (3:50)
+04. Waffle (4:53)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BDEFE43E138D3E21C5F0142FF81E00FB44F905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497252   (234936) от 13.10.2021
+
+Chillhop Guitar - Soothing Routine (2021) [AAC|~324 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Griot (6:15)
+02. Gift of Life (5:44)
+03. Tea & Book (6:46)
+04. Rising Sun (6:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82642497337D9D1D94F1339A7C604FFC1695E54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539760   (234932) от 27.03.2022
+
+VA - Jazz Night: Urban Chillout Music (2022) [AAC|~311 Kbps] <Lounge, Chill Out, Smooth Jazz, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Belle Vie (Original Mix) (4:28)
+02. Lounge Groove Avenue - Soul Cream (Original Mix) (3:59)
+03. Living Room - Surfing on a Karma Wave (Worldtraveller's Karma Retreat) (3:41)
+04. Digby Jones, Funkdust - Cheeba (Original Mix) (2:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth Jazz, Nu JazzПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3BE26DA5724E6E566A4505A392FD307C3DD6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497141   (234929) от 13.10.2021
+
+VA - Magic Island of Chill Out, Vol. 3 (2021) [AAC|~326 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miper - Crawling (2:55)
+02. Vechigen - What We Don't Know (7:08)
+03. Luke Kay, Aurelia Mengin - Ekeï Memona (3:39)
+04. Morpheus, Nale - Deep Blue Sea (6:47)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D453F0373859D0273F299AFB9FE7F44D9D8004B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501650   (234913) от 13.10.2021
+
+VA - Prophet Collection, Vol. 8 by Manuel Defil (2021) [AAC|~323 Kbps] <Organic House, Chill Out, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska, Manuel Defil, Cafe De Anatolia - Madhi (4:57)
+02. Project Blue Sun, Cafe De Anatolia - Secret Paradise (4:43)
+03. Wav-E, Manuel Defil, H.E.R., Cafe De Anatolia - Tender & Rough (5:12)
+04. Billy Esteban, Manuel Defil, Cafe De Anatolia - Sunset in Ibiza (5:47)(   Читать дальше...   )Жанр: Organic House, Chill Out, EthnicПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A2918EC52F6310A0CC320C8CD01B5D48E40D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499271   (234900) от 13.10.2021
 
 VA - Chillout Delis (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
@@ -571,180 +745,6 @@ VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6827BF22540BD7F4968422C33191FB104F1EE902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500357   (234756) от 13.10.2021
-
-VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Deep Sunday Bliss (4:42)
-02. Marc Hartman - Like The Sunset (5:17)
-03. Maurid - Amazonia Sunrise (5:37)
-04. Matthew Daniel, Linda Muriel - Soul Personified (4:34)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541202   (234755) от 03.04.2022
-
-Caro Emerald - The Shocking Miss Emerald (Acoustic Sessions) (2013) [AAC|~301 Kbps] <Jazz, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Belong To You (Acoustic) (2:30)
-02. Coming Back As A Man (Acoustic) (3:40)
-03. Completely (Acoustic) (2:27)
-04. Paris (Acoustic) (4:05)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBCBE5BE88CFE3EAC4506D7CAFD0C14E5FEA8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498521   (234746) от 13.10.2021
-
-VA - Fireplace Chill, Vol. 5 (2020) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jens Buchert - Dreamgirl (Original Mix) (4:01)
-02. Counterweight - Close to You (Original Mix) (4:03)
-03. Sandrah - Andas på nytt (Original Mix) (3:40)
-04. Five Seasons - Le Soleil (Original Mix) (4:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4EB42F4B86108771ACF6788A48528D797E2215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541198   (234738) от 03.04.2022
-
-Caro Emerald - Deleted Scenes From the Cutting Room Floor (The Remixes) (2012) [AAC|~322 Kbps] <Jazz, Electro, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back It Up (Kraak & Smaak Remix) (5:03)
-02. Back It Up (Herr Styler Remix) (4:29)
-03. Back It Up (Terry Toner & David Labeij Remix) (6:47)
-04. Back It Up (Hitmeister D Remix) (4:30)(   Читать дальше...   )Жанр: Jazz, Electro, SwingПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1017519AEA65D351C928CDEBFAD838222A5ABC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541197   (234714) от 03.04.2022
-
-Caro Emerald - Deleted Scenes From the Cutting Room Floor (Deluxe Edition) (2011) [AAC|~300 Kbps] <Hip Hop, Jazz, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Man (3:51)
-02. Just One Dance (4:01)
-03. Riviera Life (3:29)
-04. Back It Up (3:53)(   Читать дальше...   )Жанр: Hip Hop, Jazz, PopПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F68058881FC3BAD3398B64983A30E1E5D296D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541204   (234690) от 03.04.2022
-
-Caro Emerald - Deleted Scenes From The Cutting Room Floor (Acoustic Sessions) (2016) [AAC|~313 Kbps] <Jazz, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riviera Life (Acoustic version) (2:54)
-02. Dr. Wanna Do (Acoustic version) (3:13)
-03. A Night Like This (Acoustic version) (3:42)
-04. Just One Dance (Acoustic version) (3:40)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC575C734465473C89D35C3E136E5F256F2A6F65
 ```
 
 https://mybot314.ru/tekegram_catalog/

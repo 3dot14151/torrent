@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1877443   (1073927) от 
+
+Андрей Макаревич - 9 (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы будем петь
+2. Песенка о добре и зле
+3. Диалог на фоне бесконечной ночи (Посвящение В.П.Аксёнову)
+4. Весенняя(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F9868CCA85042D028D359D1AA6340083E76278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1877020   (1073778) от 
 
 нексюша, плм - СЕМЕЙНЫЕ ЦЕННОСТИ (2024) [FLAC|Lossless|tracks] <Alternative rock>
@@ -21,6 +50,35 @@ https://t.me/izofen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD5BF144C1EECCE94606689004914B607AC3A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876776   (1073690) от 18.06.2026
+
+Найк Борзов - Артишок. Часть 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хорошего дня [00:02:37]
+02. Галлюцинация (The Whip Remix) [00:04:09]
+03. Пророчество (Naik x Gerda Remix) [00:03:30]
+04. Слышу тьму (Sad Space Remix) [00:04:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFA52A7B85D1087B126A8C754A4A847C8045768
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,63 +745,6 @@ CD3 - «Квартирник» у Павла КраеваЖанр: RockПрод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD2648F7D4C1D8E037772CE76F310F9E2AD4B5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851736   (1055238) от 03.02.2026
-
-Би-2 - Сердцебиение (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1055238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Би-2 feat. Лу Геворкян (Louna) - Никто не спросит
-2. Чулпан Хаматова - Это не игра
-3. Би-2 - Как будто падает
-4. Би-2 feat. Данила Козловский - Он повернулся(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D8C8706E88217E0F0E076F87A49319949EA480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850613   (1054699) от 29.01.2026
-
-Мёртвая Вера - 2 Albums (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <black-metal, death-metal, doom-metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2025 - Запечатлённый дьявол
-2026 - Не ври мне, что всё будет хорошоЖанр: black-metal, death-metal, doom-metalПродолжительность: 2 CD, 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B44F2BD134987795C014798D7628EF73714D4B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

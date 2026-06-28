@@ -1,3 +1,177 @@
+###  Публикация: 1142633   (641061) от 15.06.2017
+
+VA - Ibiza Beach Chill House Club Party Del Mar (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterhour FlicFlac - Into Silence - Beach Summer Ibiza House Mix
+02. Beachsurfer Reloaded - Beachball - Extended Del Mar Version
+03. Robin Rhodes - Falling in the Ocean - No Chainsmokers Mix
+04. Dimitrova Burak - Balkan Express - Bucovina Yeter Clubmix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655A1D0BF66174CF2AD3187E62DE13F03DC1C00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142608   (641053) от 15.06.2017
+
+VA - Clubfete 2017.02 (63 Summer Club & Party Hits)  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Ok (Feat. James Blunt) 03:09
+02. Cheat Codes - No Promises (Feat. Demi Lovato) 03:43
+03. Jason Derulo - Swalla (Feat. Nicki Minaj & Ty Dolla $Ign) 03:35
+04. Ofenbach - Be Mine 02:41(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E236F09F280187E74391FDD6E3E0506B843823A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907098   (639816) от 11.06.2015
+
+VA - House of Love Vol. 1 (2015) [MP3|320 кб/с]<House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renee Alexandre - Relax (03:17)
+02. Magic Elements - Funky Doobiest (03:30)
+03. Island Beats - Intercontinental (03:37)
+04. Deep Alchemy - No Fusion (03:39)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E457D7EB34A50F51EF74B752D59A7DEF447050C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143072   (639345) от 16.06.2017
+
+VA - Ibiza Chill House Sensations (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Desaparecidos - Ibiza (Mirko Boni, Benny Camaro & Frankie Gada Remix)  5:48
+02.  C.A.P. - Dragostea Din Tei (Lounge Harlem Mix)  3:48
+03.  Giuseppe Magnatti - Around You (Original Mix)  7:03
+04.  Nogun - Cloud Child (Lanfranchi & Farina Original Mix)  5:32(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 03:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E54FFE37AEF31151063800CCC6580DBC51115BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033654   (638228) от 11.07.2016
+
+VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rayko - I Keep Forgettin (Rayko Moscow Discow Rework) (8:08)
+02. Julian Sanza - Unleashed (6:13)
+03. Glenn Dale - When the Night Goes On (6:05)
+04. James Rod & Fran Deeper - Mallorcas Island (6:42)(   Читать дальше...   )Производство: Spa In DiscoЖанр: Electronic, Disco, Nu-DiscoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540B923FF8A1805B0D1BAFCCF04290F1700D8044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228299   (637527) от 31.05.2018
+
+VA - Friends Connection 3: Odd Machinery (Mixed By Nightbob) (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Andy Line - Odd Machinery (Official Anthem)
+02.Nice Therapy - Emotional Machines (Original Mix)
+03.Matias Carafa - Molding Injections (Original Mix)
+04.Hakimono Zhoe - M quina Oscura (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA81FE310A088D5EC78D105C5025E22E3731768A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228307   (637524) от 31.05.2018
 
 Michael Rehulka - Balearic Soul (2018) [MP3|320 Kbps] <Progressive House>
@@ -589,180 +763,6 @@ VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB83800C6BC495BDECDFACF3DF31056453B681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144471   (627907) от 22.06.2017
-
-VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Philipp - Be U (Nico Ferrero Remix)
-02. Bob Zopp - Durch Die Nie (Juan Astudillo Remix)
-03. John Cosani - World For All (Original Mix)
-04. Michael A - Frankield (Original Mix)(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144424   (627747) от 22.06.2017
-
-VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Pich, Shinobi & Julius Beat - Satisfaction Love (Willem De Roo remix) (07:30)
-2. Gregory Esayan & Natalia Pevcova - So Right (dub mix) (08:00)
-3. James Woods - Here Comes The Light (original mix) (07:01)
-4. Alexey Sorokin - Behind The Moon (Mizar B 'Moon Landing' remix) (08:32)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A03515671AE6BBCBA3BAA54D780AF7762526CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035654   (626660) от 17.07.2016
-
-VA - Ibiza Anthems (2016) [MP3|320 Kbps] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Feelgood, Miss Sugaware - There Are So Many People (5:19)
-02. Aly Omar - The Legend (4:27)
-03. Bonnie Drasko - The G-Machine (Manuel Perez Deep House Remix) (5:48)
-04. Schaller - Aurora (7:18)(   Читать дальше...   )Производство: Revive MusicЖанр: House, Club HouseПродолжительность: 02:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB69FB94E9A241EBCA7F6B5F5CDF5CC4B7ADFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035490   (626659) от 17.07.2016
-
-VA - SoLee Pres: 10 Years Parquet Rec (2016) [MP3|320 Kbps] <Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee – 10 Years Parquet Recordings (continuous DJ mix)
-02. Aki Bergen & Richter – Nimitta
-03. Pedro Mercado & Karada – Our Vision
-04. Franz Alice Stern – Gravity (feat KnowKontrol)(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3189A03A8721CD830821B39D15629FA37593C777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144379   (625921) от 23.06.2017
-
-VA - Visceral 050 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. James Warren - Visceral 050 (Part 1) (01:04:36)
-2. Audio Units - Grainspace (original mix) (06:27)
-3. Jobe - Eunis (original mix) (08:11)
-4. Tone Depth - Eros (original mix) (08:39)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F54CC785263415F56C79FE1A06114F16CEAC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294909   (624111) от 10.04.2019
-
-VA - Asian House Music (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Carpet - Fire in Heart (Le Blanque Mix)
-02. Robert Panamera - Move and Dance Your Funky (Club Mix)
-03. Alpha Carpet - Electric (K Groove's Deep Mix)
-04. Amedeo Ardagna - Utopia (Deep House Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 03:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2AF25683E1D449DFE9137E0FAE22FC55A2DF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

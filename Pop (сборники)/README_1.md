@@ -1,3 +1,119 @@
+###  Публикация: 1864952   (1064867) от 13.04.2026
+
+Rudolf Kinski Project - V (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Until Dawn (3:25)
+02. Beat Drive (2:55)
+03. Captain Flash (3:21)
+04. Carry On Together (3:42)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C095321C979B1DC53C756029A325B16DF5A494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864585   (1064793) от 
+
+Rudolf Kinski Project - XIII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Fly (3:13)
+02. Black Roses (Rudolf Version) (3:00)
+03. Night Shadows (4:09)
+04. No Me Rendire Contigo (Oksana Version) (2:37)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E7199BB7F4B8F0D1B62D7AF2CB34166EC6F403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862228   (1064277) от 29.03.2026
+
+VA - Весна на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klangkarussell - Ride (3:46)
+02. Sonny Fodera & D.O.D & Poppy Baskcomb - Think About Us (2:58)
+03. Sombr - Homewrecker (3:29)
+04. Alan Walker & Isabella Melkman & Katherine O'Ryan - Broken Strings (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388E99956984E16D2D31F4F01D394BCB0C6F0C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861641   (1063955) от 31.03.2026
+
+Rudolf Kinski Project - IV (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Takes What She Wants (3:29)
+02. No Me Rendire (4:33)
+03. Cosmic Love Ignite (3:32)
+04. Feel The Pulse (2:47)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184EC1D8F516A3E740B86F7FBEB2FD747304E2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861640   (1063954) от 31.03.2026
 
 Rudolf Kinski Project - III (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
@@ -629,122 +745,6 @@ BONEY M. best (1975-1993) [MP3|320 Kbps] <pop, electronic, soul, funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBB6CE740116A6A8D662209D60E1E5442003DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852658   (1056305) от 10.02.2026
-
-ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056305.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:20] . 01-He Is Your Brother
-[2:46] . 02-She's My Kind Of Girl
-[2:47] . 03-Waterloo
-[3:16] . 04-My Mama Said(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CF57ECBD57C0ECB0E02746FE2B3A1C3D57211B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852437   (1056156) от 08.02.2026
-
-VA - Euro Hits 2022 (2022) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056156.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:36]. 001-Swedish House Mafia - Calling On
-[2:22]. 002-Gran Error & Elvana Gjata & Antonia - Clap Clap
-[2:52]. 003-Inna & Stefflon Don - Yummy
-[3:03]. 004-Doja Cat - Vegas(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BF74F959027CD95D1EC8EFA94877D5BF996CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851349   (1055458) от 03.02.2026
-
-VA - Euro Hits 2023 (2023) [MP3|320 Kbps] <pop,dance,electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055458.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:36].001- Alle Farben & Flynn - I Need To Know
-[2:53]. 002-Alex Gaudino - Don't Talk To Me
-[3:01]. 003-Robin Schulz & Fil Bo Riva - Killer Queen
-[2:54]. 004-Tiesto & Ar-Co - Back Around(   Читать дальше...   )Жанр: pop,dance,electronicПродолжительность: 07:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECECAEA9CD6A15D67F076E6154B54DFD41D29458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851548   (1055436) от 04.02.2026
-
-Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Road You Choose
-02 - Cozy and Bright Christmas
-03 - I Missed You, My Angel
-04 - Sweet Dreams and Sunrise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E01DF9D3ADEB28E6F9079FF71743FE20113640
 ```
 
 https://mybot314.ru/tekegram_catalog/

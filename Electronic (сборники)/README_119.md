@@ -1,3 +1,148 @@
+###  Публикация: 1152408   (565040) от 23.07.2017
+
+VA - Record Deep (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Croatia Squad - Make You Hustle  3:19
+02.  Alok feat. Iro - Me And You (Original Mix)  5:27
+03.  Oliver Schulz & Dmitrii G - Touch Me! (Original Mix)  4:45
+04.  Chicane feat. Moya Brennan - Saltwater (Jody Wisternoff Remix)  4:25(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 06:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00577D7203C7F3C49AF85432B6B5C1D54F2C425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304398   (564089) от 26.05.2019
+
+VA - Record Super Chart 588 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+2.Aaron Smith - Dancin (Krono Remix) (4:15)
+3.Billie Eilish - Bad Guy (3:14)
+4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1748BE3BD58ED16001F90736BC3D376C0E866CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044764   (563710) от 21.08.2016
+
+VA - Minimal Lighters (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferum - Street Racer [6:18]
+02. Karl, Lewis - Bad Boys [5:29]
+03. Potenciel - Reality Flood (Reynold Rmx) [7:07]
+04. Beats Sounds - Voiceline (Joseph Hades Remix) [7:17](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 05:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE0CABD273765A5902641541174AC7986AEE9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235078   (563472) от 09.07.2018
+
+VA - Club Dance Ambience Vol.155 (2018) [MP3|320 Kbps] <House, Progressive House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afterman - Santa Esmeralda (JL &  Afterman Mix)
+002. Agatino Romero, Conrow - I'm Feeling for You  (Calvo Remix)
+003. Alex Kenji & Federico Scavo - Gimme Five 2k18 (Original Club Mix)
+004. Alle Farben & YOUNOTUS & Kelvin Jones - Only Thing We Know  (Club Mix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15491D562A8DD61FF5054CB48AEFF3CEDD9DF64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152914   (563149) от 24.07.2017
+
+VA - Самый Реальный Бит в Твоё Авто (2017) [MP3|320 Kbps] <House, Eurodance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Avicii feat. Aloe Blacc - Wake Me Up (DJ Nejtrino  & DJ Baur Remix Short)  3:44
+02.  DJ Snake & Lil Jon - Turn Down For What (Lesware Edit)  3:28
+03.  Love Message - Love Message (Dub Remix)  6:08
+04.  Eminem feat. Dido - Stan (DJ Jan Steen Remix Radio Version)  3:39(   Читать дальше...   )Жанр: House, EurodanceПродолжительность: 07:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465737C0AECB64C2F4A7AF85966E1DA2BB22DC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152763   (563143) от 24.07.2017
 
 VA - Need For Speed Vol.8 (2017) [MP3|320 Kbps] <Hands Up, Dance>
@@ -606,151 +751,6 @@ VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B401C935AAE5B181321F56F55B555506CBE00616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045327   (559824) от 23.08.2016
-
-VA - Portrayed Trance Synth - Epic Discovery (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal Trance, Emotional, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ex-Driver Ft. Julie Harrington - Aurora (Original Mix) 06:45
-02. Adam Ellis & Katty Heath - Made It Through The Rain (Original Mix) 07:36
-03. Aly & Fila With Omar Sherif & Jonathan Carvajal - A New Age (Fsoe 400 Anthem) 07:20
-04. Ula - Meruem (Plutian Remix) 07:32(   Читать дальше...   )Жанр: Trance, Melodic, Vocal Trance, Emotional, Uplifting TranceПродолжительность: 06:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86079F80381A7B58ED33F49970441353306B7CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556441   (559721) от 09.06.2022
-
-VA - I'm Listening Now (2022) [MP3|320 Kbps] <Club, House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anturage & Alexey Union - I Can't Hide (Original Mix) (7:00)
-02. Elazion feat. George Sunday - One Step Closer (Retriv Remix) (3:35)
-03. Chris Yank - Люби меня (Winstep Remix) (3:38)
-04. MATUNO DADDY DJ - Komissar - Ты Уйдешь (Matuno Radio Remix) (3:45)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 04:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E07FD7BD1E6D6ECDCD863BE2C14379C37A9CD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045283   (559561) от 23.08.2016
-
-VA - 100% Running Beats (2016) Ruli Media [MP3|320 Kbps] <Fitness, Sports, Future House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Harrison - Moneymaker 04:38
-02. Starlounge - Head Up High (Skaei Workout Remix) 04:08
-03. Thomas Brazz & Stephan K - House Of Love 03:54
-04. Elisabeat - If You Be Mine (Extended Mix) 05:56(   Читать дальше...   )Жанр: Fitness, Sports, Future House, ClubПродолжительность: 03:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8143CBAAA52972CD1A00F973C8A9B2918ADBC834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924351   (559286) от 03.08.2015
-
-VA - Rome Lounge Sensation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gold Knight - Rumbus [07:29]
-02. Rangiroa - Daybreak in Osaka [03:51]
-03. Gold Knight - Hungry for Glory - Extended Version [05:28]
-04. Nejmaoui - Beat Envolved [03:51](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89287051494DF4CC1D5A3F0E4ABAF5A05ACD14F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924497   (559176) от 03.08.2015
-
-VA - Tomorrow Night (2015) [MP3|320 кб/с]<Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Explanatory - Penumbra
-02. Soul Emphasis - Going Deeper
-03. Mighty Real - Atonality
-04. Sigother - Double Motion(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 09:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967E19BC855B0EEDF7954F49D88E2495C91094A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 997135   (868208) от 20.03.2016
+
+Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP3|320 кб/с] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yellow Magic Orchestra (YMO) — музыкальный коллектив из Токио (Япония). Группа была образована в 1978 году, и является одним из пионеров японской электронной музыки.
+1978 - Yellow Magic Orchestra
+1979 - Solid State Survivor
+1980 - Public Pressure (Live)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 21:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F5DE7BD838C96607ED1BB6B8893C7AB4AFB861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497326   (864675) от 22.09.2021
 
 Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-pop>
@@ -717,35 +746,6 @@ Johan Tronestam - Space Collection (2017) [MP3|320 Kbps] <Berlin-School, Space M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F567C28A382A5B451EAD839B75A1D1292EED5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507879   (797971) от 07.11.2021
-
-VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - MIR (5:34)
-02. Soulstring - Gagarin (5:50)
-03. Ionov - Spacewave (3:16)
-04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153F7C9F18ED6C609F6F8F75A1191259B9E57A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

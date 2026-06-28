@@ -237,6 +237,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468653   (1016969) от 08.05.2021
+
+Обои - 8K UHD Trey Ratcliff HDR Wallpapers 7680x4320 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев на разные темы в 8к формате.Формат: JPGРазрешение файлов: 7680x4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B403C069B24B174B27C28CF323311AE5213057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353450   (1006831) от 13.07.2021
 
 Обои - Mirror Reflection Wallpapers [JPG]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5FFAA8E9FC7E81DB3E26A4846A3438CADC75045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352576   (1001027) от 14.01.2020
-
-Обои - Wallpapers Кошачьи #72 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B29AAFA8E77904428244008CAC6892BA883E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

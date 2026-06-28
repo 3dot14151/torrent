@@ -1,26 +1,22 @@
-###  Публикация: 599202   (999763) от 05.01.2013
+###  Публикация: 597954   (1000093) от 03.01.2013
 
-[Wallpapers] New 2013 Wallpaper Pack 13
+Эмулятор Nintendo GameCube и Wii "Dolphin" [Multi24/+] (L/3.5-124) 2013
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 13
-Название: New 2013 Wallpaper Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Упрощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Французский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8735F54B8A7B1568DABBAF66D64978CDB274E03
+magnet:?xt=urn:btih:FF3683D676AE318CCBCC100EFE1BD16657E62D92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,416 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599207   (999759) от 05.01.2013
+###  Публикация: 597869   (1000067) от 04.01.2013
 
-[Wallpapers] Christmas mood Pack 3 (05.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999759.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Christmas mood Pack 3 (05.01.13)
-Название: Christmas mood Pack 3 (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D706B440A8DFC6B1FBD4870D1E8E11EF9CBB9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599140   (999758) от 05.01.2013
-
-[Wallpapers] Car wallpapers (05.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999758.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Car wallpapers (05.01.13)
-Название: Car wallpapers (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BCBCCF6520977F7090FB2516E553BF64B15345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599201   (999756) от 05.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999756.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 12
-Название: New 2013 Wallpaper Pack 12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1DCE45D8ED83422B2385D16FBA76AA4860509E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599075   (999754) от 05.01.2013
-
-Sexy Girls Pack Wallpapers (05.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37B5C1A122F09CDB2F878F5EDC9B0139C5B63A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599208   (999752) от 05.01.2013
-
-[Wallpapers] Christmas mood Pack 4 (05.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999752.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Christmas mood Pack 4 (05.01.13)
-Название: Christmas mood Pack 4 (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531FB2A2FDEB7F9399556203A8C8717CC767B79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598790   (999750) от 05.01.2013
-
-Sexy Girls Pack Wallpapers (04.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47A61B451E4075CA243432A9CE3003167C13187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598785   (999746) от 05.01.2013
-
-Computer Desktop Wallpapers Collection (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6973B5EE66333B101F9138DE817C467257253117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598791   (999744) от 05.01.2013
-
-Sexy Girls Wallpapers (04.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C0A87E09BF1889BF7E9D2EF85A8ADE410DDDC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598744   (999742) от 05.01.2013
-
-HQ Wallpapers Perfect Women (03.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E51CEC85A6FF1A3F5A4561D112D9CC9C593A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599167   (999737) от 05.01.2013
-
-Sonic Lounge Club - Pearls Of Love (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+Dawn Of Relic - Lovecraftian Dark (2002) [FLAC|Lossless]<Dark / Black Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightdrive
-02. Sundown
-03. Lazy Morning
-04. Memories
-05. Brazilian Love Affair
-06. Rain Over Aden
-07. Love or Confusion
-08. Easy Chair
-09. Voyaging Stars
-10. Just Walked inЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F687DBC2166C2B8E7516E40450A091804FED2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598792   (999736) от 05.01.2013
-
-Incredible Mixed Wallpapers (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321F5AB75EAEA5FF1F539D11B2B61B3116ED3204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598788   (999734) от 05.01.2013
-
-53 HQ Wallpapers (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD9904C5F68018021E0E8DE5CEC12D8262B8830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597779   (999733) от 05.01.2013
-
-Sexy Girls Wallpapers (02.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9161338123FE3A310B58489CFA3C1FDCB7457773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598786   (999732) от 05.01.2013
-
-Best HD Wallpapers Pack (04.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E182DBADD925C88649BBF39957965478FCA3FDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598314   (999731) от 05.01.2013
-
-Sonny Rollins - Reel Life (1982) [MP3|320 кб/с]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reel Life (Rollins) 6:14
-02 - McGhee (Howard McGhee, Sonny Rollins) 4:20
-03 - Rosita's Best Friend (Rollins) 6:22
-04 - Sonny Side Up (Yoshiaki Masuo) 6:47
-05 - My Little Brown Book (Billy Strayhorn) 3:55
-06 - Best Wishes (Duke Ellington, Ted Koehler) 5:43
-07 - Solo Reprise (Sonny) 2:12Жанр: JazzПродолжительность: 00:35:23
+chapter I - Throes Matrix
+01 - Dawn over Carcosa (02:07)
+02 - Masquerade of Sickness (The Eve of Reckoning) (04:38)
+03 - Throes Matrix (03:15)
+04 - Phosphor (03:55)
+05 - Scions of the Blackened Soil (04:16)
+06 - Wrathcast (03:55)
+07 - Watchtower Son (Lemurian Guard) (04:29)Жанр: Dark / Black MetalПродолжительность: 00:58:22
 
 ## Скачать торент
 ```bash
@@ -449,114 +57,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599205   (999730) от 05.01.2013
+###  Публикация: 598462   (1000060) от 04.01.2013
 
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999730.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-Название: New 2013 Nature Wallpaper Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84B75799E81CD1BC0746B69580976AAE67B43FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599076   (999729) от 05.01.2013
-
-Sexy Girls Wallpapers (05.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8A840C500A16729D244C084DAC5CCFB09B7E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599206   (999728) от 05.01.2013
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999728.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 4
-Название: New 2013 Nature Wallpaper Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4000х2600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D2183703EE8EC4DA063AC9CE033257DAAF53FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598916   (999721) от 05.01.2013
-
-Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
+Ангельвания -  Камелот (2010) [MP3|224 кб/с]<Power Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Знаю
-02. С утра и в ночь
-03. Солнцем и луной (Тишина)
-04. Мистер (   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:52:18
+1. Боль - 02:31
+2. Ланселот и Гвиневера - 04:12
+3. Перед Круглым Столом - 06:28
+4. Со мной - 02:34
+5. Флибустьер - гроза морей - 02:43
+6. Черный замок - 03:49
+7. Шторм - 02:53Жанр: power MetalПродолжительность: 00:25:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
+magnet:?xt=urn:btih:C28733047F62542DFE71D1D015832FB1ED1B21E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +89,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597778   (999716) от 05.01.2013
+###  Публикация: 598718   (1000058) от 04.01.2013
 
-Sexy Girls Pack Wallpapers (02.01.13) [Wallpapers 16+]
+Журнал | Gladget №27 [январь 2013] [PDF] [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+Бесплатный электронный журнал о компьютерной технике, комплектующих и компьютерных играх для разных платформ: обзоры, плюсы-минусы, суммарные характеристики.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE1ACA3ECFDAB8E698634944F620C798171ADD4A
+magnet:?xt=urn:btih:26FA2FB2B0F575B29050AF73A9A6F8C1C6E66A48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,30 +115,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598730   (999704) от 05.01.2013
+###  Публикация: 598297   (1000054) от 04.01.2013
 
-Harry Belafonte - Returns to Carnegie Hall (1994) [FLAC|Lossless]<Blues, Folk, World, Reggae>
+Nocturnal Degrade - Hymn To Eternal November (2010) [FLAC|Lossless]<Depressive Black Metal / Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jump Down Spin Around  [02:14]
-02. Suzanne  [05:49]
-03. A Little Lyric of Great Importance  [01:29]
-04. Chickens  [03:09]
-05. Vaichazkem (feat. Chad Mitchell Trio)  [01:34]
-06. I Do Adore Her (feat. Chad Mitchell Trio)  [03:18]
-07. The Ballad of Sigmund Freud (feat. Chad Mitchell Trio)  [03:38]
-08. I've Been Driving on Bald Mountain (feat. Odetta)  [02:19]
-09. Water Boy (feat. Odetta)  [04:34]
-10. A Hole in the Bucket (feat. Odetta)  [05:19](   Читать дальше...   )Жанр: Blues, Folk, World, ReggaeПродолжительность: 01:11:52
+1 - Escape The Light
+2 - Hymn To Eternal November
+3 - A Winter Made Of Flesh And Nothingness
+4 - Embrace Me In Depression
+5 - Cold Passion Of Decay
+6 - L'Oceano E L'InspiegabileЖанр: Depressive Black Metal / AmbientПродолжительность: 00:34:59
 
 ## Скачать торент
 ```bash
@@ -625,25 +146,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598657   (999703) от 05.01.2013
+###  Публикация: 598224   (1000052) от 04.01.2013
 
-Все мои друзья покидают Брисбен / All My Friends Are Leaving Brisbane (2007) DVDRip
+Пауль Келли: Мои истории / Paul Kelly: Stories of Me (2012) BDRip [720p] [EN]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Антея чувствует, что жизнь зашла в тупик, и, так же как и её друзья, собирается уехать из Брисбена. Но тут вновь появляется её бывший парень…Жанр: Мелодрама, КомедияРежиссер: Луиз ОлстонАктеры: Шарлотта Грегг, Райан Джонсон, Синди Нельсон, Романи ЛиПеревод: Многоголосый закадровыйПродолжительность: 01:13:43
+История жизни Пауля Келли, известного австралийского певца, композитора, исполнителя собственных песен, автора около 20 альбомов и четырех десятков синглов. Кроме музыкальной деятельности Пол стал автором, соавтором или редактором как минимум восьми книг.Жанр: документальный, биография, музыкаРежиссер: Йен ДарлингАктеры: Пол КеллиПеревод: ОтсутствуетПродолжительность: 01:35:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62C7D26AF88125C6876504FF5D01DBA6907E8A7A
+magnet:?xt=urn:btih:7009AD1181E57DA2A4AC26A8F5B3D7DB8DE61619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,29 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599142   (999699) от 05.01.2013
+###  Публикация: 598240   (1000050) от 04.01.2013
 
-[Wallpapers] A selection of weapons (05.01.13)
+Филип Шелби | Дни барабанного боя [1997] [RTF, FB2]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] A selection of weapons (05.01.13)
-Название: A selection of weapons (05.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Жестокое убийство влиятельного сенатора и его любовницы – только звено в цепи заговоров и преступлений. И ключ к этой цепи – таинственные дискеты, способные погубить едва ли не всех политических боссов Америки. Холленд Тайло, молодая и отважная женщина – агент Секретной Службы, оказывается в одиночестве перед лицом гибели. Ей известно многое... Охота за дискетами превращается в охоту за ней. Не слишком ли много поставлено на карту? И не президент ли следующая жертва?Формат: RTF, FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A6E9E3C08DB915B9FA8E35BE238217664E2EB05
+magnet:?xt=urn:btih:B190C599945CADBB23D311C516E5F2B677E56DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,23 +198,541 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598922   (999694) от 05.01.2013
+###  Публикация: 598445   (1000043) от 04.01.2013
 
-Win7codecs 3.9.4 + x64 Components [MULTi / Русский]
+Джон Харви | Грубая обработка [1995] [RTF, FB2]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Win7codecs - пакет кодеков для установки в операционную систему Windows 7. Win7codecs представляет собой автоматизированное средство для установки основных декодеров и кодеков. Пакет не содержит дополнительных проигрывателей, не меняет системные ассоциации файлов. При установке он автоматически удалит уже имеющиеся кодеки и заменит их на собственные из комплекта для лучшей совместимости. x64 Components - дополнение к пакетам кодеков Win7codecs, используемых в 64-битных версиях операционной системы Windows 7. Он устанавливает кодеки и декодеры, необходимые для воспроизведения на 64-битных проигрывателях. Пакет x64 Components содержит настройки, используемые совместно с настройками Windows Media Center, позволяющие выбрать различные сплиттеры и декодеры для воспроизведения того или иного типа файла. Кроме того, после установки данного дополнения пользователь сможет выбирать между 64- и 32-битными версиями Windows Media Player. Также x64 Components позволяет переключать настройки выхода аудио (включая полную поддержку выхода 7.1).
+Эпидемия квартирных краж обрушилась на один из районов восточной Англии. Кражи остаются нераскрытыми, пока инспектор Резник не берет дело в свои руки…Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7686381DE75DFFB117DF94284827CA759C7A592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598645   (1000042) от 04.01.2013
+
+VA - New Years Eve Dinner Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann - Smooth Easy
+02. Jens Buchert - Love Suite
+03. Michael E - Reflections
+04. Sam Drole D Oiseau - 1978
+05. Fobee - Thaliana
+06. KCentric - Demetria Smiles
+07. Pulse Tone - Locks
+08. Kim And Buran - Walking
+09. Mode, Light - The Clouds Are Fake Like You
+10. Trog'low - When I Die(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113AECB26700536088D7EEC90938B357D36C85FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598247   (1000041) от 04.01.2013
+
+Ален Жермен | Дело Каллас [2005] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000041.jpg" />
+</div>
+
+
+###  Подробнее
+
+О соперничестве оперных примадонн ходят легенды – иногда забавные, иногда – пугающие.
 
-(   Читать дальше...   )Название программы: Win7codecsЯзык интерфейса: MULTi / Русский
+Но теперь от этого соперничества повеяло преступлением…
+
+Бутафорский кинжал заменен настоящим…
+
+Прожектор падает внезапно – и приземляется удивительно точно…
+
+У гильотины не срабатывает стопорное устройство – и ее лезвие приносит смерть…
+(   Читать дальше...   )Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5F942680C77465482070ED87605518E9F6F3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598417   (1000039) от 04.01.2013
+
+Scox - Psychedelic Philosophy (2012) [MP3|320 кб/с]<Brutal Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carriage Of Death [00:03:18]
+ 02 - Violence Will Appear [00:03:27]
+ 03 - Nothingness [00:03:14]
+ 04 - A Fall From The Sky [00:04:06]
+ 05 - The Passion Of The Mankind [00:04:04]
+ 06 - Ressurection Of Gods [00:03:20]
+ 07 - Death Sequence [00:04:02]
+ 08 - Gods Are Galloping [00:03:29]
+ 09 - Satan's Courageous Soul [00:02:47]
+ 10 - Fall [00:04:13]Жанр: Brutal DeathПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1977D2F3D26170DC1323F0CE8AB4A06A5A8CFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598288   (1000038) от 04.01.2013
+
+Markus Schulz - Global DJ Broadcast - Classics Showcase (2013) [MP3|256 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hybrid - Finished Symphony
+02. Synergy - Hello Strings
+03. Lustral - Everytime (Nalin & Kane Remix)
+04. Rio Addicts - Crossroads
+05. Funabashi - Daylight
+06. Jayn Hanna - Lost Without You (Edge Factor Journey)
+07. Probspot - Blueberry
+08. Andrew Bennett Featuring Kirsty Hawkshaw - Heaven Sent (Instrumental Mix)
+09. Kalafut & Fygle - 3579Km
+10. Perry O'Neil - Wave ForceЖанр: Trance, Progressive TranceПродолжительность: 02:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817F81B77D3D110BD9C0971930197BF41011414D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598725   (1000036) от 04.01.2013
+
+Журнал | Stuff №2 (UK) [февраль 2013] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание о компьютерах и бытовой электронике. В номере представлены "горячие" новинки, результаты тестов устройств под управлением Win 8, а также обзоры игр и игровых аксессуаров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBA19ECBC52DA5149F39501BE55DD76E639D3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597757   (1000032) от 04.01.2013
+
+VA - Hot Heels High!: Luxury Lounge for Hotels and Bars (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan KP - Everything`s Gonna Be Alright
+02. Marga Sol - Latin On the Streets of Paris
+03. Krystian Shek - Habitat
+04. Ramin - Ega Salam
+05. Eddie Silverton - Chillin in Tulum
+06. Taco-Town - (Welcome To) Taco-Town
+07. Sangar - Love Again
+08. Mazelonostra - Old New York
+09. Syusi - If I Love One Day
+10. PNFA - 111(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C51BEAAAB9BB2FB7E96C84376F60860ABF0FB53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598457   (1000028) от 04.01.2013
+
+Consciousness Removal Project - Tacit (2013) [MP3|320 кб/с]<Atmospheric Sludge Post-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossus I: Legacy (02:21)
+ 02. Mercurial (07:36)
+ 03. Colossus II: Thrashing (06:55)
+ 04. Decay Practice (04:50)
+ 05. Colossus III: Deadlock (07:36)
+ 06. Colossus IV: Null && Void (04:52)
+ 07. Lost Mnemonics (03:36)
+ 08. The Unknown Known (10:13)Жанр: Atmospheric Sludge Post-MetalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9B87D650764CC3A4D717E0047FFCA3679F0354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597649   (1000026) от 04.01.2013
+
+Ржавый алюминий / Rancid Aluminium (2000) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Унаследовав компанию своего отца, Пит Томпсон вскоре обнаруживает, что у него большие проблемы. По совету своего друга Шона, который вел дела фирмы, он обращается за помощью к русским.
+
+Но содействие его новых партнеров оказывается хитроумной ловушкой, попав в которую, большинство готово отдать все, потому что есть кое-что дороже денег — собственная жизнь!Жанр: Криминал, Детектив, Триллер, Комедия, ДрамаРежиссер: Эдвард ТомасАктеры: Джозеф Файнс, Рис Иванс, Тара Фитцджеральд, Сэди Фрост, Стивен Беркофф, Кит Аллен, Дэни Бер, Эндрю Ховард, Ник Моран, Олегар ФедороПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскиеПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B29098202A3A825CFE0EE7C5F88992775813EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598421   (1000025) от 04.01.2013
+
+The Conjuration - The Human Condition (2012) [MP3|320 кб/с]<Avant-Garde Progressive Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ____
+ 02. Gozu
+ 03. I Saw The Devil
+ 04. Begotten
+ 05. Sylvian (For The Evolution Of Human Spirituality)
+ 06. Constellations
+ 07. Afar
+ 08. Inside
+ 09. 731: Psychologic Atrocity Divinum
+ 10. The Human Condition(   Читать дальше...   )Жанр: Avant-Garde Progressive DeathПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ED3557A2D1C11CF5506CCE59E2C47ECD82CFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598243   (1000024) от 04.01.2013
+
+Филипп Джиан | Вот это поцелуй! [2007] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000024.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свои пятьдесят с лишним лег французу Филиппу Джиану приходилось неоднократно и подолгу жить в США: он оказался редким для современной французской литературы примером экспериментатора, упорно прививающего на европейскую почву опыт американской книжной индустрии, американского кинематографа, американского телевидения. Первый крупный успех ему принес роман «37,2° по утрам» 1985 года, экранизированный Жан-Жаком Бенексом с Беатрис Даль в главной роли, и вслед за тем переведенный более чем на двадцать языков. В конце прошлого года Джиан запустил серию романов из шести книг, в которых подражает американскому сериалу «Шесть футов под землей».
+
+«Вот это поцелуй!» – странная смесь из типичного американского нуара, детектива и психологического романа. Двое полицейских, Натан и Мэри-Джо, расследуют зверское убийство девушки, дочери злодея-магната. Это книга о взаимонепонимании и жестокости, о бессмысленности существующего порядка и попыток ему противостоять.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCBEC8A1E8BE0985790E72AFF2DDD16A3598FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598246   (1000021) от 04.01.2013
+
+Михаил Рогожин | Билет в никуда [1995] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коррупция в России охватывает уже не только клан высокопоставленных чиновников, но и членов их семей. Жены государственных деятелей не гнушаются дружбой с авторитетами и ворами в законе. Принимают от них деньги, подарки, участвуют в многомиллиардных финансовых аферах, не замечая, что становятся послушными исполнителями преступлений, а обратной дороги для них уже нет…Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6DC000AE076AD46EFC1BB0E558CF883A6B206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598233   (1000018) от 04.01.2013
+
+Фрэнки наводит шорох / Frankie Go Boom (2012) BDRip [720p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франк Бартлетт долгое время подвергался пыткам, издевкам, и оскорблениям от своего брата-наркомана Брюса — и, как правило, все это Брюс записывал на камеру. Теперь, когда Брюс, наконец, завязал с наркотиками и изменил свою жизнь, все должно пойти к лучшему, но…Жанр: КомедияРежиссер: Джордан РобертсАктеры: Чарли Ханнэм, Крис О’Дауд, Лиззи Каплан, Крис Нот, Рон ПерлманПеревод: ОтсутствуетПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4365A5A2AC544CD93FCB2F503C1FA0362D736B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598443   (1000011) от 04.01.2013
+
+Валерий Ярхо | Байки русского сыска [2004] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000011.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заре века газеты писали да практически о том же, что и сейчас! Но зато как! С неподражаемым шармом и вкусом. Репортажи криминальной хроники были подлинными шедеврами изящной словесности, а их авторы – настоящими мастерами пера. Это было время благородных разбойников, живших по кодексу чести, а не по понятиям, и виртуозных мастеров сыска.
+
+Окунитесь в ушедшую, увы, эпоху, ощутите её неповторимый аромат. Житейские истории, собранные журналистом Валерием Ярхо, конечно, не смогут её воскресить, но, безусловно, помогут представить.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB2F6C1CF36FE878E915A62A4F380D4CC848369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598418   (1000010) от 04.01.2013
+
+Oblivion - Called To Rise (2013) [MP3|320 кб/с]<Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblivion Part 1: The Chant of Tyrants 1:40
+ 02. Black Veils of Justice 3:11
+ 03. Between Suns of Light 2:50
+ 04. Binary Souls 3:24
+ 05. Reclamation 4:11
+ 06. Canon 1 in E Minor 2:31
+ 07. Annunaki 3:06
+ 08. Reigns in Fire 4:59
+ 09. Cancer of Wraiths 3:53
+ 10. Multiverse 4:41(   Читать дальше...   )Жанр: Technical DeathПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2EB83AFD92E7067BA18631E515994B1A3EC4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598029   (1000009) от 04.01.2013
+
+Земля снежного человека / Bigfoot County (2012) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата в компании подруги и видеокамеры отправляются в калифорнийские леса на поиски снежного человека, к месту обитания которого их обещает отвести не совсем адекватный проводник.Жанр: Ужасы, Триллер, ДетективРежиссер: Стефон СтюартАктеры: Стефон Стюарт, Шай Пилгрин, Сэм Эйерс, Дон Скрибнер, Брэд С. Клэйтон, Майкл Виллар, Джои Наполи, Джонни КолтерПеревод: ОтсутствуетПродолжительность: 01:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748518E68A48FD53A94B5294384EC58BB9B0CF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598449   (1000002) от 04.01.2013
+
+Ирина Иванова | Охотники за наследством [2010] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошь с сапфирами, старинная фотография и колода карт в шкатулке из жадеита… Вещи, безусловно, полезные, но если за них предлагают миллионное состояние, современная девушка не станет долго взвешивать «за» и «против». Особенно, когда у нее всего три недели, чтобы найти таинственную герцогиню Вандельхох и подписать бумаги о разделе наследства, в обмен на зелененькую шкатулку.
+
+Кто же мог знать, что восьмидесятитрехлетняя старушка бодро перемещается из одного уголка земного шара в другой, получая от жизни – и лучших отелей мира! – максимум удовольствия? Гаити, Маврикий, Шри-Ланка, Афины, Рим… Погоня за наследством скучной не будет!Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6306CF5D5167D305AA16B21345C1EA210CDA51D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593326   (999996) от 04.01.2013
+
+Крест – накрест / Criss Cross (1949) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год спустя после развода Стив Томпсон возвращается в Лос-Анджелес, надеясь начать с Анной все сначала. Кажется и Анна не прочь вернуться к экс-мужу, но ее нынешний дружок, гангстер Слим Данди, не собирается ее отпускать. Ради того, чтобы получить Анну, Стив готов на все, даже на то, чтобы самому стать гангстером, грабить, убивать… Как и во всех `черных` фильмах, роковая женщина крест-накрест перечеркиваетжизнь героев.Жанр: Триллер, Драма, Криминал, Фильм-нуарРежиссер: Роберт СьодмакАктеры: Берт Ланкастер, Ивонн Де Карло, Дэн Дюрьи, Стефен МакНалли, Esy Morales, Tom Pedi, Перси Хелтон, Алан Напье, Грифф Барнетт, Мэг Рэндолл ...Перевод: Одноголосый закадровыйЯзык субтитров: английский, испанский, французскийПродолжительность: 01:27:36
 
 ## Скачать торент
 ```bash
@@ -709,25 +744,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599082   (999683) от 05.01.2013
+###  Публикация: 598003   (999995) от 04.01.2013
 
-Новогодний фейерверк в Лондоне 2013 / London New Year's Fireworks 2013 (2013) [720p] HDTVRip [EN]
+Armin van Buuren - Live at Pier 36-New York City (31-12-2012) [MP3|~228 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда часы Биг Бена пробьют полночь, небо над Темзой раскрасят огни традиционного фейерверка. Самое мирное и зрелищное применение изобретения китайцев - пороховой смеси. Впечатлающмй фейерверк в Лондоне, прекрасное новогоднее чудо и подарок зрителям. Посмотреть на это чудо сьезжаються со всей Англии и не только. От года в год фейерверк все красочнее и красивее.Жанр: Видовой, Документальный, ШоуПеревод: Не требуетсяПродолжительность: 00:14:44
+01. Armin van Buuren feat. Ana Criado - I'll Listen (Original Mix)
+ 02. Abstract Vision & Elite Electronic vsю Broning - Relict (Original Mix)
+ 03. Rank 1 - Airwave (Julian's Bootleg)
+ 04. Cosmic Gate feat. Emma Hewitt - Calm Down (Omnia Remix)
+ 05. Heatbeat - Chow Mein (Original Mix)
+ 06. W&W - Moscow (Original Mix)
+ 07. Dash Berlin feat. Emma Hewitt - Waiting (W&W Remix)
+ 08. Andrew Rayel feat. Jano - How Do I Know? (Original Mix)
+ 09. Faruk Sabanci - Elveda (Original Mix)
+ 10. Gareth Emery & Ashley Walbridge - DUI (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B273A6BC847DADA177FF97110E449A686EABB025
+magnet:?xt=urn:btih:4A4B401C2B93B39774BE33BE8CD90E173237B3F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1179382   (348909) от 31.10.2017
+
+VA - Русские Диджеи & Дискотеки от Ovvod7 - 02 (2017) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D.J. Savage - Зимняя ночь 6:06
+02.  DJ Вовочка - Свадьба 4:36
+03.  DJ Грув feat. Виктор Цой - Печаль (Remix) 3:35
+04.  Global Deejays - Зеленоглазое такси 3:45(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB3F45380719471691CD845DA820C168BB98358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179377   (348907) от 31.10.2017
+
+VA - Русские Диджеи & Дискотеки от Ovvod7 - 01 (2017) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Грув - Служебный Роман 3:22
+02.  DJ Цветкoff & Балаган Лимитед - Щас Спою 3:55
+03.  Vengerov & Fedoroff - Джентльмены Удачи 3:45
+04.  DJ Белых - Такси На Дубровку (ORT Version 1998) 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5860A192F6F1DFFDF817E078340DC815623554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579956   (348743) от 23.11.2012
+
+VA - Dubstep 2012 vol.3 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roughmath - Antevorta (4:54)
+2. Vexare - Still Remaining (4:17)
+3. SKisM-Power (Eptic Remix)  (5:36)
+4. Bombs and Bottles - I will take you there - RoughMath Remix  (5:29)
+5. Xilent - Touch Sound  (3:42)
+6. Protohype, Kezwik - Vile (Original Mix) (3:15)
+7. KDrew ft. TriCosta - Young and Wreckless  (4:23)
+8. KDrew ft. Mr. Nickelz - Danger Zone  (4:21)
+9. KDrew - Circles by KDrew (4:25)
+10. SUBSCAPE - Graveyard Shift  (5:05)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C28C25A18DE7D70B4C779150740B77F7AA61E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578891   (348195) от 23.11.2012
+
+VA - DeepEmotions - Car Dubstep Vol. 6 (2011) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duck Sauce - Barbara Streisand (Sensproof Remix) [3:27]
+02. Sezer Uysal, Sarah Jane - Chasing (Urban Assault Remix) [5:20]
+03. Karl Jenkins - Palladio (Luke Da Duke Remix) [5:04]
+04. Calvin Harris - Feel So Close (Nero Remix) [4:44]
+05. Fytch & Captain Crunch feat. Carmen Forbes - Raindrops (Tomba Remix)[4:02]
+06. The Qemists & Maxsta - Renegade (The Qemists VIP) [5:01]
+07. Dubba Jonny - What Have You Got [5:37]
+08. Urban Assault - Let It Go (Drumstep Remix) [4:55]
+09. Tim Healey Freqhouse feat. Loc - E Pippa Trix - Resistance (Mark Instinct Remix) [4:34]
+10. Darren Styles - Here Tonight (Christian the Lion & Glitchdick Remix) [3:47](   Читать дальше...   )Жанр: DubstepПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8090D3F7220B7C93465D90109DBFCCA38A82A67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073155   (347946) от 15.11.2016
+
+VA - Desire To Live: Soulful Mix (2016) [MP3|192~320 Kbps] <Downtempo, Chillout, Lyric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Al L Bo - Around The World (Laszlo Nikulin Remix) 4:53
+002. Delerium - Ghost Requiem (Original Mix) 5:45
+003. Soul Bossa Trio - Butterfly (Afro Mystik Remix) 9:30
+004. Jinco - Clocktower (Feat. Mia Vaile) 3:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LyricПродолжительность: 09:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4743296A089306A6410E65957E660F54302ACB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577816   (347927) от 22.09.2022
 
 VA - HarDD NRG OverDoZZe 10 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Hardstyle, Breaks>
@@ -631,151 +788,6 @@ VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BBCE900F0281388C6918591E2C710364FEE2CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954180   (344657) от 06.11.2015
-
-VA - Extra Trance: Bonus [02] (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova - Watching The Stars (Original Mix) (07:17)
-02. Alex Di Stefano - I've Got the Power (Talla 2XLC vs Cold Blue Remix) (05:36)
-03. Angelica S - Nooit (Original Mix) (11:53)
-04. O.B.M Notion - Still Indescribable (Original Mix) (06:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7637F954B202B356D717D1904231218E9A2295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954119   (344656) от 06.11.2015
-
-VA - До утра vol.2 (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Julian Poker - Night Breeze (Original Mix)
-02-Jo Manji - Long Train (Andrey Zenkoff Remix)
-03-Scooter, KC vs Fernando Lopez - Thats The Way I Shake (DJ Nejtrino vs DJ Baur Mashup)
-04-Alvaro Soler feat. Jennifer Lopez - El Mismo Sol (Dj Konstantin Ozeroff, Dj Sky & Dj Roman Rubin Remix)(   Читать дальше...   )Жанр: Club House, Disco House, DanceПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D426B9B9267FF2ED952F7BBA22730BCFAFFE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179949   (344578) от 02.11.2017
-
-VA - Empire Records - Chill Clinic (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grow - Solido
-02. Daviddance - Panda Style Remastered (Original Mix)
-03. Los Surfistas Gigantes - Dos Huevos Extremos
-04. Warma - Bunny (Pow Wow Remix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEE21244BEFF4F4E110D97072741E46940C732D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179924   (344570) от 02.11.2017
-
-VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344570.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cafe Americaine - Across The Equator
-002. Puremusic - Unsaid (State Azure Remix)
-003. The Sura Quintet - Walking On The Sand
-004. Sine - Glittering Water(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023AA5F7CF8754E77F9559F25465324CC8E6F887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418832   (344557) от 26.10.2020
-
-VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)
-02. Bastard! - F..k That (3:38)
-03. Jason Derulo - Take You Dancing (3:10)
-04. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

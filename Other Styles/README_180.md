@@ -1,3 +1,119 @@
+###  Публикация: 1798064   (17665) от 20.05.2025
+
+Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling all units (4:20)
+ 02. JFK (1:24)
+ 03. No Survivors (3:20)
+ 04. Luqa Airport (3:30)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EB070475ED1CB8A1071A5EEC6335313898483A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798138   (17663) от 20.05.2025
+
+Wardruna - Birna (2025) [FLAC|Lossless|tracks + .cue] <Nordic Folk, Ambient, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hertan (6:12)
+02. Birna (6:25)
+03. Ljos Til Jord (5:00)
+04. Dvaledraumar (15:25)(   Читать дальше...   )Производство: By Norse Music, Sony Music, Columbia – 19802848222Жанр: Nordic Folk, Ambient, Dark FolkПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A811267D7BAF30056DD7A2C40FCDE0EBAB1A4317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798609   (17256) от 23.05.2025
+
+James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soundtrack, Contemporary, Ballad>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never an Absolution    [0:03:03.05]
+02. Distant Memories    [0:02:23.72]
+03. Southampton    [0:04:01.68]
+04. Rose    [0:02:52.25](   Читать дальше...   )Жанр: Soundtrack, Contemporary, BalladПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798807   (17251) от 23.05.2025
+
+VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Jennifer Dons - Desert Groove (Original Mix) (5:24)
+02. Don Lockwood, Tibetania - Whirligig (Original Mix) (5:22)
+03. Gabriel Slick, Tibetania - Day & Night (Original Mix) (5:54)
+04. Tibetania, Willco - Cosmic Breath (Original Mix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810815   (16840) от 07.08.2025
 
 Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, Rock>
@@ -636,64 +752,6 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819014   (1784) от 20.09.2025
-
-Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320 Kbps] <Native American, World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulse of Elsewhere [03:46]
-02. Between the Veil [03:22]
-03. Light Without Origin [03:18]
-04. Sliding Through Stillness [03:22](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819557   (1267) от 23.09.2025
-
-Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossless|tracks] <Country, Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1267.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. - Push the Swing (2:50)
- 2. - Bide My Time (2:30)
- 3. - Brand New Eyes (4:11)
- 4. - Just Like a Rose (4:24)(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21EE4241419458AF111BAD53BB55F46E131770E
 ```
 
 https://mybot314.ru/tekegram_catalog/

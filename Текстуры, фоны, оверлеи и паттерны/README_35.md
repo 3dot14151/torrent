@@ -1,3 +1,55 @@
+###  Публикация: 1804147   (13277) от 27.06.2025
+
+Текстуры - Creative Market - 28 Scanned Photocopy Xerox Texture - 280619982 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13277.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 качественно отсканированных текстур для ваших творческих задач.Формат: JPGРазрешение файлов: 4360x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CAB98E6E74646C1BCC585054830D86F2A4BF24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804155   (13268) от 27.06.2025
+
+Текстуры - Creative Market - 20 Wall Texture HQ - 92476126 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13268.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 текстур стены в высоком разрешении для ваших творческих задач.Формат: JPGРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839F94E8B9A2E072C8853868285A6255C0FE14CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804332   (13160) от 28.06.2025
 
 Фоны - Envato - 10 Orange Vibrant Wave Flow Backgrounds - TC7SFJR [JPG, PNG]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C88C6C723E8553DA4E704FEC347F638FCF9FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809505   (9840) от 30.07.2025
-
-Фоны - Envato - Vesper - Halftone Gradient Abstract Background - MKWLFAF [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя интригующую игру зернистых текстур и ярких градиентных цветов на этом динамичном абстрактном фоне.Формат: JPGРазрешение файлов: 3000 x 2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B74633AE7EE027C5799C90F61EBA1759C834B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810769   (9114) от 06.08.2025
-
-Паттерны - Envato - Painted Camo Spots - GBUG5PY [JPG, AI, SVG, EPS, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовный паттерн с нарисованными вручную пятнами.Формат: JPG, AI, SVG, EPS, PATРазрешение файлов: 7559x7559
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E4F4BA325BA1A4128D7D2BBDB2A59611B95E45
 ```
 
 https://mybot314.ru/tekegram_catalog/

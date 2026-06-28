@@ -1,55 +1,3 @@
-###  Публикация: 1816870   (3851) от 07.09.2025
-
-Смурфики / Les Schtroumpfs / The Smurfs (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1-13 из 13) VSI Moscow / ARC TV
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3851.jpg" />
-</div>
-
-
-###  Подробнее
-
-В волшебной деревне в домиках-грибочках с разноцветными шляпками по-прежнему живут и процветают смурфы: обаятельные курносые синие гномы — вечный источник радости, знания и приключений. Они будут учиться Смурф-Фу, чтобы постоять за себя и принятию, чтобы полюбить то, за что стоишь. А как еще Неуклюжему перестать быть неуклюжим, а Ворчуну улыбнуться? Только осознав, (   Читать дальше...   )Производство: Бельгия, США, Франция, Германия / Dargaud Media, Dupuis Edition & Audiovisuel, KetnetЖанр: мультфильм, короткометражка, фэнтези, комедия, приключения, семейныйРежиссер: Уилльям РеноПеревод: дублированный (VSI Moscow / ARC TV, 1+1)Язык озвучки: русский, украинский, английскийСубтитры: английскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F469A7BD9353628AA0AD338036553A3D987B295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816869   (3836) от 07.09.2025
-
-Смурфики / Les Schtroumpfs / The Smurfs (2022-2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-26 из 26) TrueDubbing Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3836.jpg" />
-</div>
-
-
-###  Подробнее
-
-В волшебной деревне в домиках-грибочках с разноцветными шляпками по-прежнему живут и процветают смурфы: обаятельные курносые синие гномы — вечный источник радости, знания и приключений. Они будут учиться Смурф-Фу, чтобы постоять за себя и принятию, чтобы полюбить то, за что стоишь. А как еще Неуклюжему перестать быть неуклюжим, а Ворчуну улыбнуться? Только осознав, (   Читать дальше...   )Производство: Бельгия, США, Франция, Германия / Dargaud Media, Dupuis Edition & Audiovisuel, KetnetЖанр: мультфильм, короткометражка, фэнтези, комедия, приключения, семейныйРежиссер: Уилльям РеноПеревод: дублированный (TrueDubbing Studio, 1+1)Язык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA11579FAD35ABAEB47EF45F092CE98D06EFC053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666389   (3286) от 12.09.2025
 
 Адский Босс / Helluva Boss (2019) WEBRip [H.264/1080p-LQ] (сезон 1-2, серий 21 из 21) Cyber Cat Studio [MVO] (+7 коротких серий)
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3286.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2611.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2183.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_443.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_404.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_386.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_350.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33.jpg" />
 </div>
 
 

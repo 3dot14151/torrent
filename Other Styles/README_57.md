@@ -1,3 +1,119 @@
+###  Публикация: 663023   (754996) от 31.05.2013
+
+Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manschoud (6:31)
+02. Timeless (3:46)
+03. Safi (5:46)
+04. People (7:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322114   (754925) от 10.07.2020
+
+Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man With The Harmonica (2:56)
+02. Chi Mai (5:06)
+03. Cockey's Song (4:05)
+04. For A Few Dollars More (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77E5E8C422EB56614DBCE94D6552E28500D52DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182244   (754923) от 10.07.2020
+
+Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
+02. Once Upon A Time In The West (2:57)
+03. Here's To You (From Sacco E Vanzetti) (3:57)
+04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216015   (754590) от 28.03.2018
+
+Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashem Vohu
+02. Aem Moi Idâ / Ye Vâxshayâns
+03. Jasa Me Avange Mazdao
+04. Humata(   Читать дальше...   )Жанр: Ethno folk, Lounge, JazzПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281043   (753251) от 07.02.2019
 
 Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
@@ -629,122 +745,6 @@ Thierry David - Hypnosis (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA65296B3F2B173BFBAFF7B00FA9A4FEE17BA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020559   (743867) от 27.05.2016
-
-Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I See It Now (3:38)
-02. Guilt Trip (3:29)
-03. If the World Had a Front Porch (3:07)
-04. Texas Tornado (3:31)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C76CFFE8BA0D1481AD7AE23CA3950D418C42EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282400   (743623) от 13.02.2019
-
-Andrew Lloyd Webber - The Very Best Of Andrew Lloyd Webber. The Broadway Collection (1996) [FLAC|Lossless|image + .cue] <Musical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murray Head - Superstar
-02. Yvonne Elliman - I Don't Know How to Love Him
-03. Sarah Brightman - Don't Cry For Me Argentina
-04. Mandy Patinkin & Patti Lupone - High Flying, Adored(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D686930CF962E1ED4302A824167F74C430551177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282443   (743615) от 13.02.2019
-
-Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay With Me
-02. Radio Player
-03. Runaway
-04. Somewhere on Fullerton(   Читать дальше...   )Жанр: Pop-Punk, Punk RockПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCC16CED43FFACD37DA0F39451D4506326882BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217433   (743359) от 04.04.2018
-
-Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ease (5:20)
-02. Atme (8:32)
-03. Thank You (6:19)
-04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

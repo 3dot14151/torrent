@@ -1,3 +1,32 @@
+###  Публикация: 981083   (952596) от 31.01.2016
+
+VA - Ultimate 90's - 4CDs of the greatest music from the 1990's (2015) [MP3|320 кб/с] <Pop, Dance, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 CD - 18 tracks - 01:11:13
+2 CD - 18 tracks - 01:10:55
+3 CD - 17 tracks - 01:04:47
+4 CD - 18 tracks - 01:08:02Жанр: Pop, Dance, RetroПродолжительность: 04:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8903C8BB6CEDCCFEC90857F1226D56282B56C171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361896   (952253) от 21.02.2020
 
 Таисия Повалий - Ейфорія (2020) [MP3|320 Kbps] <Pop>
@@ -714,35 +743,6 @@ The Spotnicks - The Premium Best Collection (2006) Compilation, 2CD [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988675   (918996) от 21.02.2016
-
-Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Rock, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918996.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) 2008 - Don't Forget - 192Кб/с - 00:38:10
-2) 2009 - Here We Go Again - 320Кб/с - 00:46:57
-3) 2011 - Unbroken - 320Кб/с - 00:52:45
-4) 2014 - Demi - 320Кб/с - 01:15:38(   Читать дальше...   )Жанр: Pop, Pop-Rock, R'n'BПродолжительность: 04:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA83BECCF195798AE7F735737CD7BFA3E91550CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

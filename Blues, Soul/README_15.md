@@ -1,3 +1,32 @@
+###  Публикация: 906477   (643586) от 09.06.2015
+
+Left Lane Cruiser - Dirty Spliff Blues (2015) [MP3|320 кб/с]<Blues Rock, Punk Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tres Borrachos
+02. Elephant Stomp
+03. Whitebread n' Beans
+04. Tangled up in Bush(   Читать дальше...   )Жанр: Blues Rock, Punk BluesПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D71883A33F1868FB0F3FB24A3B44F12AA03CD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032896   (642112) от 09.07.2016
 
 Royal Southern Brotherhood - Don't Look Back (2015) [MP3|320 Kbps] <Electric Blues>
@@ -725,35 +754,6 @@ Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C23803F8A11DB33EB45500E7FB9C6F6DA8A6C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034578   (634317) от 13.07.2016
-
-Bacon Fat - Tough Dude (1971) Reissue, SM The CD  [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait On It
-02. Down The Road
-03. Betty
-04. Leaving On Your Mind(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCF7960C27F333F5D975806DCB25A12F22699DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

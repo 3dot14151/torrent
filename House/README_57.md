@@ -1,3 +1,177 @@
+###  Публикация: 1179431   (349211) от 31.10.2017
+
+VA - Coffee House: Armada Music (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies - Here With You (Stereoclip Remix)
+02. Tiggi Hawke - Dangerous Behaviour (Original Mix)
+03. Pablo Nouvelle - I Want For Nothing (Feat. Favela)
+04. Thomas Gold - Dreamer (Feat. Mimoza)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD565C07D5CC45FD639B2F787D10C8097AA70DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179174   (349058) от 31.10.2017
+
+VA - Euphoria Classics - Ministry Of Sound (2017) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Faithless - God Is A DJ 3:28
+02.  Martin Garrix - Animals (UK Radio Edit) 2:45
+03.  Avicii - Levels 3:21
+04.  Swedish House Mafia - Don't You Worry Child (Radio Edit) 3:32(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 06:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582D89E0448555FEC64C7608EA36194065F89E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073119   (347954) от 15.11.2016
+
+VA - 25 Vocal House Multibundle (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Aslow - So Easy (Original Mix) 7:14
+02. Will Varley - I Believe (Original Mix) 7:34
+03. Valentino Reas - This Is The Night (Dabool Remix) 5:39
+04. Urig & Dice - Manchester (Original Mix) 7:39(   Читать дальше...   )Жанр: HouseПродолжительность: 02:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017FB3438326089DF452A5F91225D2525562E107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073350   (347948) от 15.11.2016
+
+VA - Beach Bar Lounge: Chill out and Deep House Selection (2016) [MP3|320 Kbps] <Deep House, Chill House, Chillout>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monika Kruse - Snowfall - Remastered
+02. Florzinho - Staring at the Stars
+03. Deep Mood - 4 Am
+04. Boy Funktastic - You(   Читать дальше...   )Жанр: Deep House, Chill House, ChilloutПродолжительность: 01:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522AF3680361C3611D8732792B49FEC3E6044DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179787   (347112) от 01.11.2017
+
+VA - Coastal Sunrise 001 (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Carniel - Aura
+02. Billy Horn - Berkanan
+03. Guilty Spark - Dagna
+04. Dunkan - Deeper(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2EB0C3530458435B6B511B2EDE72605619E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179686   (347103) от 01.11.2017
+
+VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dunsterz - Cometa (Original Mix)
+02. 4ngus - Circles (Original Mix)
+03. #MONKEYStuff - Be Someone (Original Mix) (feat. Dmitry F)
+04. Chris Energize - Modern Times (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB61C936CA47628CAA718D72BA6872FC7F4B644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257166   (347035) от 25.10.2018
 
 VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
@@ -574,180 +748,6 @@ VA - Progressive Winter (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:831DA28B454D60AB65481C26AFFC5708E5AD283A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074310   (339030) от 19.11.2016
-
-VA - Black Hole House Music 11-16 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nerq - Let Me Be (feat. Sha) 3:13
-02. NotAndrew & Alain Ducroix - John Lover (DeepRock Mix) 5:30
-03. Sylvia Tosun - Underlying Feeling (Octave Up Remix) 3:32
-04. Harper & Green - Home 7:54(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57CE76D38AA177A2ED1687F142491CB349004C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180747   (338018) от 05.11.2017
-
-VA - Progressive Fun 2017 [MP3|320 Kbps] <Progressive, House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yan Oxygen - I've Been Around 06:37
-02. Nubah - All For You 06:42
-03. Jonqpublik - The Path 06:42
-04. D-Quattro - Brain Stroke 06:42(   Читать дальше...   )Жанр: Progressive, House, ClubПродолжительность: 03:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B73A5A2FF071C85DA3205584CE2985433B01F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181024   (338014) от 05.11.2017
-
-VA - Ultimate Legends - Progynessive (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tolis Q - Never on Time 07:30
-02. Phase Modulation - Dont You Want My Groove 07:34
-03. Filth - Life Time (Derrsousa Remix) 07:14
-04. The Soul Elephant - Kashmir (Max Mason Remix) 07:18(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A86639191033E8EC44ADD41A15A1822349E5461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258496   (336538) от 30.10.2018
-
-VA - Ibiza Dance House (2018) [MP3|320 Kbps] <House,Dance,Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Toni Pinetti - Get Down (Edit)
-002. Garagestylerz - My Touch (Radio Mix)
-003. Eddy Chrome - This Is House (Deep House Mix)
-004. Milkbar Rockers - My Universe(   Читать дальше...   )Жанр: House,Dance,Big RoomПродолжительность: 06:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF04A5875C2ADE4327088837D5083008B0BBE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075046   (336360) от 20.11.2016
-
-VA - Deep November: 25 Groovy Deep-House Beats (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sunshine Preachers - Syncretic Generals - St. Tropez Spring Mix
-02. William Lauridsen - Luring In Pleasure
-03. Yard Damn - Overnight
-04. Blackened Storm - Eternal Moment(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF25CE796305AC6CA411101507C6CFF4534ECD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074734   (336356) от 20.11.2016
-
-VA - Gleaming Rhythms: Glamorous Vibes Only (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piece Grade - Jazzy Company - Supa Trumpet Mix
-02. Edo Romani - Syntomatique - Flying Mix
-03. Norma Reagan - Livin' on a Stick - Natural Soul Mix
-04. Piece Grade - Kiss on the Moon - Babylon Man Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D951BC9CE38852BFB6715D34F17BDDA81700BD3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

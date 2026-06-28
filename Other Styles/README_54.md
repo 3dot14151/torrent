@@ -1,3 +1,119 @@
+###  Публикация: 1124926   (773395) от 13.04.2017
+
+Kenio Fuke - Relaxing Melodies of Nature (2011) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Kiara (4:41)
+ 02. Summer's Love (4:59)
+ 03. Espheras (4:29)
+ 04. Infinite Love (4:50)(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C338FA7B906E7A434A63C15EF93B529C084779E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124843   (773390) от 13.04.2017
+
+Ewan Dobson - 12 String Guitar (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic guitar, Fingerstyle, Folk>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Potion (3:08)
+02. Disk Read Error (4:21)
+03. Dancing With Her (3:17)
+04. Doctor Pepper Jam (3:50)(   Читать дальше...   )Жанр: Acoustic guitar, Fingerstyle, FolkПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8F764B1727710D99652C8EF3D7C33D6C7E0F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213024   (773224) от 15.03.2018
+
+Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mantra (5:25)
+2. Beautiful Solitute (3:24)
+3. Tokyo Morning (5:19)
+4. Flight Over India (4:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213013   (773092) от 15.03.2018
+
+Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soon Its Gonna Rain (from The Fantasticks)
+02. Dream, Dream, Dream
+03. Moonlight in Vermont
+04. Moon River (From Breakfast at Tiffanys)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213214   (773084) от 15.03.2018
 
 Paul Mauriat - Piano Ballade & Remember (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -629,122 +745,6 @@ Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7CB0DDFDA3391577FF3D201D9EC3BF6D40C800F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278546   (768468) от 26.01.2019
-
-The Shadows - The Best Of The Shadows (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock, Rock-n-Roll>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowmix
-02. I Just Called To Say I Love You
-03. Apache
-04. Riders In The Sky(   Читать дальше...   )Жанр: Pop Rock, Rock-n-RollПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE60287C4E440B65FFFB29D26E80B1F9DE75BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278809   (768467) от 26.01.2019
-
-Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Hour Story (12:16)
-02. Imbalance (04:14)
-03. Conditional Futures (04:02)
-04. Floating City (03:38)(   Читать дальше...   )Жанр: Contemporary Classical, Instrumental, CelloПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278437   (768403) от 26.01.2019
-
-Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical Crossover>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Promenade (5:51)
-02. To the Unknown Man (5:14)
-03. Irina Valentinova – Mythodea - Movement 9 (3:48)
-04. Moonlight Reflections (3:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277967   (768349) от 26.01.2019
-
-Христина Соловій - Любий друг (2018) [MP3|320 Kbps] <Pop-Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любий друг
-2. Хвиля
-3. Океан
-4. Шкідлива звичка(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
 ```
 
 https://mybot314.ru/tekegram_catalog/

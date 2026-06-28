@@ -1,3 +1,301 @@
+###  Публикация: 1850264   (1054145) от 27.01.2026
+
+Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054145.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850265   (1054144) от 27.01.2026
+
+Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850268   (1054143) от 27.01.2026
+
+Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054143.jpg" />
+</div>
+
+
+###  Подробнее
+
+The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
+
+In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849396   (1054080) от 04.02.2026
+
+Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
+
+Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
+Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850018   (1054044) от 25.01.2026
+
+Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Now in its ninth edition, A History of Modern Germany provides the most up-to-date and comprehensive survey of this complex country’s history, beginning in 1871 and ending in the present day.
+
+Orlow tells the story of Germany’s troubled past―Prusso-German authoritarianism, the Nazi dictatorship, and the Holocaust―whilst also uncovering the long-standing (   Читать дальше...   )Жанр: История, ГерманияЯзык: АнглийскийИздательство: RoutledgeФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915B1B880AADB96E80BA6EFACB33DA4E4123AA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850025   (1054041) от 25.01.2026
+
+Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabrication (Reference Series in Biomedical Engineering) (2018) [PDF, EPUB] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054041.jpg" />
+</div>
+
+
+###  Подробнее
+
+This volume provides an in-depth introduction to 3D printing and biofabrication and covers the recent advances in additive manufacturing for tissue engineering. The book is divided into two parts, the first part on 3D printing discusses conventional approaches in additive manufacturing aimed at fabrication of structures, which are seeded with cells in a subsequent (   Читать дальше...   )Жанр: Биоинженерия, 3D-печать и биопроизводствоЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B43C263470586FC0EA98EAAD782C6AE4E9101F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850073   (1053999) от 26.01.2026
+
+А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849984   (1053936) от 26.01.2026
+
+Ю.А. Жук | Патроны. Иллюстрированная энциклопедия (2023) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта богато иллюстрированная энциклопедия, написанная известным оружиеведом, экспертом-криминалистом Ю.А. Жуком, - первое в России фундаментальное издание о боеприпасах к ручному огнестрельному оружию, рассчитанное не только на военнослужащих, сотрудников правоохранительных органов, военных историков, коллекционеров, но и на обычных читателей, интересующихся развитием (   Читать дальше...   )Жанр: энциклопедияИздательство: Яуза-прессФормат: DJVU, PDFКачество: Обработанный скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFF11DF93C60A2EA9C3D052C6621F0DD094B531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849441   (1053833) от 23.01.2026
+
+Н.В. Чубарь | Пропаганда здорового образа жизни (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие подготовлено в соответствии с требованиями профессиональных стандартов для специалистов со средним медицинским образованием.
+
+Целью данного пособия является повышение уровня знаний слушателей по вопросам пропаганды здорового образа жизни.
+(   Читать дальше...   )Жанр: Учебно-методические пособияИздательство: МиниТайпФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B1566F55E84EE6AF6A931818E9667FEF8DE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849438   (1053832) от 23.01.2026
+
+Анна Большакова, Анна Чичина | Секреты здоровья кожи. Советы профессионала о том, как предотвратить обострения хронических заболеваний и построить уход, который избавит кожу от воспалений (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кожа часто зудит и появляются покраснения? Не можете избавиться от сыпи и угрей даже с помощью дорогих кремов? Сколько раз вы покупали крем «наугад», надеясь, что он подойдёт именно вам? Шелушения не исчезают, несмотря на тщательный уход?
+
+Ваша кожа не «капризная» и не «привередливая», на самом деле ей просто необходим грамотный подход. В этой книге практикующий (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76045B9AD91B32687F7378F50B23B4A05837CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849418   (1053831) от 23.01.2026
+
+Игорь Семенов | О этих паразитах надо знать! (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущие паразитологи мира утверждают, что каждый человек в течении жизни может быть заражен паразитами! Это ценное пособие станет надежным помощником каждому, кто хочет защитить себя и свою семью от неприятных последствий контакта с паразитами. В произведении описаны самые эффективные природные растения, которые выводят паразитов! Эта книга необходима каждому современному (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA560A6E2FEBA1B4E85C55DC5641CF226448CEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849425   (1053799) от 23.01.2026
 
 Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
@@ -391,298 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:224A2892EDBB48AE9BFBD3CDA8936736760BAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848484   (1053589) от 24.01.2026
-
-Коллектив авторов | Материалы по русской трёхлинейной винтовке [76] (1922-1990) [DJVU, PDF, DOC, FB2, JPG]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю уважаемому сообществу свою коллекцию книг - Памяток, Инструкций, НСД и прочих материалов, посвященных русской трехлинейной винтовке, разработанной нашим великим соотечественником, капитаном Сергеем Ивановичем Мосиным.
-
-В раздачу включены многие печатные материалы, посвященные русской трехлинейке образца 1891 г., 1891/30 г., карабинам образца 1938 г. и 1944 (   Читать дальше...   )Жанр: Исторический, научно-популярныйИздательство: РазличныеФормат: DJVU, PDF, DOC, FB2, JPGКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B87AEB9E044DBB2F1BAA04261E8521EB7A65C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849303   (1053551) от 22.01.2026
-
-Дж. Ортега | Введение в параллельные и векторные методы решения линейных систем (1991) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского математика, знакомого советским читателям по его совместной с В. Рейнболдтом книге "Итерационные методы решения нелинейных систем уравнений со многими неизвестными" (М.: Мир, 1975) и по совместной с У. Пулом книге "Введение в численные методы решения дифференциальных уравнений" (М.: Наука, 1986). Его новая книга (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F168EA3EABF5CB72D4BB65FD0CE033AC48F179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849298   (1053550) от 22.01.2026
-
-К.С. Кунц | Численный анализ (1964) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описаны методы нахождения корней алгебраических уравнений n-й степени, численные методы решения обыкновенных дифференциальных уравнений, систем линейных и нелинейных алгебраических уравнений, дифференциальных уравнений в частных производных и интегральных уравнений, рассматриваются вопросы теории интерполяции, численного дифференцирования и интегрирования. (   Читать дальше...   )Жанр: МатематикаИздательство: ТехнікаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640A13E44926A97199CB12FA22C3F8BB93E9499F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849300   (1053549) от 22.01.2026
-
-Дж. Ортега, У. Пул | Введение в численные методы решения дифференциальных уравнений (1986) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга в достаточно интересной и доступной форме описывает теорию и практику применения численных методов для решения дифференциальных уравнений.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499916079555271619D7C6D8258712DE12704A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849302   (1053548) от 22.01.2026
-
-Дж. Ортега, В. Рейнбалдт | Итерационные методы решения нелинейных систем уравнений со многими неизвестными (1975) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена численным методам решения нелинейных систем уравнений. Основное внимание уделено рассмотрению итерационных методом минимизации. Дан обзор неконструктивных теорем существования. Подробно исследуются итерационные методы типа Ньютона, обобщенные линейные методы, релаксационные методы. Значительная часть книги посвящена вопросам сходимости итерационных (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BC6D0A8A9CB774FF3258A79361BFD3A4B0ABE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849248   (1053543) от 22.01.2026
-
-Donald Rizzo, Elisa Ratliff | Fundamentals of Anatomy and Physiology. 5th Edition (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rizzo/Ratliff's highly popular FUNDAMENTALS OF ANATOMY AND PHYSIOLOGY, 5th Edition, is written specifically for learners in a one-semester introductory anatomy and physiology course. Illustrations and practical applications cater to learners with varying levels of anatomy and physiology knowledge. Renowned for its clear approach to teaching, the text presents anatomy (   Читать дальше...   )Жанр: Анатомия, ФизиологияИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE11D47129594E6C37A9B5EE83A544E48E8288AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849246   (1053542) от 22.01.2026
-
-Stephanie Ryan, Michelle McNicholas, Stephen J. Eustace | Anatomy for Diagnostic Imaging. 4th Edition (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anatomy for Diagnostic Imaging, Fourth Edition covers everything trainee radiologists need to know about anatomy shown in the full range of medical imaging, including CT, MR and ultrasound.
-
-It provides an initial traditional anatomical description of each organ or system, followed by the radiological anatomy of that part of the body with labelled imaging examples (   Читать дальше...   )Жанр: АнатомияЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62FE877B594A63C69244A19C337D2B6F601142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849395   (1053516) от 22.01.2026
-
-Karen Bescherer Metheny, Mary C. Beaudry | Archaeology of Food. An Encyclopedia (Two volumes in one) (2015) [EPUB] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053516.jpg" />
-</div>
-
-
-###  Подробнее
-
-What are the origins of agriculture? In what ways have technological advances related to food affected human development? How have food and foodways been used to create identity, communicate meaning, and organize society? In this highly readable, illustrated volume, archaeologists and other scholars from across the globe explore these questions and more.
-
-The Archaeology (   Читать дальше...   )Жанр: Энциклопедии, История, АрхеологияЯзык: АнглийскийИздательство: Rowman & Littlefield PublishersФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476E1C5EA1EAEF5A369B6F41E6A8D9FE924AF0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849369   (1053512) от 22.01.2026
-
-Paul Malmassari | Armoured Trains. An Illustrated Encyclopedia 1825-2016 (2016) [EPUB] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Completely revised and expanded since its French publication, Armoured Trains: An Illustrated Encyclopedia 1825-2016 is the first English-language edition of the authoritative work on the subject. Military forces around the world were quick to see the advantages of railways in warfare, whether for the rapid deployment of men or the movement of heavy equipment like (   Читать дальше...   )Жанр: Энциклопедии, ВоенноеЯзык: АнглийскийИздательство: Naval Institute PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B97D81F48B7D348189DE053164E0CC64DD2ADA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849088   (1053455) от 21.01.2026
-
-William R. Leben, Brett Kessler, Keith Denning | English Vocabulary Elements. A Course in the Structure of English Words. 3rd Edition (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053455.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Vocabulary Elements draws on the tools of modern linguistics to help students acquire an effective understanding of learned, specialized, and scientific vocabulary. This fully refined and updated edition helps develop familiarity with over 500 Latin and Greek word elements in English and shows how these roots are the building blocks within thousands of different (   Читать дальше...   )Жанр: Английский языкИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B1957122149C4214F1D777F0C02BC0EAF685B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849087   (1053454) от 21.01.2026
-
-Talia Swinton | English Vocabulary Mega Quiz Book. 5001 Solved Examples on Words, Meanings, and Spellings for Test Prep (2021) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053454.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Vocabulary is Social CapitalIf you want to improve or build up your word power and vocabulary in the English language, you have come to the right place. Whether you want to level up your communication skills for business purposes, for a new job, to help you pick up a new course at school or at university faster, for recreational and entertainment purposes (   Читать дальше...   )Жанр: Английский языкЯзык: АнглийскийИздательство: Independently PublishedФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555321E43C885010CB8370D77D39A63CE09B4A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

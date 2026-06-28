@@ -1,3 +1,175 @@
+###  Публикация: 1152529   (565799) от 23.07.2017
+
+VA - Intricate Records Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Monique - Bombay (Sebastian Weikum Remix) 06.00
+02. Proluction - Modern Machine (Original Mix) 05.32
+03. PROFF - What You Got (Original Mix) 05.46
+04. MalYar - Doors (Original Mix) 05.11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891705CC86F86780122780C2E795176AEFA8F18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152471   (565796) от 23.07.2017
+
+Vasily Dvortsov - On the Way to the Cosmos (2016) Single [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Way to the Cosmos (04:29)
+ 02. On the Way in the Cosmos (05:11)Жанр: HouseПродолжительность: 00:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEA8E73F90B173F4D1CE324C8A5B8F26DB520DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044370   (565660) от 20.08.2016
+
+VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Caseli, David Jimenez & Errol Reid  -  Stay Together (Dave Rose Remix)  5:47
+02. Teo Mandrelli  -  Everyday Battle (Club Mix)  5:27
+03. Steve Edwards, RONN, Ron Carroll, Michael Murica & Damon Grey  -  When Love Gets in the Way (Argento Remix)  4:37
+04. Nick Hook  -  House People Pump It Up (Original Mix)  7:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555922   (565310) от 06.06.2022
+
+VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Shine A Light 2:59
+02. Micha Moor - Obsession 2:35
+03. Calmani & Grey, Alexandra Prince - Superstar 2:59
+04. The Disco Boys - Around The World (Dazz Remix) 2:39(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304255   (564092) от 26.05.2019
+
+VA - 25 Compost Records (2019) [MP3|320 Kbps] <Nu Disco, Deep House, Electronica, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beanfield – Human Patterns (Roman Flugel Remix)
+02. Ron Deacon – Bring It On
+03. A Forest Mighty Black – Fresh In My Mind (I:Cube Remix)
+04. Marsmobil – It Doesn't Matter How You Are (Ripperton Remix Instrumental)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Electronica, DowntempoПродолжительность: 04:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA83FA5088B873BD781D9923971D748045AC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923252   (562626) от 01.08.2015
+
+VA - Toolroom Ibiza 2015 (2015) [MP3|320 кб/с]<Tech House/Deep House/Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Like I Can (Jonas Rathsman Remix)
+02. Jon Hopkins - Open Eye Signal (George Fitzgerald Remix)
+03. Booka Shade, Karin Park - Line Of Fire Feat. Karin Park (Tube & Berger Remix)
+04. Claptone - The Music Got Me (Original Mix)(   Читать дальше...   )Жанр: Tech House/Deep House/TechnoПродолжительность: 11:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A0A7DE5361768080B4856C268DABEB5CD995C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304742   (562082) от 27.05.2019
 
 VA - Kings Of IBIZA (The Classic Anthems Edition) (2019) [MP3|320 Kbps] <House, Electro House, BigRoom>
@@ -571,180 +743,6 @@ VA - Nothing But... Progressive House Vol.04 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:729C3FAE3918750D9E49928DFB9ACA085BBC509E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530948   (558946) от 04.08.2012
-
-VA - Plastic City Radio Show (Seasons Five Hosted By Lukas Greenberg) (2012) [MP3|320 кб/с]<Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Lee Brown Junior – Escape Wheel (7:33)
-02. Zoe Xenia – Something In The Air (6:32)
-03. Evren Furtuna – Some Things Are Left To Say (6:49)
-04. Forteba – Statik Movement (7:37)(   Читать дальше...   )Жанр: Tech House, Deep HouseФормат: CD, Compilation, Mixed, UnmixedПродолжительность: 03:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DBEE79E261342C50CC57CC9439AAC36B7B9A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305182   (558277) от 29.05.2019
-
-VA - Modern Nu Disco (2019) [MP3|256 Kbps] <House, IndieDance, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Johanson - Walking On The Clouds (Original Mix) 4:20
-02. Andy DelaCruz - Feeling Tonight (Original Mix) 4:02
-03. Patrick Richmond - Deceiver (Original Mix) 4:16
-04. Danny Vegas - I'm Ok (Original Mix) 6:05(   Читать дальше...   )Жанр: House, IndieDance, Deep HouseПродолжительность: 01:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEF1396E809BE41C11CE96AB7E8EC355559F249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153803   (557088) от 28.07.2017
-
-VA - Deep Passion Ibiza 2k17 (2017) [MP3|320 Kbps] <Electronic, Deep House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Perez, Vicente Ferrer – Dame Suave
-02. Axel Fowley – Wanna to Fly
-03. Carlo Lucca, Felipe Querol, Phil Daras – No Tengo Na – Vicente Ferrer & Victor Perez Remix
-04. DJ Wady – Bardi(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F4F0C7EEE94FF499C3B224FC65BD30271DDAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153964   (557084) от 28.07.2017
-
-VA - Music From Paradise (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Shop Boys - Nibelungen News (Diving Mix)
-02. Chillo - Treatment of Tales
-03. Reflex Artists - Silky Tears (Reflex Mix)
-04. Andrew Bright - Mamba (Chillout Version)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8433D8E8FAEF93EF7B08630DEDA648C9A153D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153740   (557082) от 28.07.2017
-
-VA - Ibiza Summer Party 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filatov - Back In The Love (Swanky Tunes remix)
-02. Seal De Green - Those Days (original mix)
-03. Hlasznyik & Danev - Let's Go To The Party Beach (original mix)
-04. Royal Gigolos - California Dreamin' (Tek-House extended)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF37E665F5DAE6CDA60A8E5BD98878FBBE9467D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045879   (556981) от 25.08.2016
-
-VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Morais - Deep Chill | Autumn Skies (Non Stop Mix)
-02. Alex Morais - Love & Music (Original Mix)
-03. Adam Byrd - Light Makes Me Calmer (Original Mix)
-04. MotiBo - Satin Sunrise (MotiBo Remix)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903B86D82213FDD613136C3B41DEBE83E547B91F
 ```
 
 https://mybot314.ru/tekegram_catalog/

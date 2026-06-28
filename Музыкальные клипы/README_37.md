@@ -1,3 +1,110 @@
+###  Публикация: 455296   (94209) от 23.02.2012
+
+Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483263   (88840) от 16.04.2012
+
+Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов от Mtv1. Chris Brown - Turn Up The Music (4:17)
+2. David Guetta - Turn Me On ft. Nicki Minaj (3:30)
+3. Demi Lovato - Skyscraper (4:05)
+4. Drake - The Motto (Edited) ft. Lil Wayne, Tyga (4:01)(   Читать дальше...   )Жанр: Dance,Pop,RnB,HipHop,OtherРежиссер: MtvАктеры: Chris Brown, David Guetta, Evanescence, Flo Rida, Rihanna, Katy Perry ...Перевод: ОтсутствуетПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480393   (87461) от 09.04.2012
+
+Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 0:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479549   (86964) от 07.04.2012
+
+Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69E401FA02594BB1F3A6F6C16BEAB2B430A38D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479494   (86899) от 07.04.2012
 
 Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
@@ -570,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465255   (81068) от 09.03.2012
-
-Видеоклипы Digital Musical Ray 2011. Пиратская Вечеринка 7,95 Gb BDRip Quality 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов:Жанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 48 мин 08 сек (02:48:08)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463902   (80619) от 07.03.2012
-
-Дискотека Авария ft. Джиган, Вика Крутая - Карнавал (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA74B6C4B957C5920C7F6523E928D45A560A370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460656   (79575) от 02.03.2012
-
-Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79575.jpg" />
-</div>
-
-
-###  Подробнее
-
-200 музыкальных видеоклипов.Большинство видео материала записано с известных музыкальных каналов высокой чёткости.Жанр: Club, Dance, Electronic, Pop, TranceПеревод: Не требуетсяФормат: MP4Продолжительность: 200 х ~00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A467C2474C03F09B6DC52E026E33E6FBEDADACD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458841   (78735) от 27.02.2012
-
-Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный клип на композицию Emma Hewitt - Colours (Armin van Buuren Remix)Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

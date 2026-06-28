@@ -1,3 +1,29 @@
+###  Публикация: 561395   (406418) от 16.10.2012
+
+Computer Desktop Wallpapers Collection (16.10.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678A3EB47FFB46B9C8F8CE918B3C24436BC5D459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561577   (406163) от 17.10.2012
 
 [Wallpapers] HDR Wallpapers
@@ -687,32 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8D5CC7D70F4209385755843BE7E50DDE35817A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565444   (401284) от 25.10.2012
-
-Desktop Wallpapers (24.10.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B24DDB24775DB2720289D3BC8B9E6BADDFF3B08
 ```
 
 https://mybot314.ru/tekegram_catalog/

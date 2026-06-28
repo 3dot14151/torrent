@@ -1,3 +1,264 @@
+###  Публикация: 1274753   (791047) от 10.01.2019
+
+Bryan Ferry - As Time Goes By (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791047.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 As Time Goes By
+A2 The Way You Look Tonight
+A3 Easy Living
+A4 I'm In The Mood For Love(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201570   (790889) от 27.01.2018
+
+Владимир Высоцкий - Vladimir Vissotski (1985) [LPCM 2.0|96/24|Audio-DVD] <Авторская песня>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Он не вернулся из боя (3:19)
+02. Черные бушлаты (3:33)
+03. Как призывный набат (2:46)
+04. Недолюбил (4:49)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87AE37165705FCBC621E7F4800A68ED7D79A4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201963   (789501) от 30.01.2018
+
+George Gershwin – with Todd Duncan and Anne Brown - Porgy And Bess (1939) 4×Shellac [FLAC|Lossless]<Jazz, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789501.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Alexander Smallens And Anne Brown - Overture And Summertime
+B Anne Brown With Eva Jessye Choir - My Man's Gone Now
+C Todd Duncan With Eva Jessye Choir - I Got Plenty O' Nuttin'
+D Todd Duncan With Eva Jessye Choir - Buzzard Song(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B9E82E3C995C53FED2F8AC41156887BB76CE81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202804   (789500) от 30.01.2018
+
+Сергей Курёхин - Популярные Зооэлементы (1998) [FLAC|Lossless|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist Hide Credits
+A	Популярные Зооэлементы
+B1	Духовные Минералы
+Piano – Сергей Курёхин(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F53772CD7D0F267625D8E80793695C7D38AC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511675   (788740) от 21.11.2021
+
+Pink Floyd – A Momentary Lapse Of Reason (Remixed & Updated) (1987) remix 2021 remaster [DTS 5.1 CD-Audio|44.1/16|image+.cue|Blu-ray Audio] <Art Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788740.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 октября Sony Music выпустили обновлённую версию альбома PINK FLOYD 1987 года, получившую название "A Momentary Lapse Of Reason - Remixed & Updated". Делюкс-издание вышло на CD и Blu-ray; доступны варианты звука 2.0 и 5.1. Многоканальный микс с блюра и послужил, собственно, основой для моего очередного трансфера))01.Signs of Life [4:23]
+02. Learning to Fly [4:53]
+03. The Dogs of War [6:04]
+04. One Slip [5:11](   Читать дальше...   )Жанр: RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687A96128D1076FF77D4C9EBCBC768A2F2FD9C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276232   (788574) от 15.01.2019
+
+Лариса Долина - Погода В Доме (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788574.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Погода В Доме
+A2 Хочу Быть Любимой
+A3 Просто Танго
+A4 Увижу, Узнаю(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB094A46908BD52C495E2A06464C3BF808767D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276336   (788507) от 15.01.2019
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.2 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788507.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Move To Memphis (4:17)
+A2. I've Been Losing You (4:27)
+A3. The Living Daylights (4:16)
+A4. Crying In The Rain (4:22)(   Читать дальше...   )Производство: Not On Label - RGM 7030Жанр: New WaveПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EC4B13142CA1BF1868B2AFD46426DCC9B8AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202075   (788096) от 02.02.2018
+
+Дуговка - 10 - Фестиваль бардовской песни (1999) [FLAC|Lossless|tracks] <Ballad, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Е. Гангаев, О. Селицкая, С. Каплан - Приветствие слету
+02. КСП города Хайфа - Пиратская лирическая
+(Б. Окуджава)
+03.Н. Якимов - Возок(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A26CF19BBEDECF335AAAE346FE0B578BE3BA8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202935   (788095) от 02.02.2018
+
+Александр Слободяник - Фредерик Франсуа Шопен (1977) [WavPack|Lossless|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788095.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	До Мажор. Соч.10. Allegro
+A2	Ля Минор. Соч.10. Allegro
+A3	Ми Мажор. Соч.10. Lento Ma Non Troppo
+A4	До Диез Минор. Соч.10. Presto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23FD37C08CEF21647A635AA3CA2B25FCC79F30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203567   (787557) от 03.02.2018
 
 Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
@@ -484,266 +745,6 @@ A4 A Woman Who Sings · Женщина Которая Поeт(   Читать д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659107   (775423) от 22.05.2013
-
-Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Darkwave / Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Sun (7:33)
-02. Anabasis (6:43)
-03. Rakim (6:15)
-05. Lamma Bada (4:19)
-06. Agape (6:18)
-07. Amnesia (6:16)
-08. Sanvean (5:25)
-09. Nierika (4:35)
-10. Opium (5:36)
-11. The Host Of Seraphim (6:13)(   Читать дальше...   )Жанр: Rock, Darkwave, ambient.Продолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BB7570030DC04447DF5925D8A4125BDE24ADE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196134   (774876) от 13.03.2018
-
-Сергей Минаев - ЛомБаба (Нон-Стоп) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|МС-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЛомБаба (03:31)
-02. 22 притопа (03:32)
-03. Ты крутила мной (Ломбада) (03:37)
-04. Анжелика (04:01)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CD66E8A5ED1CFFE72699A595E97ABF2795062F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015595   (774042) от 11.05.2016
-
-Мирей Матье (Mireille Mathieu) – Французская коллекция (1986) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Браво, ты выиграл (Bravo Tu As Gagne)  4:40
-2. Влюбленная женщина (Une Femme Amoureuse - Woman In Love)  4:10
-3. У голубой реки (A Blue Bayou)  3:58(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949781   (773924) от 11.05.2016
-
-The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Two Of Us  3:36
-2. Dig A Pony  3:54
-3. Across The Universe  3:48(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269706   (772790) от 21.06.2020
-
-Кино - Атаман (2018) [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772790.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман (версия 2012 г.)
-[3:04] 02. КИНО - Атаман (версия 1990 г.)
-[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CDЖанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616265   (772491) от 21.06.2020
-
-Кино (Виктор Цой) - Неизвестные Песни Виктора Цоя (1992) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660735   (771959) от 25.05.2013
-
-Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661199   (770500) от 26.05.2013
-
-Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оцифровка японских винилов Великого Квартета.
-Автор оцифровки - неизвестен (источник bazar)
-Аппарат - неизвестен
-Код класса состояния винила - неизвестен(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 133323   (769010) от 27.06.2020
-
-Nirvana - Nevermind (1991) (Upmix) [DTS] <Grunge>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Teen Spirit  (5:01)
-02. In Bloom  (4:15)
-03. Come As You Are  (3:39)
-04. Breed  (3:04)(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60201231EA8A30CB4FAD83A9A57208DDB26F67D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,165 @@
+###  Публикация: 1268283   (227476) от 10.12.2018
+
+Маугли / Mowgli (2018) WEBRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227476.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о взрослении ребёнка по имени Маугли в волчьей стае в джунглях Индии. Он учится суровым законам джунглей под опекой медведя Балу и пантеры Багиры и принимает обитателей диких джунглей за своих. Всех, кроме одного: страшного тигра Шерхана. Но вскоре мальчику предстоит узнать, что в джунглях его могут поджидать куда большие опасности, чем тигр, и одна из них (   Читать дальше...   )Производство: СШАЖанр: Драма, приключенияРежиссер: Энди СеркисАктеры: Роэн Чанд, Кристиан Бэйл, Кейт Бланшетт, Бенедикт Камбербэтч, Наоми Харрис, Энди Серкис, Питер Муллан, Джек Рейнор, Эдди Марсан, Том ХолландерПеревод: Дублированный (Пифагор)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  АнглийскиеПродолжительность: 01:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509B4740CF1637509B43AA28CBCBE2BFD3DB3DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424496   (227462) от 17.11.2020
+
+Wham! - Japanese Singles Collection -Greatest Hits- (2020) [AAC|~322 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham Rap! (Enjoy What You Do) (3:32)
+02. Young Guns (Go For It!) (3:40)
+03. Club Tropicana (4:30)
+04. Bad Boys (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E68E1E1730F9AD833E730D2B504D1C9973760C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965163   (227083) от 13.12.2015
+
+Далласский клуб покупателей / Dallas Buyers Club (2013) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная история Рона Вудруфа, техасского электрика, у которого в 1985 году обнаружили СПИД. Врачи отвели ему всего 30 дней, но он не пожелал смириться со смертным приговором и сумел продлить свою жизнь, принимая нетрадиционные лекарства, а затем наладил подпольный бизнес по продаже их другим больным.Производство: СШАЖанр: Драма, биографияРежиссер: Жан-Марк ВаллеАктеры: Мэттью МакКонахи, Джаред Лето, Дженнифер Гарнер, Дэнис О’Хэр, Стив Зан, Майкл О’Нил, Даллас Робертс, Гриффин Данн, Кевин О. Ранкин, Донна ДюПлантьеПеревод: Дублированный (R5)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D26B553781690EC5F7FA5D01192FB776E998C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851613   (226786) от 19.12.2014
+
+Я – начало / I Origins (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молекулярный биолог и его напарница по лаборатории делают потрясающее открытие, способное коренным образом изменить современное общество.Жанр: Фантастика, драмаРежиссер: Майк КэхиллПродюсер: Майк Кэхилл, Хантер Грэй, Алекс ОрловскийАктеры: Майкл Питт, Стивен Ян, Астрид Берже-Фрисби, Брит Марлинг, Дориен Маклоги, Чарльз В. Грэй, Джон Шиумо, Фараша Бэйлок, Ако, Кристофер СантамарияПеревод: Профессиональный (многоголосый закадровый) (iTunes Russia)Язык субтитров: Русский, АнглийскийПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C047F2E5492C6D492375E06F83A4A331B4350E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268453   (226378) от 11.12.2018
+
+Между рядами / In den Gangen (2018) BDRip [1080p] ATV [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристиан — новичок в дружной семье работников гипермаркета. В мире бесконечных стеллажей Кристиан встречает Марион из отдела сладостей. Между ними пробегает искра, а кофейный автомат превращается в место для робких встреч. Однако Марион замужем, а Кристиан слишком застенчив, чтобы сделать первый шаг.Производство: Германия / Sommerhaus Filmproduktionen, Departures Film, ArteЖанр: ДрамаРежиссер: Томас ШтуберАктеры: Сандра Хюллер, Франц Роговский, Петер Курт, Хеннинг Пекер, Рамона Кюнце-Либнов, Матиас Бреннер, Герди Цинт, Клеменс Мейер, Андреас Леупольд, Майкл СпехтПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (Full)Продолжительность: 02:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110D72E067F490659B5EF9A700F950739E6760A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424932   (226260) от 18.11.2020
+
+VA - Parvati Records 20th Anniversary (2020) [AAC|~328 Kbps] <Psy-Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farebi Jalebi - Shadow Market (7:50)
+02. Jahbo - Voltage (8:26)
+03. Alchemized - Lunar Sector (7:50)
+04. Kerlivin - Bobi (7:34)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DF2452E4AB43C8CAB00CBC175BA51EDCE33259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424791   (226243) от 18.11.2020
 
 VA - Urban City Vibes, vol. 6 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~321 Kbps] <Chillout, Lounge, Trip-hop>
@@ -565,180 +727,6 @@ VA - Morttagua - 5 Years, Vol. 2 (2021) [AAC|~314 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B912B8D8460D867DC9C453AE76635BBFAB909548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513202   (225965) от 28.11.2021
-
-VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive House, Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Demure - Bellabony (6:44)
-02. Julian Nates - Origami (7:21)
-03. Agustin Pietrocola - Dementor (7:30)
-04. Mooh - Connected (7:03)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDF39B130C84DBB0787581DC31443A09F649345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513209   (225957) от 28.11.2021
-
-VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Síntese - Meridians (5:35)
-02. Eliphas - Eliphas (7:51)
-03. Morego - Swoon (5:05)
-04. Blue Bliss - Fairlight (4:40)(   Читать дальше...   )Жанр: PsyChill, PsybientПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD75DEE950A75DB736D333E44A080CE0E1819E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513270   (225950) от 28.11.2021
-
-VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Add-us - Hissing (7:50)
-02. Airbas - Winking Stars (7:44)
-03. Coherence (ES) - Venus (7:47)
-04. Farbenklang - Ametrix (8:42)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA13DD27BB692132E179B41995512FD8569A4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513292   (225944) от 28.11.2021
-
-VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kokko Vit - Auxesia (4:24)
-02. Martin Biller - Callisto Calling (6:10)
-03. Mind & Mind - Intro Hz (5:04)
-04. PARTY IN THE DARK - September (5:42)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 05:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58241409D409F9FE711915CBBC0B02B8AB93394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424772   (225913) от 18.11.2020
-
-Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) [AAC|~336 Kbps] <Pop, Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmanuelle (2:47)
-02. Alia Souza (2:20)
-03. Rock The Boat (2:27)
-04. Goodbye My Love, Goodbye (3:16)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70C09C1ACC80690EE879E4FDE94D4F436B84A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513206   (225912) от 28.11.2021
-
-VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TerraTech, Digital Abstract, Yebah - Lehaim (10:03)
-02. Parus - June (8:34)
-03. Chronophonia, 4Elements - The Fifth Element (6:27)
-04. Greenix - Async Feelings (5:46)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1350B841322150D506490E3F83D57040F1A82D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

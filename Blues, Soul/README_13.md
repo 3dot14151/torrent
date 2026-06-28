@@ -1,3 +1,32 @@
+###  Публикация: 1290851   (674327) от 22.03.2019
+
+Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674327.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Under The Rug (feat. Eric Gales)
+2. Mercy Of Love (feat. Josh Smith)
+3. Your Kind Of Love
+4. Don't Come Crying (feat. Ian Hoey)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529B8692BF93BB688F66F7F0862D685F4992177C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223503   (673417) от 05.05.2018
 
 Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
@@ -719,35 +748,6 @@ Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD27301AB0BC96E455E9D0364A0ED1A34AEEA782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904721   (653543) от 04.06.2015
-
-Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shinin' Moon (3:00)
-02. Fine Little Mama (2:50)
-03. Big Legs, Tight Skirt (3:36)
-04. Don't Be So Mean (2:35)(   Читать дальше...   )Жанр: Acoustic Delta BluesПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CB189F137087276A4B5192E83B307CDAD304C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

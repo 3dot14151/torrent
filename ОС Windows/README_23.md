@@ -1,3 +1,111 @@
+###  Публикация: 1578392   (344933) от 23.09.2022
+
+Windows 10 (v21h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_21h2_
+updated_sep_2022_x64_dvd_6a39c6aa.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B44F5433630643CB656413E60CBB9BB0D79BACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577975   (342417) от 24.09.2022
+
+Microsoft Windows 11 [10.0.22621.382], Version 22H2 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43E154C7197060DEB8841624877D95DF046989D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580723   (341906) от 25.11.2012
+
+Recovery USB HDD (FLASH) ISO for HP Pavilion dv6-6b63er / Windows 7 Home Basic 64-bit [Русский]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341906.jpg" />
+</div>
+
+
+###  Подробнее
+
+ISO-образ диска восстановления системы для записи на загрузочные USB HDD, FLASH объемом не менее 16GB (возможно BD)
+Для восстановления необходимо при помощи любого набора инструментов (например из данной раздачи MultiBoot USB - Мультизагрузочная флешка v11.12.10 Final (Полная версия)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180429   (339284) от 04.11.2017
+
+Раздел восстановления (RECOVERY) ноутбука Lenovo B560 W7HB x16-96092 (x64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копия скрытого раздела восстановления (RECOVERY), созданная в программе Acronis True Image 2010 в посекторном режиме копирования, с помощью которого можно восстановить систему в заводском состоянииЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287E7CE882F3A6C1671618E931B2B3ABFFE8CDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180808   (336879) от 05.11.2017
 
 Recovery DVD for Lenovo IdeaPad S10-3S / Windows 7 Starter (х32) [Ru]
@@ -573,114 +681,6 @@ Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Ориг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8644C3A423773C5EE8FFF6B2B632C3EE85B12744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960952   (296457) от 03.12.2015
-
-Recovery USB-flash for Acer Aspire V3-551G / Windows 8 (х64) [Русский]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, записанной на ноутбуке Acer ASPIRE V3-551G-10466G75Makk с помощью программы Acer Recovery Management. Образ флешки создан программой Acronis True Image Echo Server 9.5.8018.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47D1615C83E2504EA2E4A0899C01DA3BED5FD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262259   (294449) от 15.11.2018
-
-Microsoft Windows 10.0.17763.107 Enterprise LTSC Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft VLSC [En/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
-
-Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C159CBB3E35B741A180C0A286991DE9E0B47C4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262367   (292530) от 16.11.2018
-
-Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные Business образы от Microsoft VLSC [En/Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
-
-Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECB35A0B87CDE89F0575930CE38DF7B8638D335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262135   (285421) от 20.11.2018
-
-Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 October 2018 Update от 13 ноября 2018 года.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E4A1323B0230A27D090202D254907753B297DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

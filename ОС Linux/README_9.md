@@ -1,3 +1,57 @@
+###  Публикация: 908314   (633336) от 14.06.2015
+
+Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен очередной релиз французского дистрибутива на основе текущей версии Debian 8 "Jessie" с DE Xfce 4.12. Отметим, что ранее дистрибутив базировался на текущих версиях Xubuntu.
+
+Рабочее окружение включает в себя по умолчанию Conky, Smtube, Kodi/XBMC Media Center, VLC, GIMP, Clementine, CoverGloobus, RadioTray, Slingscold, Skippy-xd, Kazam, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143575   (633012) от 19.06.2017
+
+Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633012.jpg" />
+</div>
+
+
+###  Подробнее
+
+После более двух лет разработки состоялся релиз Debian GNU/Linux 9.0 (Stretch), доступный для десяти официально поддерживаемых архитектур, среди которых: Intel IA-32/x86 (i686), Intel EM64T / x86-64 (amd64), ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (ppc64el) и IBM System z (s390x). Релиз посвящён Яну Мердоку, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7951E4973E67CDD36C441EC2A3F29772F484D47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702611   (632302) от 03.07.2014
 
 Zentyal Server 3.5 Community Edition [x86, x86-64] (2xCD)
@@ -629,62 +683,6 @@ Sabayon 15.07 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F45F21A8280145FEC5D8D51A46E63333E670294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914529   (595663) от 03.07.2015
-
-AntiX 15 (Легкий дистрибутив для устаревшего железа) [i386, x86-64] 6xCD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел релиз AntiX 15. Live CD AntiX 15, основан на Debian Testing, и доступен в виде трех версии full, bas, core (с ядрами, оптимизированными как для i386 так и для x86-64 архитектур). В качестве рабочего окружения по умолчанию предлагается IceWM(по умолчанию), а также Fluxbox, JWM (все или с или без Rox/SpaceFM desktop).
-
-antiX - это быстрый, облегченный и легко (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814EE36AD0B6EC8313E4679CCF25C5A7F1AD29EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916199   (591375) от 07.07.2015
-
-JonDo 0.9.83 [анонимный доступ в сети] [x86] DVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.83.  Устранены выявленные баги, обновлена пакетная база.
-
-Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4A853E1F73D29AC593885593762B93DC41628E
 ```
 
 https://mybot314.ru/tekegram_catalog/

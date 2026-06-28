@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1878055   (1074433) от 
+
+А.А. Спектор | Насекомые. Популярный иллюстрированный гид (2026) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насекомые окружают нас повсюду, даже в городе мы можем наблюдать порхающих бабочек, слышать стрекот кузнечиков и порой отмахиваться от назойливых жуков и мушек. Но знаете ли вы, какие тайны скрывают эти удивительные создания? Как хрупкая стрекоза-красотка способна превратиться в грозного воздушного охотника, а жук-геркулес ухитряется поднять вес, в сотни раз превышающий (   Читать дальше...   )Жанр: Насекомые, Энтомология, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB072228CC60D37AF063A5EB46DA93F6F09A4CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869621   (1068445) от 08.05.2026
 
 Коллектив авторов | Большая энциклопедия (1900—1909) (Энциклопедия Южакова) [23] (1900-1909) [PDF]
@@ -659,32 +685,6 @@ Today, Indian writing in English is a fi eld of study that cannot be overlooked.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586A088F63D1EFC186DC1DEE9312B1F9726BDABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849420   (1053796) от 23.01.2026
-
-Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
 ```
 
 https://mybot314.ru/tekegram_catalog/

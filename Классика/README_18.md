@@ -1,3 +1,32 @@
+###  Публикация: 1204032   (785233) от 04.02.2018
+
+The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics (1998) [FLAC|Lossless|image + .cue] <Instrumental, Classical, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785233.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Habanera From 'Carmen' (Bizet) (2:30)
+02. O My Beloved Daddy (O Mio Babbino Caro) From Gianni Schicchi (Puccini) (2:41)
+03. 'Tis the Last Rose of Summer (Flotow) (3:47)
+04. Adagio From Spartacus (Khachaturian) (3:33)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCFBE216704AE39F73CE577040DC07ECE4AC175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204760   (784286) от 07.02.2018
 
 Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
@@ -711,32 +740,6 @@ VA - 100 лучших произведений классики (2010) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A5F1DD236FF1EB238996959704F273DD201FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661127   (770639) от 26.05.2013
-
-V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED77444AE1E7EC888D19467D36A689E605BB3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

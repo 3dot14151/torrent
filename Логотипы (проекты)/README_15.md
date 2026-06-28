@@ -1,3 +1,81 @@
+###  Публикация: 1014889   (776033) от 08.05.2016
+
+Проекты - VideoHive - High Speed Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа и слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FB8BF887F0925FE5AF814220E687255EF08C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014562   (776024) от 08.05.2016
+
+Проекты - VideoHive - Clean Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F00AE174492A0834A4B740D83D59A5B88C993E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014760   (775989) от 08.05.2016
+
+Проекты - Cool Video Intro - Space Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный проект для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA201BA565C7D117E324AC1247A8AC2661980A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014766   (775981) от 08.05.2016
 
 Проекты - VideoHive - Architect Logo Reveal v2 [AEP]
@@ -590,85 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F906956E1CDD7D795FEA85D25E812F81973B2D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017197   (762406) от 16.05.2016
-
-Проекты - VideoHive - Quick Particles Logo Reveal Pack 9in1 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762406.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 уникальная версия Quick Particles Logo Reveal включает в себя: изогнутую линию, американские горки, резкий поворот, вихревой и молниеносный, стружечный и закручивающийся показ логотипа, от края до края.
-Все основные параметры настройки, такие как цвета, частицы гравитации, глянцевые, фоновые частицы легко доступны в пределах одного слоя. Хорошо подойдет для вашего (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D6018E0816AC0077448532E8F36459D0E5B1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017514   (760772) от 17.05.2016
-
-Проекты - VideoHive - Glowing Dots Logo - 13625463 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C70BA7F9D1787CB13C2BE95EF652133E059FFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215385   (759458) от 25.03.2018
-
-Проекты - Gold Epic Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стильный и эффектный проект для демонстрации Вашего логотипа или бренда. Шаблон имеет 5 цветовых пресетов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A18A7CC87C3E774AE4A0F1A48EA783CA11F9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

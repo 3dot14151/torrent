@@ -1,3 +1,55 @@
+###  Публикация: 604525   (996114) от 18.01.2013
+
+Работы художников - Artworks by Hector Sevilla Lujan
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Artworks by Hector Sevilla Lujan
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809E77CDA0819A4ACD7C2E10C42FB5BD1E0B70A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602694   (996102) от 18.01.2013
+
+[Wallpapers] Внедорожники 4x4
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внедорожники, кроссоверы, паркетники
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AA807F098E35CD57D4049848A30ED4C59B7139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602914   (996100) от 18.01.2013
 
 Best HD Wallpapers Pack (2/2013) [Wallpapers]
@@ -637,60 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6220D680C875D783422C49DBF576BB45C1D80CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606635   (994672) от 22.01.2013
-
-Иконки - Романтические иконки/Love icons pack
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наборы иконок в романтическом стиле.
-Все файлы проверены, иконки хорошего качества, мусора нет.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541EEEB97B3166BE91F15683E4649E4FF94A27FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607318   (994650) от 22.01.2013
-
-Работы художников - Digital Art by John Aslarona (.jpg)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994650.jpg" />
-</div>
-
-
-###  Подробнее
-
-John Aslarona — профессиональный художник из Нью-Йорка.
-Автор сборки:  lelik56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD54CA5EE7DB259612627E0F9452694DAD59E040
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,91 @@
+###  Публикация: 292382   (907002) от 07.02.2011
+
+Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cornelius + Cretu - совместная работа Peter Cornelius и Michael Cretu.
+Michael Cretu в представлениях не нуждается, а Peter Cornelius - австрийский музыкант, певец и композитор, участвовавший в создании второго и третьего альбомов Enigma.01. Nur Die Hoffnung Nicht
+02. Nichts Ist Vollkommen, Nicht Mal Das Gluck
+03. Rettungsringe Sterben Aus
+04. Alcatraz(   Читать дальше...   )Жанр: Downtempo, EnigmaticПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368449   (905644) от 22.03.2020
+
+Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beyond Infinity (10:06)
+02.Green Planet (10:04)
+03.Milky Way (10:11)
+04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 44058   (904665) от 22.03.2020
+
+Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethnicolor (11:38)
+02. Diva (7:31)
+03. Zoolookologie (Remix) (3:43)
+04. Woolloomooloo (3:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991722   (904238) от 29.02.2016
 
 Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Music, Mantras, Healing>
@@ -655,91 +743,6 @@ Prem Rana Autari - Himal (Himalayan Meditative Music) (2000) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F706956393DBF179BC9B6B0EF512D5633BDD321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373149   (882074) от 05.04.2020
-
-Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tracks + .cue] <New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of Joy
-02. Magellan's Beat
-03. Sailing Away
-04. Your Lingering Touch(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90315AF8F667E03B797E8D8CC6D21162B51A299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362948   (879840) от 06.04.2020
-
-Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden Beauty (34:07)
-02. Kiss Good Night (35:20)Жанр: Ambient, Relax, HealingПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B47954BBE1A0FED73FAB5C4D9DD68B3B964E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176490   (879722) от 06.04.2020
-
-Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless]<NewAge & Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Октава / Octave (05:21)
-Карнавал / Carnival (03:57)
-Легенда / Legend (06:39)
-Арена / Arena (04:11)(   Читать дальше...   )Производство: РоссияЖанр: NewAge & MeditativeПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D563EAE72E75702DDCDE25F575FA2285FAD5FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

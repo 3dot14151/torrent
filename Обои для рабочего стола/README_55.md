@@ -1,3 +1,29 @@
+###  Публикация: 1246237   (465585) от 09.09.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (171) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F786E0C59ECD9FF97F5A10BFAA8611A012E08322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246258   (465580) от 09.09.2018
 
 Обои - Очаровательная осень. Часть 10 [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE8B976C3BB57EBB680619042B4CAF2C4FD7EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322322   (450393) от 28.08.2019
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 398 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450393.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB00EF3DB2B011B3EEFE122DCCDBA1EE93047F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

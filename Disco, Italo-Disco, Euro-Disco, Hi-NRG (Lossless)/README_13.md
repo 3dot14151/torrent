@@ -1,3 +1,136 @@
+###  Публикация: 809496   (587448) от 01.08.2014
+
+T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Edition [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Cover Lover (Extended Version) 6:13
+02. Count On Me (Extended Version) 6:31
+03. How Old Are You (Mixed By Luis Rodriguez) 6:36
+04. Move It 4:34
+05. Carry Me (Maxi Version) 5:05
+06. H.A.P.P.Y. Radio (Extended Version) 6:20
+07. Count On Me (Instrumental Dub Version) 5:09
+08. Under Cover Lover (Instrumental) 5:35
+09. Count On Me (Single Version) 3:57
+10. Under Cover Lover (Radio Version) 3:41(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE9F36E642B4B4E6A6143092726DB75EE039295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040302   (587412) от 04.08.2016
+
+Chic - Dance, Dance, Dance: The Best Of Chic (1991) [FLAC|Lossless|image + .cue] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587412.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dance, Dance, Dance (Yowsah, Yowsah, Yowsah) (8:22)
+2. Everybody Dance (12" remix) (8:27)
+3. Strike Up the Band (4:33)
+4. Chic Cheer (4:42)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5921679C946E9ECBD8023355F318D73D1CAAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809566   (586472) от 02.08.2014
+
+VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BA06A0C10FA15DED02AC845393F9672FB6A95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809556   (586424) от 02.08.2014
+
+Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do The Rap 3:35
+02. Cartooney Tunes (Incl.Happy Birthday) 4:24
+03. La Bamba 4:14
+04. I'm Rock And Rollrpecker 2:28
+05. Communication Outer Space 3:09
+06. Woodpeckers From Space 5:57
+07. Give Me That Banana 4:07
+08. Do You Like Surfing ? 3:21
+09. Sky Rider 3:13
+(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810233   (584486) от 04.08.2014
 
 Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
@@ -723,145 +856,6 @@ Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812380   (574840) от 12.08.2014
-
-Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're The Greatest Lover 2:53
-02. Casanova 3:51
-03. U.O.Me 2:56
-04. My Number One 3:14
-05. Shoes Off (Boots On) 3:08
-06. Don Juanita De Carnaval 3:12
-07. Trojan Horse 3:24
-08. Louis Je T'Adore 3:42
-09. Don't Let Me Down 2:36
-10. Eeny Meeny Miny Moe 2:53(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030DACAB1310465A1FDE149D667AC46A0059139C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812374   (574834) от 12.08.2014
-
-Luv' - Gold (1993) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're The Greatest Lover 2:52
-02. U.O.Me 2:58
-03. Trojan Horse 3:25
-04. My Man 3:05
-05. Eeny Meeny Miny Moe 3:00
-06. Ooh, Yes I Do 2:59
-07. I Like Sugar Candy Kisses 3:37
-08. Dream, Dream 3:30
-09. One More Little Kissie 3:47
-10. Life Is On My Side 2:38(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2696D53E4D00840FFAADED150C5CE77B1C87F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812178   (574692) от 12.08.2014
-
-C.C. Catch - Welcome To The Heartbreak Hotel (1986) Germany, 1st Press [FLAC|Lossless]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel 3:40
-02. Picture Blue Eyes 3:35
-03. Tears Won't Wash Away My Heartache 4:24
-04. V.I.P. (They're Callin' Me Tonight) 3:33
-05. You Can't Run Away From It 3:17
-06. Heaven And Hell 3:46
-07. Hollywood Nights 3:17
-08. Born On The Wind 3:55
-09. Wild Fire 3:42
-10. Stop - Draggin' My Heart Around 3:09Жанр: EuroDiscoПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85A95700A6DDFBB2F9222D4C32945572F0AC86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812167   (574689) от 12.08.2014
-
-Arabesque - Best Three (1995) Japan [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Time To Say "Good Bye" (Jean Frankfurter - John Moering)
-2. Heart On Fire (Jean Frankfurter - John Moering)
-3. Parties In A Penthouse (Jean Frankfurter - John Moering)
-4. Dance Dance Dance (Jean Frankfurter - John Moering)
-5. Hit The Jackpot (Jean Frankfurter - John Moering)
-6. Young Fingers Get Burnt (Jean Frankfurter - John Moering)
-7. Make Love Whenevr You Can (Jean Frankfurter - John Moering)
-8. Peppermint Jack (Jean Frankfurter - John Moering)
-9. High Life (Jean Frankfurter - John Moering) (   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA324C803819EE16E60D14627817D270976002B
 ```
 
 https://mybot314.ru/tekegram_catalog/

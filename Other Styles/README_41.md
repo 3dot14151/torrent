@@ -1,3 +1,119 @@
+###  Публикация: 1197628   (812013) от 09.01.2018
+
+Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ukon Kivi
+02. Lemmini March
+03. Sigurrine
+04. Mellow Praxis(   Читать дальше...   )Жанр: Cinematic Themes, Instrumental, ElectronicПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009122   (811919) от 20.04.2016
+
+Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Love    03:08
+02. You're My Everything    03:09
+03. Remembering the 80's    03:06
+04. Persia    03:51(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197907   (811887) от 09.01.2018
+
+Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter's Deepest Sleep
+02. Summer Afternoon
+03. Taos Song
+04. Heavy as a Feather(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197875   (811881) от 09.01.2018
+
+Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildwood
+02. Wildwood Priestess
+03. Old Gods & Ancient Stones
+04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198053   (811878) от 09.01.2018
 
 Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks + .cue] <Afrobeat>
@@ -624,122 +740,6 @@ John Tesh - Tour De France-The Early Years (1990) [FLAC|Lossless|tracks + .cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD16E0671300A20765FCA35792F6A6F006CBCE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198499   (806178) от 12.01.2018
-
-Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Season 7 (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Main Titles (1:54)
- 2. Dragonstone (5:06)
- 3. Shall We Begin? (1:24)
- 4. The Queen's Justice (1:22)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B4F7FB27668A82DEA609C3CD27E15EE07C6625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009832   (805994) от 23.04.2016
-
-Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bend in the River (feat- Josie Quick)    04:23
-02. Distant Horseman (feat- Josie Quick)    05:05
-03. Turn and Walk Away    04:00
-04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119771   (805742) от 29.03.2017
-
-Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okinawa Battlefield (03:59)
-02. I could Have Killed Him (02:20)
-03. A Calling (02:42)
-04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119754   (805741) от 29.03.2017
-
-Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thanks So For Pushing Record Button [00:04:15]
-02. Deep Inside [00:06:16]
-03. Don't look at him [00:04:32]
-04. Forest Soul [00:05:34](   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
 ```
 
 https://mybot314.ru/tekegram_catalog/

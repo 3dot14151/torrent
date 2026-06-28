@@ -1,3 +1,208 @@
+###  Публикация: 1123060   (793373) от 06.04.2017
+
+VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло 25 лет с тех пор, как Coldcut - диджейский дуэт Мэтта Блэка и Джонатана Мора - основал собственную студию в качестве дома для электронной музыки вдали от разлагающего влияния крупных лейблов.
+Сначала они представляли свои миксы в лондонском музыкальном магазине, где за прилавком работали только черные, а также на пиратских радиочастотах.
+Они продолжили революцию (   Читать дальше...   )01. Roots Manuva - Don't Breathe Out  (2:28)
+02. Romare - Who Loves You?  (1:28)
+03. Sarathy Korwar - Dreaming (Tenderlonius Remix)  (1:38)
+04. Letherette - Shanel  (1:12)(   Читать дальше...   )Релиз состоялся: 27.01.2017Жанр: Electronic, Hip Hop, HouseПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B238577AFD770CFCAA7BF682F0F32F7CA4006F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274629   (793053) от 07.01.2019
+
+Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghostnote (5:40)
+ 02. Terra Mount feat. Monolink (7:34)
+ 03. Behind The Wheel (7:24)
+ 04. Number Of The Beast (4:58)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274470   (792992) от 07.01.2019
+
+Voiski - The Bat Who Wanted To See The Sun (2019) Dolly [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taking Flight (06:14)
+02. The Valley of Nothingness (04:53)
+03. The Parrot's Excuse (05:44)
+04. Simorgh in Persia's Sky (05:41)Жанр: TechnoПродолжительность: 00:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163018409CBEE3C28A0602F86B6D78C28C2986BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201118   (792879) от 24.01.2018
+
+VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moloko - Sing It Back (Boris Musical Mix Edit) (4:38)
+02. Madison Avenue - Don't Call Me Baby (3:43)
+03. Supermen Lovers - Starlight (3:47)
+04. David Guetta - Just A Little More Love (Wally Lopez Remix Edit) (3:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F1271139FAA718120C16A8EAB3F58E77F94328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201204   (792875) от 24.01.2018
+
+VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
+02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
+03. O&O Music - Music's Hypnotising [4:22]
+04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 05:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100888   (792349) от 31.05.2020
+
+Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruoduo (09:44)
+ 02. Slunce Radar (06:52)
+ 03. Glaxomi III (08:54)
+ 04. Juliona Kabli (05:15)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal •Продолжительность: 17:24:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1208E3DC9A01372BAF1B15B4206ADD20510056C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201485   (792262) от 25.01.2018
+
+VA - La Voile Rouge : St Tropez (2009) [FLAC|Lossless|tracks] <House, Electro House, Chill Out>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guru Josh Project - Infinity (Steen Thottrup Chill Mix)
+02. Love, Marchi's Flow, Miss Tia - Feel The Love (Paul Sander Klaas Mix)
+03. Reunited - Sun Is Shining (Gauzz Chill Mix)
+04. Bimbo Jones - Tell Me My Name(   Читать дальше...   )Жанр: House, Electro House, Chill OutПродолжительность: 02:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5518956784308C7BCCF64ED39B957710CCD6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274716   (792253) от 08.01.2019
 
 Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Disco, Experimental, Space Rock, Krautrock>
@@ -539,209 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42D6F351749E5CBB2EC2A2AE81F8B46E9F8115DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275403   (790472) от 11.01.2019
-
-Above & Beyond - Group Therapy 300 Live from Hong Kong - Deep Set (2018) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Group Therapy Intro (Abgt300wd) (00:32)
-02. Dee Montero – Headspace (Abgt300wd) feat. Meliha (05:58)
-03. Ben Böhmer & Koelle – Almost Home (Abgt300wd) (04:59)
-04. Antic – Turncoat (Abgt300wd) (05:14)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4C9B8FF6CE56818949D7133E4C40F10D37E44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100033   (790424) от 28.01.2018
-
-D.M.T. Records - 23 Releases (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Experimental, Dark Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beirut 1969 (04:10)
- 02. Hassan the Notorious Liquifactionist (07:26)
- 03. Doublethink (06:03)
- 04. 7abb (05:56)Тип издания: WEBЖанр: Techno, Minimal, Experimental, Dark Ambient •Продолжительность: 00:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0585FA247A089221BFA5EA45A6259E3D67E554C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281247   (790018) от 04.06.2020
-
-Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Releases (1995-2019) [FLAC|Lossless|tracks .cue, tracks] <Electro, Techno, Minimal, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Light Curve - Magnetite (06:35)
- 02. Time Light Curve - Acidlab (05:42)
- 03. Headnoaks - Planet Constellations (04:23)
- 04. Headnoaks - Promise Land (05:36)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Electro/AcidПродолжительность: 14:05:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7F18F09560CF3DF950C69FABFE963D37B7BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202488   (789949) от 29.01.2018
-
-Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Techno, Experimental, Drum n Bass, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:44)
- 02. Bloom (05:46)
- 03. Grit (05:36)
- 04. Spirals (06:02)(   Читать дальше...   )Жанр: Techno, Experimental, Drum n Bass, AmbientПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995C07861E681600096399875847787D0E740D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202426   (789928) от 29.01.2018
-
-VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical House, House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sigala - Give Me Your Love (feat John Newman And Nile Rodgers - radio edit) (3:29)
-02.Gorgon City - All Four Walls (feat Vaults) (3:12)
-03.Tieks - Sunshine (feat Dan Harkna - extended mix) (4:22)
-04.AlunaGeorge - I'm In Control (feat Popcaan - The Magician remix) (4:35)(   Читать дальше...   )Жанр: Deep House, Disco, Tropical House, House, Tech HouseПродолжительность: 06:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FBF7F933FAE72C2C5590E620D175FD227A984F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202393   (789885) от 29.01.2018
-
-VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lil' Louis - French Kiss (4:06)
-02.Daft Punk - Make Love (4:51)
-03.Giorgio Moroder - Oh L'amour (3:27)
-04.Jeanne Napoli - Let's Make Love (3:34)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 03:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6685F94938A296704A5B145CBFDAAE039D6F2951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203068   (789099) от 31.01.2018
-
-Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonar (08:18)
- 02. Vona 1.2 (06:44)
- 03. Filamenta (06:59)
- 04. 5254 (05:13)(   Читать дальше...   )Жанр: Techno, Progressive House, MinimalПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
 ```
 
 https://mybot314.ru/tekegram_catalog/

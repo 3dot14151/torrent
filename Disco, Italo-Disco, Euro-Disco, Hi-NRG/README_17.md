@@ -1,3 +1,61 @@
+###  Публикация: 1139865   (659205) от 03.06.2017
+
+Montana - A Dance Fantasy Inspired By Close Encounters Of The Third Kind (1978) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dance Fantasy Inspired By Close Encounters Of The Third Kind (16:00)
+02. V.M. IV (3:47)
+03. Warp Factor II (5:34)
+04. Love Star (2:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD695A71762E419DABB7C38BDA2F1B24F8069D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903127   (658873) от 30.05.2015
+
+VA - Nu Disco (2015) [MP3|320 кб/с]<House, Disco, Indie Dance, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikko Alonzo - You Must Be Mine [05:42]
+02. Holiness Code - Sunburn [06:42]
+03. Anturage & Sergey Silvertone - Love is not a Game (feat. Lena Grig) [06:16]
+04. MKDJ & Dopammina - Bass Face [08:37](   Читать дальше...   )Жанр: House, Disco, Indie Dance, Nu-DiscoПродолжительность: 04:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B27A12AC5D269D0EB2A5957C660A3C8473BB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539433   (658199) от 25.03.2022
 
 VA - Italo Disco Legacy (2017) Original Motion Picture Soundtrack [MP3|320 Kbps] <Electronic, Stage & Screen, Italo-Disco>
@@ -687,64 +745,6 @@ Midnight Rhythm - Midnight Rhythm (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAE4FB8CD4DAC13065093A18D653791906FAB141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142830   (640911) от 15.06.2017
-
-VA - Disco Music Comeback (The Return Of The Glory Hits) (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travoltas - Boogie Nights (Radio Version) (3:58)
-02. Jack Dunston - Street Life (Radio Version) (3:41)
-03. Glenn & Eddie - Rapper's Delight (Rocfam Mix) (4:00)
-04. Jill Razer - Last Night a DJ Saved My Life (Radio Version) (4:07)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACAB3031C7E5DFE192882488350C99F304F9363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228042   (639272) от 30.05.2018
-
-VA - Dino Maxi Tops Vol. 1-5 (2001-2006) 10 CD, Compilation, Limited Edition [MP3|320 Kbps] <Italo-Disco, Europop, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639272.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pet Shop Boys - It's A Sin (Disco Mix) (7:40)
-02. Samantha Fox - Touch Me (I Want Your Body) (5:18)
-03. David Hasselhoff - Je T'Aime Means I Love You (5:45)(   Читать дальше...   )Жанр: Italo-Disco, Europop, Synth-popПродолжительность: 12:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B03D1E00C7646CD71D85463FD3A03C755E1E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

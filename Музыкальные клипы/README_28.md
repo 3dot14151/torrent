@@ -1,3 +1,120 @@
+###  Публикация: 574079   (376421) от 12.11.2012
+
+Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7839D1ED8D9EBF650AD86275FBAB21E2DF36956E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574078   (376072) от 12.11.2012
+
+M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA2B97E422267E8FCA7BD42133B7205324C2FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574221   (375342) от 12.11.2012
+
+Глэм Рок / Glam Rock -T.Rex. S.Quatro.Nazareth.Sweet and more.. (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375342.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске представлены одни из лучших групп направления глэм рока начало 70 х,
+все группы в самом начале своей сценической карьеры все молоды полны амбиций и задора.01. T.Rex.- Jeepster
+02. Shwaddywaddy - You Got What it Takes
+03. Nazareth - Love Hurts
+04. Dave Edmunds - Here Comes THE Weekend
+05. Rod Stewart - Tonight's The Night
+06. T.Rex - 20 th Century Boy
+07. Suzi Quatro - 48 Crach
+08. David Essex - Rock On
+09. Sweet - Teenage Rampage
+10. Bay City Rollers - Bye Bye Bye(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62C85CC2A09E06D07E678E64B28D8E12F8C432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720152   (374410) от 10.11.2013
+
+Сборник клипов - VA - Various Music part. 47 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agnes - Don't Go Breaking My Heart 720p (3:49)
+2. Ahzee - Born Again 1080p (3:40)
+3. Aircraft & Miss Palmer - Dont Ever Let Go 720p (3:16)
+4. Andreea Balan feat. Sonny Flame - IUBI 1080p (3:20)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327326   (374111) от 25.09.2019
 
 Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -585,110 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577883   (358345) от 19.11.2012
-
-Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577454   (358335) от 19.11.2012
-
-Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577919   (358229) от 19.11.2012
-
-Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577666   (358221) от 19.11.2012
-
-Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
 ```
 
 https://mybot314.ru/tekegram_catalog/

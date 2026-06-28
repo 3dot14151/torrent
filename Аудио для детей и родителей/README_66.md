@@ -1,3 +1,32 @@
+###  Публикация: 270201   (290119) от 13.12.2010
+
+Disney - Princess Christmas Album (2009) [MP3|192 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Eve Dinner (Snow White; Grumpy; Bashful; Doc & Sleepy)
+02. Christmas Is Coming! (Ariel; Belle; Cinderella; Jasmine; Pocahontas; Sleeping Beauty & Snow White)
+03. Have a Holly Jolly Christmas (Bashful; Doc; Grumpy & Snow White)
+04. I'm Giving Love for Christmas (Cinderella)(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B7A1AAA1E213030634630549D28D14386ECE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963424   (288954) от 07.12.2015
 
 Евгений Клюев | Сказки Простого Карандаша (2014) [MP3]
@@ -664,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF66D9E47C3A60AED9549A660499810C5D1D5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338113   (271652) от 13.11.2019
-
-Николай Федоров | Сказано - сделано (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271652.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Н. Фёдорова собраны лучшие его рассказы из прежних книг и новая повесть. Герои повести — знакомые по прежним книгам писателя ребята. Выдумщики, увлеченные своим делом энтузиасты. Слово у них не расходится с делом, и поэтому у героев повести много друзей, жизнь полна удивительных открытий и приключений.Жанр: детская литератураЯзык озвучки: русскийПродолжительность: 06:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C54DE3D5FA84740C95B8BC2103F213366E5C8E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

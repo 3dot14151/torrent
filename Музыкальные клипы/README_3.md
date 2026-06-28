@@ -1,3 +1,108 @@
+###  Публикация: 608230   (994136) от 24.01.2013
+
+Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDA80117DED8D81924E99BC708AA50428D2FDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608232   (993983) от 24.01.2013
+
+Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F770213C624E07B409C58831D3E3F9A0389BB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352346   (993278) от 16.01.2020
+
+Весёлая Месса (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Глухов даёт развернутое интервью о своей группе, о Российской Национал-большевистской партии, революции и религии. Ему аккомпанируют музыкальные группы: Группа 418  и Тотальный Геноцид. В конце бабушка из АХСМСЗ даёт стриптиз!Производство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C664D1164C1972C2043EF4BE132FEE04F5F49AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352242   (993219) от 16.01.2020
+
+Чёрный огонек (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993219.jpg" />
+</div>
+
+
+###  Подробнее
+
+В беспросветном мраке новогодней пошлятины единственный луч света – Чёрный огонек 2020!
+Исполнители: Михаил Трофименков,  Бранимир,  Александр Аронов,  Михаил Елизаров,  Children Slyness,  РИЧ,  Ансамбль Христа Спасителя,  Тотальный Геноцид,  418, Олег Купер, Самай, НаотрезПроизводство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91D305D346CF2244699F404FD6F9D43E61C474F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352456   (993218) от 16.01.2020
 
 Александр Константинов и проект Babooshka (Старуха Изергиль) Music Videos 5X (2019) WEB-DL [H.264/720p/1080p-LQ]
@@ -581,116 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8A798FAA59BB73D9DCF4FB8C73DC60B63CFBD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971781   (985469) от 03.01.2016
-
-VA - Зимний марафон № 217: Новогодний Хит Парад (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (03.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Alex Blue ft. Judith - Dance (Official Video) (00:03:20)
-02. BBX ft. Paul Mayre - Longing 4 You (Official Video) (00:03:30)
-03. Brutto - Вечірнє сонце (Прем'ера!) (00:05:07)
-04. Cream - Change (Official Video) (00:04:06)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088145E58C425E846586F78B83C60351C3BF4525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612651   (985465) от 02.02.2013
-
-Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAC52A633086A4243A946E05A4FE6211079E63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612580   (983877) от 03.02.2013
-
-DJ Smash & Семён Слепаков/Откат (2013).HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE78A467A99BFE5B90341158B8335E76EFB4411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354626   (983443) от 26.01.2020
-
-In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983443.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 In This Moment - Beautiful Tragedy (Official Video)
-2007 In This Moment - Prayers (Official Video)
-2008 In This Moment - Forever (Official Video)
-2009 In This Moment - Call Me (Official Video)(   Читать дальше...   )Производство: Atlantic RecordsЖанр: MetalcoreПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
 ```
 
 https://mybot314.ru/tekegram_catalog/

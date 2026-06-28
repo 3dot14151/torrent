@@ -1,3 +1,125 @@
+###  Публикация: 1086334   (151589) от 24.12.2016
+
+Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Starship Avalon (Main Title) (04:15)
+02. Hibernation Pod 1625 (01:19)
+03. Command Ring (00:57)
+04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677557   (150463) от 18.11.2023
+
+Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (feat. Richie Sambora)
+02. World On Fire
+03. Every Breath You Take (feat. Sting)
+04. Open Arms (feat. Steve Perry)(   Читать дальше...   )Жанр: Country, RockПродолжительность: 02:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588849   (150433) от 14.12.2012
+
+Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Far Cry 3 (5:35)
+2. Heat (3:33)
+3. The Rakyat (3:55)
+4. Monsoon (2:53)
+5. Falling Into a Dream (2:20)
+6. Journey Into Madness (2:56)
+7. Rook Island (5:21)
+8. We Are Watching You (3:34)
+9. Treasure of Zhang He (3:35)
+10. Fever Dream (4:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737957   (150063) от 26.12.2013
+
+David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunnels - 5:42
+02. Water Birth - 7:40
+03. Off the Map - 7:02
+04. Star Fall - 8:32(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271573   (150010) от 23.12.2018
 
 VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock, Romantic>
@@ -626,128 +748,6 @@ Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:070F6AD1633D0A2B36B2D32D2F5D81401FB911C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588974   (146090) от 16.12.2012
-
-Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|320 кб/с] <Game-Rip OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. It All Started on Scabb Island... (02:11)
-2. On the log with Fink and Bart (01:59)
-3. The Largo Embargo (01:16)
-4. Woodtick Suite (04:01)
-5. Scabb Island (02:00)
-6. The International House of Mojo (02:20)
-7. The Cemetery (03:13)
-8. Poking Largo (01:12)
-9. LeChuck's Return (02:42)
-10. Captain Dread and the Jolly Rasta (03:18)(   Читать дальше...   )Жанр: Game-Rip OSTПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EA9AD6261EA6D41C622C8A992F6606DEC33328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434518   (145976) от 27.12.2020
-
-Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Trailer>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Heart (02:15)
-02. Consternation (03:40)
-03. Paradox (04:45)
-04. Disclosure (04:23)(   Читать дальше...   )Жанр: Soundtrack, Instrumental, TrailerПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6B8D4A34A3E7B730D1DBA7F550A4C3E0F66E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969166   (145762) от 28.12.2015
-
-Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud Mountain [15:50]
-02. Reflections [06:55]
-03. Tears Of The Forest [12:20]
-04. Providence [11:23]Жанр: Meditative, New AgeПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B65FB830E55BED4853F150E1519FE41A966E776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271994   (145722) от 26.12.2018
-
-Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiery the Angels Rose (01:34)
-02. Thunderborn (02:03)
-03. Dragon Rider (02:21)
-04. Iron Poetry (feat. Kate St. Pierre) (03:09)(   Читать дальше...   )Жанр: Trailer Music, SoundtrackПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
 ```
 
 https://mybot314.ru/tekegram_catalog/

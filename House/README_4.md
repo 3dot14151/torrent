@@ -1,3 +1,213 @@
+###  Публикация: 600883   (998133) от 11.01.2013
+
+VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kaos - Kosmischer Ruckenwind (Quiet Village Remix) 23:58
+02. Higinio - Your Life (Original Mix) 06:48
+03. Deux - Golden Dreams (Original Mix) 06:47
+04. Al Walser - I Can't Live Without You (Maui & Chris Mix) 03:19
+05. Stray Kings, Matt Stone Vs Monofono - Storm In July (Radio Mix) 03:43
+06. Hotbox - Get Right On Love (Original Mix) 05:56
+07. Sean Bay - Nonchalance (Original Mix) 06:11
+08. Avicii - Last Dance (Avicii Instrumental Radio Edit) 03:24
+09. Nothing But The Beat - Killing Me (DJ Absinth Project Remix) 05:37
+10. Gigi D'agostino - Amorelettronico 07:19(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8CCF6F649EABD1F4141006CA7C68FD0D6FB892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600840   (997885) от 12.01.2013
+
+VA - Electro House Winter (2012) [MP3|320 кб/с]<House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Rivera - Forever Young (Sandro Silva Remix)
+02. Alex Kunnari - Sweet Melody
+03. First State - Why So Serious
+04. Dragon - Tonight
+05. Sound Avtar - Monster On a Rope
+06. Damien J. Carter - When Love's Calling You
+07. Jess-E - I Feel Your Energy (Discofied Mix)
+08. Thomas Mengel - Heliconia
+09. Biggi - Keep On Rocking
+10. MC Flipside - Vs. ZERO(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBFD8603D2F5CC2349AB7DD4B52142DDE6DB569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600442   (997863) от 12.01.2013
+
+VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desney Bailey - Crazy Day (Original Mix)
+02. Roberto Sol - Phonix Rising (Original Mix)
+03. Miss Luna - Happiness Is True (feat. Q Derhino) (Florito Mix)
+04. Chris Count - Doin It (Dorush Remix)
+05. Dana - Electric Wave (Original Mix)
+06. Lazy Hammock - Rise With You (Katoey Deep House Mix)
+07. Nickotine, Frankee G - They Don't Know It (Original Mix)
+08. Pnfa - Upstream (Original Mix)
+09. Confused - Last Trip (Original Mix)
+10. Miss Luna - The One (feat. Q Derhino) (Bes & Meret Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15222102C1CE14B00FA80163BE2E4FAF9F3AF670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602731   (997588) от 13.01.2013
+
+VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re Dupre - Get Down & Dirty! (Original Mix)
+02. Marcello V.O.R., Dashdot - B-Side (Original Mix)
+03. Velkro - HighWay (Original Mix)
+04. Re Dupre, Angelo Fracalanza - Kiss Me (Original Mix)
+05. Gabe - Truly Fucked Feat. M.Adam (Original Mix)
+06. Dashdot - Senseless Static Thing Feat. Zz (Original Mix)
+07. Sex Shop - Renascenca (Original Mix)
+08. Angelo Fracalanza - Long Time (Original Mix)
+09. Marcello V.O.R., Facing Odds - Street Rules (Original Mix)
+10. Andre Marques, Pattern2 - The Chamber (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Indie DanceПродолжительность: 01:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602619   (997555) от 13.01.2013
+
+VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997555.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bubba – Nudenight (Original Mix) 6:04
+2. F3 – What You Need (Downtown Party Network Remix) 5:56
+3. Finnebassen – If You Only Knew (Original Mix) 6:22
+4. Finnebassen Gundelach – When It Rains (Digital Exclusive) (Original Mix)8:36
+5. Flow & Zeo Marcello V.O.R – N.Y Candy (Original Mix) 6:52
+6. Jobe – This Feeling (Original Mix) 6:19
+7. Jobe – My Life (Max Belobrov Remix) 8:04
+8. Lula Circus – Light Outside (Original Mix) 7:20
+9. Made To Move – Shaman (Cera Alba Remix) 7:56
+10. Markus Eden – With Me (Original Mix) 7:08(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603621   (996472) от 17.01.2013
+
+VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laidback Luke Feat Wynter Gordon - Speak Up (Jay Style Remix) (05:41)
+02. Dj Sakin - Beverly Hills Cop (Club Mix) (05:54)
+03. Mykel Mars - Scream (Album Version) (06:59)
+04. Davie Terry - Vibe (House Kartel Reebost Remix) (07:06)
+05. Danky Cigale And Mykel Mars - Feel So High (Kevin Hills Remix) (05:54)
+06. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (03:42)
+07. Djerem, Chris Willis & Xenia - So Beautiful (Djerem Electro Edit) (03:09)
+08. Lissat & Voltaxx - Like Dis Like Dat (Chris Kaeser Remix) (08:05)
+09. Chris Kaeser - Montpellier Of Course (Fx & Sting B Mix) (06:05)
+10. Dj Absinth - Diva (Original) (06:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CA835113468D3B5C285DF205A0B71088B7BA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603187   (995951) от 19.01.2013
 
 VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
@@ -625,180 +835,6 @@ B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B9A70730EEC0830BF7F27A28C2A44C31ADA7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974512   (975682) от 12.01.2016
-
-VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Booka. Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:39)
-02. Benn Finn - Beautiful Instant (Beatamines Remix) (07:21)
-03. Marga Sol - Find Yourself (07:01)
-04. Mia Lemar - Squire Of Desire (Leon Rodt Remix) (07:06)(   Читать дальше...   )Производство: KarmablackЖанр: House, Club House, Deep HouseПродолжительность: 02:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF229C8F946C90BEB5F465F4536829AC3720F222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356643   (975613) от 02.02.2020
-
-VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ale B - Raid the Radio (6:24)
-2.Rossetti Matteo - Space Age (4:52)
-3.Andy Well - Neblina Del Verano (5:02)
-4.Supernocs - Chorando (4:03)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356595   (975611) от 02.02.2020
-
-VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.One Track - Happiness (Happy Cut) (3:02)
-2.Piccadilly House Groove - London Beat (Piccadilly House Systems Remix) (3:16)
-3.Frankie Gada - Negrita (Original Mix) (5:57)
-4.Peter Gregersen - Tribal Jungle (Tribaland Mix) (3:04)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A09678CC89214CA6B155330C76A5599FBC9E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356712   (975543) от 02.02.2020
-
-VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SPACE 3 - Make Me Move (Yves' Remix) 2:00
-2. Modus Medusae - Chester One (Chester Mix) 2:51
-3. Fashion Rhythms;Kania - Feels Right (Vox Mix) 3:05
-4. Ronald Jefferson - Rynorse (Ronald Jefferson House Mix) 3:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928D7156168FCF801077020D3E52AFD9A5B8D5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357139   (975538) от 02.02.2020
-
-VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobias Rauch feat. Jessy - Alpha Horizon (Alex From Jack Re-Work Edit) 4:43
-02. Martin Bro - He Wants To Escape (Original Mix) 4:42
-03. Angels From Jupiter - Anonymous Soul (Drama Kids Loco Remix) 6:41
-04. Robbie Pallasch - Marks & Angels (Original Mix) 6:49(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F68173D55373D422AB2796B09D2A803B20E0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357167   (974389) от 03.02.2020
-
-VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Redentor - Turn Me Up Redentoriously (9:13)
-2.Kivema - Day Off (6:11)
-3.Phil Baenz - Time (6:15)
-4.Goose Tann - Eden (6:02)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 03:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2630DFC510A2EBD7C0D2553B16F23DC6BD402D
 ```
 
 https://mybot314.ru/tekegram_catalog/

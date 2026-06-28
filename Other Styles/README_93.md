@@ -1,3 +1,125 @@
+###  Публикация: 1554691   (568748) от 04.06.2022
+
+Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Summer In Your Heart (radio version)
+02 Summer In Your Heart (rock house - radio mix)
+03 Summer In Your Heart (oceanal blue house mix)
+04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555559   (568733) от 04.06.2022
+
+Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amar Ashru Hasi
+02. Maner Jatana
+03. Mangal Hok
+04. Shunite Chahina(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529177   (568236) от 30.07.2012
+
+Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Э́ннио Моррико́не (итал. Ennio Morricone)1. Chi Mai (5:05)
+ 2. Cockeye`s Song (4:22)
+ 3. Le Vent, Le Cri (5:20)
+ 4. Bye Bye Colonel (2:03)
+ 5. La Tragedia Di Un Uomo Ridicolo (2:15)
+ 6. Orient Express (4:12)
+ 7. Once Upon a Time In Revolution (4:15)
+ 8. Dimenticare Palermo (2:55)
+ 9. Mille Ecchi (3:21)
+ 10. Ricatto (3:02)(   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63774FD3282C2A93AA2FAC8896919809EE55A4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921850   (568196) от 29.07.2015
+
+James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow White
+02. I'll Take Your Throne
+03. Tower Prayers
+04. Something for What Ails You(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D098ED511B015CD638CF4B885C106951F3A98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921862   (568124) от 29.07.2015
 
 Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
@@ -656,122 +778,6 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA99F830247C60C0155790CBF4349C98906D299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304653   (561840) от 27.05.2019
-
-Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabian Nights (2019) (03:13)
-02. One Jump Ahead (02:55)
-03. One Jump Ahead (Reprise) (01:00)
-04. Speechless (Part 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304604   (561714) от 27.05.2019
-
-Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godzilla (feat. Serj Tankian) (03:10)
-02. Godzilla Main Title (02:35)
-03. Memories of San Francisco (02:11)
-04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044814   (561671) от 22.08.2016
-
-Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age, International>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Siroun Es Hokiag  04:19
-02.  Vartani Mor Vokhbe  05:50
-03.  Oror  04:12
-04.  Alakiaz  02:03(   Читать дальше...   )Жанр: New Age, InternationalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C82C5ECC4944E3C8F99778F709AE42225E3BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304663   (561567) от 27.05.2019
-
-Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабская ночь (2019) (03:13)
-02. На миг быстрее (02:55)
-03. На миг быстрее (Реприза) (01:00)
-04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EE8F0504D912C3611E673264771590BF21BC5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

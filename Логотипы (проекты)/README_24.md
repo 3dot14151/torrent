@@ -1,3 +1,82 @@
+###  Публикация: 1031068   (670073) от 02.07.2016
+
+Проекты - VideoHive - Race Logo - 14858365 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3572B9140F403BE27340901EF6E5AA63C2273F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031072   (669886) от 02.07.2016
+
+Проекты - VideoHive - Flat Logo Animations - 16325991 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat Logo Animations - шейповая анимация для вашего логотипа или текста.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32851A43462A42664216758BB44A319B050EBF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137262   (668703) от 25.05.2017
+
+Проекты - VideoHive - Minimal 3d - Elegant Logo Reveal -14167191 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB9B5807E153C7F3E28AD6F6F373A028BD2FA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900512   (667508) от 22.05.2015
 
 Проекты - VideoHive - Abstract Lines Logo - 11224044 [AEP]
@@ -598,84 +677,6 @@ Coffee Beans Logo - проект для отображения вашего ло
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B45F584358ED14C2790B7060AC3B75074DBB638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679801   (645499) от 15.07.2013
-
-Проекты - VideoHive - Wild Nature Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон проекта для демонстрации логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39862BC93C7FC9316A5338BCC2D6638FAD692043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032393   (645444) от 07.07.2016
-
-Проекты - VideoHive - Liquid Logo Reveal - 6941467 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquid Logo Reveal - шейповая жидкостная анимация для показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBD562EBE02F0FBBA11806A03D7A9C704FBEDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032396   (645439) от 07.07.2016
-
-Проекты - VideoHive - Clean Flip Logo - 5988691 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clean Flip Logo - простой, элегантный, чистый показ вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380A2611B41370AC98856624CB18CE83BABB83A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

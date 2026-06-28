@@ -1,3 +1,119 @@
+###  Публикация: 974420   (976718) от 11.01.2016
+
+Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mass (3:41)
+02. Looking for Something (4:09)
+03. Don't Go Away (4:24)
+04. Don'Era - If You Shout (3:49)(   Читать дальше...   )Жанр: New Age, Modern Classical, DowntempoПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA7DB4B211A8132AB2F552F1E24191575CA9B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974808   (975681) от 12.01.2016
+
+Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11.000 Miles
+02. Living In Awe
+03. Changing Skies
+04. Full Of Love(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5BAD5BFA2A38F4AA57AFB46B967D8EC9984152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357094   (975610) от 02.02.2020
+
+Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score - FYC) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shelby Races Le Mans (01:37)
+02. Shelby Drives Mulholland (01:29)
+03. Ford Arrives (00:41)
+04. Lee's Got An Idea (00:26)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357095   (975548) от 02.02.2020
+
+Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Mans 66 (05:42)
+02. Wide View (01:36)
+03. Driving in the Rain (01:52)
+04. Henry Ford the Second (00:45)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D7CF592B81294BFA83C50745ED8E325C4F2EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974735   (975474) от 12.01.2016
 
 The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age>
@@ -634,122 +750,6 @@ Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D2ACF8BC2BD56579349B59B37512F5F92FF300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357327   (970644) от 06.02.2020
-
-Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Oak Wood
-02. Jade
-03. I Love The Rain
-04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357704   (970632) от 06.02.2020
-
-Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of His Eyes the Peace V (7:05)
-02. After of Your Life (6:34)
-03. Mea Maxima Culpa (6:25)
-04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974313   (970582) от 16.01.2016
-
-Христина Соловій - Жива вода (2015) [FLAC|Lossless|image+.cue] <Pop-Folk, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Несе Галя воду (3:57)
-02. Янчик (2:41)
-03. Тримай (3:28)
-04. Синя пісня (3:18)(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975966   (970471) от 16.01.2016
-
-VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [MP3|320 кб/с] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ennio Morricone - L'Ultima Diligenza Di Red Rock (7:32)
-02. Ennio Morricone - Overture (3:11)
-03. Jennifer Jason Leigh, Kurt Russell, Samuel L. Jackson - "Major Warren Meet Daisy Domergue" (0:33)
-04. Ennio Morricone - Narratore Letterario (2:02)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714B0B750589E2691BD649F6609AAD757B92E413
 ```
 
 https://mybot314.ru/tekegram_catalog/

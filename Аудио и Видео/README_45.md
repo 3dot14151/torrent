@@ -1,3 +1,177 @@
+###  Публикация: 1498883   (830656) от 13.10.2021
+
+Magneto - Requiem pour Satana (2021) [AAC|~326 Kbps] <Cocktail Nation, Space Age Pop, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magneto, Joanna Halszka Sokołowska, Igor Nikiforow - Pama Rum Kwan (5:03)
+02. La Rumbia en Blanco y Negro (3:14)
+03. Magneto, Joanna Halszka Sokołowska - Temptation of Stingray (6:19)
+04. Mambolero (5:40)(   Читать дальше...   )Жанр: Cocktail Nation, Space Age Pop, Easy ListeningПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EA2A32FB1B8796518BA4CD1371AC26120C9D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497639   (830655) от 13.10.2021
+
+VA - Autumn House Workout Vol.2 (2021) [AAC|~312 Kbps] <House, Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Avenue - Over Right (Night Emotions Mix) (3:11)
+02. Chrisopher Torres - You See Man (Deep Style Mix) (3:34)
+03. FRANK WASSER - Rock This (Natural Mind's Club Mix) (3:57)
+04. Fantasy - On the Strength (5:07)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849EDB7B7DCEF35166D0685FB419DCD59EF178FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498716   (830654) от 13.10.2021
+
+VA - Vanlife Chill, Vol. 6 (2021) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco, Chris Brauer - Fountain (4:41)
+02. Marc Hartman - Don't Wanna Loose You (Original Mix) (5:24)
+03. Weathertunes - Flower Fields (Original Mix) (5:04)
+04. Weber & Weber - Fading to the Sky (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA29A8EBA1291EF927F8F4D794E481B7B84098F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498276   (830653) от 13.10.2021
+
+VA - Manchester Orange: Urban Chillout Music (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Dellasollounge - Five to Give (Original Mix) (4:13)
+03. Martin Liege - Baby Come On (Original Mix) (3:39)
+04. Martin Hiska - You're My Thrill (6:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECB0A36C695100A93DC851FDDCFDF47E2CA2E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499432   (830652) от 13.10.2021
+
+VA - Toolroom Vaults Vol. 2 (2021) [AAC|~334 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pax - Shiver (Extended Mix) (6:21)
+02. Honey Dijon, Jerome Robins - Wanting (Extended Mix) (6:08)
+03. Eelke Kleijn - The Voices (Extended Mix) (7:25)
+04. René Amesz, Camilo Franco - Ruell (Extended Mix) (6:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9492FB3631C9F1E15B56FC3946F0E35A5DEC49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495742   (830651) от 13.10.2021
+
+VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloomfield - Boulevard St. Germain (Original Mix) (5:50)
+02. Music Of The Earth - Take This Joint (Worldtraveller Revisited) (4:09)
+03. Roberto Bronco - Street of Flowers (Original Mix) (5:04)
+04. James Butler - Floating Vibes (Original Mix) (2:55)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DE9B9C116394B740504B29DFE0E043EC0A359E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498119   (830650) от 13.10.2021
 
 VA - Before Sunset: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
@@ -565,180 +739,6 @@ Röyksopp - Melody A.M. (2003) [AAC|~300 Kbps] <Electronic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA1040871D6EFFD8305B587E5D8920B2DC3F2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501694   (830298) от 13.10.2021
-
-VA - 100% Relaxation (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solanos - Siempreverde (5:40)
-02. Arrojas - Bayamo (6:00)
-03. Sonnenburg - Above All (5:57)
-04. Komplextum - Interlude of Clarity (5:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7369D8F175A80F3984565E2103D71ED1906BD71B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501918   (830296) от 13.10.2021
-
-VA - Café Deluxe Chillout - Nu Ibiza / Lounge (2016) [AAC|~314 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) (4:19)
-02. Soundset City - From Bar to Bar (Café Lounge Groove Mix) (5:10)
-03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) (4:43)
-04. Dave Neville - Funny Sky (Cosmic Space Mix) (5:48)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E7245C72E2C57385978D61667C7C1BA4543BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495592   (830295) от 13.10.2021
-
-OneRepublic - Human (2021) [AAC|~303 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (2:48)
-02. Distance (3:00)
-03. Someday (3:08)
-04. Didn’t I (3:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C2A93BEFBEF061536788BE7DA7B62DE29CECDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500065   (830294) от 13.10.2021
-
-VA - Global Chill Out Masters, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - The Cosmic Vortex (6:45)
-02. Thomas Lemmer, Naemi Joy - Dive (Late Night Chill Version) (5:46)
-03. Weed - Blessed (6:00)
-04. Weathertunes - Finding Neverland (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09758B7709B742DCA7B811686127EDE2C223B344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500264   (830293) от 13.10.2021
-
-VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 1 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harrison & Daicz - La Sonrisa De María, Pt. 2 (1:57)
-02. Svendaq - World Contact (5:11)
-03. Krystian Shek - MAL-FRA (3:05)
-04. Corrado Saija - Nomos (17:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1255173C35A83DDE30DF70CE0238C0D3091F13FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501708   (830292) от 13.10.2021
-
-VA - Relax Your Base, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_830292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Fuji-san (4:54)
-02. Smooth Deluxe, Nizam Kharda - Indian Cuisine (3:09)
-03. Inventors Of The Sun - Desert Moon (4:36)
-04. Eriq Johnson - A Lonely Place (4:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBBB7DB8695E601FD9382A7141007993A1BA793
 ```
 
 https://mybot314.ru/tekegram_catalog/

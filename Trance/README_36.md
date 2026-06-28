@@ -1,3 +1,87 @@
+###  Публикация: 1578545   (345833) от 23.09.2022
+
+VA - Black Hole Trance Music 09-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Hewitt & Markus Schulz - INTO MY ARMS (Extended Mix) [6:12]
+02. BT - Paper Chairs (Alex Sonata & TheRio Extended Remix) [6:39]
+03. Richard Durand & Susana - I Matter to You (XiJaro & Pitch Extended Remix) [8:10]
+04. Dennis Sheperd & Brandon Le - Intouchable (Extended Mix) [7:22](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AC2DB5581D61342D47712EED86506F1530D1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256866   (345807) от 26.10.2018
+
+DJ Бинокль - Progressive Trance Vol.2 (2003) [MP3|256 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Miguel Bose-Sereno (Wally Lopez Weekend Remix)
+02.SSL-Follow Me (Wally Lopez & Dr Kucho Mix)
+03.Las Vegas- Gamblers Beautiful Night (DJ Antoine vs. Mad Mark's Dub)
+04.DJ Chus & David Penn-Burning Paris (Original Stereo Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B7C8679BE3D9ACE09BFE3D0879B32158BEDC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330078   (345742) от 08.10.2019
+
+Sion Rae - Everlast (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Everlast (Extended Mix) [06:19]Жанр: Trance, UpliftingПродолжительность: 00:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0BE3E3DDD82C4D4CD8F820BB330EEB636F9469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257547   (345178) от 26.10.2018
 
 VA - Techno Club Vol.55 (Mixed By Talla 2xlc & Arctic Moon)(2CD) (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -651,93 +735,6 @@ VA - Uplifting Trance Top 25 (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DAB1FADAFFFC9DB29C8F85188BB1EDD99003B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579413   (336421) от 27.09.2022
-
-VA - Uplifting Only Top 15 September (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SounEmot & Iberian & Lyd14 - Find Our Love Again (Intro Mix)
-02. Twin View - Papillon (Sergey Salekhov Extended Remix)
-03. Dreamlife - Discover The World (Original Mix)
-04. LR Uplift - Moments of Life (Extended Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6DB1D489ABF11A04FD0E99C8B104F52230A548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330895   (336253) от 12.10.2019
-
-Talla 2XLC - Fascinated (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Xavian - From Here To Eternity (Extended Mix) (3:53)
-02. Talla 2XLC & DJ Taucher - Electric Dreams (Original Mix) (3:29)
-03. Talla 2XLC - Elevation (Extended Mix) (6:50)
-04. Talla 2XLC & Junk Project - Eternia (Extended Mix) (6:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23A26B39C86A7F4D3C5588B49CF97C6D95220BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331086   (335113) от 13.10.2019
-
-VA - Redux Derry Selection (Mixed by Paddy Kelly) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fischer & Miethig feat. ArDao - Far Above The Clouds (Extended Mix)
-02. Fischer & Miethig - Oxygenious (Extended Mix)
-03. Christopher Corrigan - Take Me Home (Extended Mix)
-04. Michel Westerhoff - Empire Of Love (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C583821B5DE508E18162E91C59F52671380799AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1357327   (970644) от 06.02.2020
+
+Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Oak Wood
+02. Jade
+03. I Love The Rain
+04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357704   (970632) от 06.02.2020
+
+Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of His Eyes the Peace V (7:05)
+02. After of Your Life (6:34)
+03. Mea Maxima Culpa (6:25)
+04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974313   (970582) от 16.01.2016
+
+Христина Соловій - Жива вода (2015) [FLAC|Lossless|image+.cue] <Pop-Folk, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Несе Галя воду (3:57)
+02. Янчик (2:41)
+03. Тримай (3:28)
+04. Синя пісня (3:18)(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975966   (970471) от 16.01.2016
+
+VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [MP3|320 кб/с] <Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ennio Morricone - L'Ultima Diligenza Di Red Rock (7:32)
+02. Ennio Morricone - Overture (3:11)
+03. Jennifer Jason Leigh, Kurt Russell, Samuel L. Jackson - "Major Warren Meet Daisy Domergue" (0:33)
+04. Ennio Morricone - Narratore Letterario (2:02)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714B0B750589E2691BD649F6609AAD757B92E413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358231   (969705) от 07.02.2020
 
 Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -635,122 +751,6 @@ Mix 1 - 4:59
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8607AF4701B92BECEA5104DC238F00A16DFD376A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977738   (965539) от 21.01.2016
-
-Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (02:00)
-02. Tsunami (02:37)
-03. Aftermath (02:41)
-04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359361   (964992) от 11.02.2020
-
-Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Матерные частушки, часть1
-2. Матерные частушки, часть2
-3. Матерные частушки, часть3
-4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978160   (964709) от 22.01.2016
-
-Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine in the Rain
-02. The Road Before Us
-03. Daybreak
-04. As the River Flows(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359411   (964191) от 12.02.2020
-
-VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Latin, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bert Kaempfert - A Swingin' Safari (3:07)
-02. Al Hirt - Java (1:56)
-03. Perez Prez Prado - Patricia (2:06)
-04. Henry Mancini - Baby Elephant Walk (2:43)(   Читать дальше...   )Жанр: Instrumental, Latin, JazzПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

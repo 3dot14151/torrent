@@ -1,3 +1,148 @@
+###  Публикация: 981776   (951690) от 01.02.2016
+
+VA - Private Lounge Cafe, Vol. 4 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lind Variante - Costante - Original Mix (05:01)
+02. Spa - Come to Love - Original Mix (04:55)
+03. Leo & Roby Ruini - La Suite - Original Mix (05:25)
+04. Backroom Barn - Sweet Dream - Original Mix (03:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5CF6FA6BEACD691DE2A3C93053414503B3ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089392   (950792) от 04.01.2017
+
+VA - Trance Elegance On This Year 006 (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal Trance, Energy, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H Ft Song & The Moon - Dont Talk Away The Magic (Heatbeat Extended Mix) 6:42
+02. Fisherman & Hawkins Ft. Sir Adrian - Never The Same (Radion6 Remix) 5:24
+03. Hasso & Maxime Luft ft. Lucida - Blossoms In The Winter (Original Mix) 6:49
+04. Aimoon - Fusion (Extended Mix) 6:07(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal Trance, Energy, Emotional, UpliftingПродолжительность: 02:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881BCB63204D1AD995FD8CDCE01754A6E8F725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089797   (950778) от 04.01.2017
+
+VA - NYE 2016 Lounge Hits (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinyl Cartel - Redim
+02. Future Loop Foundation - I'm Only Dreaming
+03. Vinyl Cartel - Shuk Un
+04. Bencenzi - Vista(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E948933D7F52A57E5FF8CF14926CD2D3413A8450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089423   (950598) от 04.01.2017
+
+VA - Orbital - Best275z (1992 - 2016) [MP3|320 Kbps] <Electronic, Techno, Downtempo, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Technologicque Park 05:44
+02 Beached ( feat. Angelo Badalamenti) 03:38
+03 The Saint 04:33
+04 Funny Break (One Is Enough) 04:56(   Читать дальше...   )Жанр: Electronic, Techno, Downtempo, ExperimentalПродолжительность: 05:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D09C92831A7BA8DAFACA89F8B3592E897DBFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981975   (950175) от 02.02.2016
+
+VA - Lounge Teasers (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.T. Project - Yagan [02:11]
+02. Lana Lupercio - Thin Ice [03:23]
+03. Daki 2000 - Helios [05:29]
+04. Laquanda Linderman - For Tina [04:19](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D01E05090197D37E8D33FF3F32AC8D2E03F2611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981953   (950171) от 02.02.2016
 
 VA - Sunday Privilege, Vol. 5 (25 Luxury Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -600,151 +745,6 @@ VA - Kontor Top Of The Clubs: The Best of 20 Years (2017) [MP3|320 Kbps] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467852FA36B26BFF68E57EC0387DCB9D86B120E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982848   (945573) от 05.02.2016
-
-VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Trance, techno, Dubstep, Hardstyl, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Azari & III - Reckless (With Your Love) (Steve Lawler Remix)
-002. Bjarki - I Wanna Go Bang (Original Mix)
-003. Coone, Bassjackers, GLDY LX - Sound Barrier (Original Mix)
-004. Dialect - Ghost Of Red Hook(   Читать дальше...   )Жанр: Electro, House, Trance, techno, Dubstep, Hardstyl, ProgressiveПродолжительность: 11:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED577A6A9FF76A59BAFB8145F7C2EEF94B9031F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363101   (945286) от 26.02.2020
-
-VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L-Gil - Taoaaa (Original Mix)
-02. Danny Nectar - Power (Original Mix)
-03. Juan Campos - Rk-4
-04. Rauschhaus - Bespin(   Читать дальше...   )Жанр: Techno, Tech House, ClubПродолжительность: 06:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A61813E252EFE572E2F61340C188829B699635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362844   (945273) от 26.02.2020
-
-VA - Beatport Trance: Pack Electro Sound #12 (2020) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945273.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Costa Pantazis - Intruders (Radio Edit)
-002. Alex Minenko - Green Cliffs (Original Mix)
-003. Binary Finary - Syntax (Extended Mix)
-004. Haris C - My Suicide (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF28D700F851645F996F6371A7D8F43E52AEE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363099   (945259) от 26.02.2020
-
-VA - Disco At Chiken (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delia Renee - You're Gonna Want Me Back
-02. Lasser Drakar - Socialism Feat. Tara Delong
-03. Jkriv - Vertigo (Yuksek Remix)
-04. C. Da Afro - Rokit (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 07:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDF5D9A491100F55464F31F8BD17A6E3098D6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363023   (945187) от 26.02.2020
-
-VA - GNO: New Disco Funk (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curses - Back For More
-02. Juan Di Lago - It's Over (Extended Mix)
-03. Danky Cigale & Sydney-7 - Boom Boom
-04. Modern Boots - You're My Night, You're My Day(   Читать дальше...   )Жанр: Disco, Nu Disco, Funky HouseПродолжительность: 04:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D683000D7D1350A8B1D3B68A36E600E3ACD72A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 581621   (319920) от 29.11.2012
+
+Картинки - Мастера Фотоманипуляций [JPEG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастера ФотоманипуляцийРазрешение файлов: ~  300x300 ~ 2050x956Формат: jpg
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581427   (319686) от 29.11.2012
+
+Artworks by Francois Barraud [Графика]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Francois Barraud
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581623   (319679) от 29.11.2012
 
 Живопись - Costa Dvorezky
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ABC56BD89A6C4FCDF1687B79ECB82CC2AFF4CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583448   (313366) от 02.12.2012
-
-Owl Wallpapers (01.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC97FA1BF947B834471A29A05ED843A92A341176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959971   (312261) от 26.11.2015
-
-Обои - Best Wallpapers Mixed 184 2560x1600 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественные обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7104045EF6677B06384D9F5D714C1426D9FFF53A
 ```
 
 https://mybot314.ru/tekegram_catalog/

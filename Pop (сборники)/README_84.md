@@ -1,102 +1,3 @@
-###  Публикация: 1058953   (463891) от 03.10.2016
-
-VA - 80s Euro Disco Collection (2016) [MP3|320 Kbps] <Space Disco, Italo Disco, Eurobeat>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Bodyguard (12 Version) 06:23
-02. Silent Circle - Moonlight Affair (Maxi Version) 06:18
-03. C.C. Catch - I Can Lose My Heart Tonight (Extended Club Remix) 05:53
-04. Grant Miller - (Find My) Tracks In The Snow (12 Version) 05:06(   Читать дальше...   )Жанр: Space Disco, Italo Disco, EurobeatПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387AB2AABB29260D417F8B64EF62734B4E9F7362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549618   (463176) от 20.09.2012
-
-VA - Самый Cвежак Русский Cпецвыпуск 1 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A'Studio - Я искала тебя
-02. Марсель - Иди ко мне
-03. 3XL PRO - Жаркое Лето
-04. Иван Дорн - Так сильно (Люблю я лето)
-05. Дима Билан и Юля Волкова - Любовь-сука
-06. DJ Smash feat. Тимур Родригез - Jump
-07. Стас Пьеха - Старая история
-08. 5sta Family - Вместе Мы
-09. Дмитрий Маликов - Прости любимая, прости
-10. Балаган Лимитед - Кто бы мог подумать(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448FC4B626C67130D40472369C2EF0382CAF4133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549708   (463168) от 20.09.2012
-
-VA - Осенний Сезон Попсы (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Рыбак - Стрела Амура
-002. DJ Smash feat. Тимур Родригез - Jump! (Radio Edit)
-003. ДИСКАЧ-90х - Come Back To USSR
-004. Настя Задорожная - Воздух
-005. Лолита Feat. Quest Pistols - Ты Похудела
-006. Даша Русакова - Капли дождя
-007. Дима Билан и Юля Волкова - Любовь-сука
-008. Наталья Могилевская - Изменница
-009. DJ Jim & Extasy Project feat. Timo - Very Good (Radio Mix)
-010. Soda - Разлука(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0951F7B49D07072294FCEC7801A9EF0DC054A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 388528   (461270) от 16.09.2011
 
 VA - Хит-парад Record 8 50/50 (2011) [MP3|256 kbps]<Клубная>
@@ -775,6 +676,99 @@ VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30C051E31359068493617BCA7FBC928CAAE5F9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389695   (454268) от 19.09.2011
+
+VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алисия & П. Есенин И Hi-Fi - Ангелы Вечны
+002. Shahzoda - Все Только Начинается
+003. Ika - Дорогой Мой
+004. Инфинити - Ты Мой Герой (Original)
+005. Е. Терлеева - Боль
+006. Потап И Н. Каменских - Если Вдруг
+007. Спа-Сити - Малолетняя Дочь (DJ Viduta Remix)
+008. Д. Суворова - Звезды Кому-То Нужны
+009. Чи-Ли - Ромашковое Поле (Snake Edit)
+010. 5ivesta Family - Тук-Тук(   Читать дальше...   )2011Жанр: PopПродолжительность: 11:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E1E197BE617F2B1D849EA931D841F68F56A64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942577   (453564) от 01.10.2015
+
+Patricia Kaas - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bessie (1990)
+002. Generique (1990)
+003. Kennedy Rose (1990)
+004. L' Enterrement De Sidney Bechet (1990).mp3(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 07:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CF034964412AB6897885DB59130397ED483AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942312   (453561) от 01.10.2015
+
+Whitney Houston - Good Songs (2015) [MP3|224 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. You Give Good Love (1985)
+002. Thinking About You (1985)
+003. Someone For Me (1985)
+004. Saving All My Love For You (1985)(   Читать дальше...   )Жанр: PopПродолжительность: 07:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673B48600F18C1ACA042A5C3D416D0E44C5E9464
 ```
 
 https://mybot314.ru/tekegram_catalog/

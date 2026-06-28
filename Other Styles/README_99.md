@@ -1,3 +1,129 @@
+###  Публикация: 925668   (538759) от 07.08.2015
+
+The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haunted Guitar
+02. The Third Man Theme
+03. La Playa
+04. The Executioner Theme(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154344   (538695) от 31.07.2017
+
+VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris-France-Transit - Souvenir From Rio [04:20]
+02. Santana - I Love You Much Too Much [04:41]
+03. Armik - Dancing Shadows [04:44]
+04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532378   (538560) от 07.08.2012
+
+Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo Moon
+02. Brave Hearts
+03. Dream Catchers
+04. Geronimos Laughter
+05. Ly - O - Lay Ale Loya The Counterclockwide Circle Dance
+06. Come Faithful Ones
+07. Wishes Of Happiness & Prosperity
+08. Dawa The Cradlesong
+09. Montezuma
+10. May It Be(   Читать дальше...   )Жанр: Native American,New Age,Panflute,Instrumental,Продолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532252   (538244) от 07.08.2012
+
+Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beginnings
+2. Poeme Du bambou
+3. Hachijo
+4. Yamagoe
+5. Eisa
+6. Yuzuru
+7. Odaiko
+8. Yatai BayashiЖанр: Folk,Барабаны,Шоу,ЯпонияПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050430   (538158) от 08.09.2016
 
 Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritual Chillout>
@@ -681,125 +807,6 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819506   (533682) от 07.09.2014
-
-V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronnie Price Orchestra - The First Time Ever I Saw Your Face
-02. Eddie Heywood - A Dreamer's Holiday
-03. Floyd Cramer Orchestra - It Had To Be You
-04. Ronnie Price with Nick Ingman Orchestra - Somewhere My Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367405   (533366) от 25.07.2011
-
-VA - Music Rough Guide - Arabesque (2002) [MP3|~226 kbps]<ethnic music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_533366.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:13] 01. Aisha Kandisha's Jarring Effects - A Muey A Muey
-[05:07] 02. Oojami - Fantasy
-[03:43] 03. Clotaire K - Beyrouth Ecoeurée
-[05:34] 04. Nickodemus ft. Andrea Montiero - Desert Dancer
-[06:24] 05. MoMo - Dourbiha
-[08:03] 06. Ali Slimani - S'Habi (Stereomovers remix)
-[05:41] 07. DuOuD (Mehdi Haddab-Smadj) - Zanzibar
-[04:36] 08. Mafia Maghrebine - Frère Faut Que Tu Saches
-[05:41] 09. Bled Runner ft. Dida Brother - Sidi Mansour (remix)
-[04:09] 10. Soap Kills - Tango(   Читать дальше...)2002Жанр: ethnic musicПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE86FBF253FE819264DF8E3333506932F26798BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926551   (533310) от 10.08.2015
-
-Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2011) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Else Matters
-02. Brothers In Arms
-03. Californication
-04. Don't Cry(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366000   (532734) от 25.07.2011
-
-Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Score, SoundtracksПродолжительность: 07:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B1B34CB34EAB5C25BE155B78E9E89E250F1511
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 1123606   (786373) от 08.04.2017
+###  Публикация: 1276664   (787622) от 17.01.2019
 
-Natalie Imbruglia - Counting Down The Days (2005) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starting Today  (02:56) 
-02. Shiver  (03:44) 
-03. Satisfied  (03:30) 
-04. Countind Down The Days  (04:09) (   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD11344249960762D96D9FFE22AD18F80C013013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123707   (786363) от 08.04.2017
-
-VA - Acoustic: The Collection (2017) [MP3|320 Kbps] <Pop>
+VA - Street Hits 80s (2018) [MP3|320 Kbps] <Hip-House, Pop, Jazzdance, Disco>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787622.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Alanis Morissette - Ironic (Acoustic Version)  3:56
-02.  Coldplay - The Scientist  5:10
-03.  Bruno Mars - Grenade (Acoustic)  4:07
-04.  James Blunt - 1973 (Acoustic)  3:30(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:34
+01. Chaka Khan - Ain't Nobody 4:05
+02. Gwen Mccrae - Keep The Fire Burning 5:44
+03. Zapp - Dance Floor (Single Version) 3:56
+04. Slave - Watching You (Single Version) 3:33(   Читать дальше...   )Жанр: Hip-House, Pop, Jazzdance, DiscoПродолжительность: 02:45:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D427440167F35F35AE8078D21323E1BB786C7DB5
+magnet:?xt=urn:btih:48A39593CC5C38DB2069E235BDD7E990BA88F196
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123617   (786328) от 08.04.2017
+###  Публикация: 1276662   (787621) от 17.01.2019
 
-Ganymed - 3 Studio Albums (1978-1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Pop Rock, Disco>
+VA - 80's Groove Record Box (2018) [MP3|320 Kbps] <Funk, Soul, Disco, Soul>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disco-Space-Rock Band from Austria - именно так в одном из музыкальных каталогов была охарактеризована группа Ganymed. Стартовав в конце 77-го как квартет и распавшись в 83-ем уже как квинтет, эта команда оставила значительный след в истории "диско" и музыки вообще.Список альбомов:
-1978 - Takes You Higher
-1979 - Future World
-1980 - Dimension No. 3(   Читать дальше...   )Жанр: Electronic, Space Rock, Pop Rock, DiscoПродолжительность: 02:03:48
+01. George Benson - Love X Love (4:47)
+02. Chaka Khan - This Is My Night (4:40)
+03. Sister Sledge - All American Girls (4:43)
+04. Grover Washington, Jr. - Just The Two Of Us (7:23)(   Читать дальше...   )Жанр: Funk, Soul, Disco, SoulПродолжительность: 02:10:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DB5D1F2176F55E6D935E61FCFE6CB642706A75F
+magnet:?xt=urn:btih:ABE8F05336ACFF9B91E00CD9E104516806DB3A01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123458   (786308) от 08.04.2017
+###  Публикация: 1203800   (787611) от 03.02.2018
 
-VA - Now That's What I Call Music! 96 (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Top 40, Pop Compilation, Electronic>
+Татьяна Овсиенко - Grand Collection (2004) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колечко
+02. Капитан
+03. Солнце мое
+04. Школьная пора(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347060F44AE2544FB63AB61B9A8A462D0101FE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203654   (787560) от 03.02.2018
+
+Hi-Fi - Лучшее (2015) LP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787560.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Средняя школа №7
+2. Седьмой лепесток
+3. Не дано
+4. Я кричу(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6CC4DD0094C7307B426D8075C9D1FA791CFDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512442   (787404) от 24.11.2021
+
+Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Now That's What I Call Music 96 - является 96-ым изданием серии Now! в Великобритании. Он был выпущен 7 апреля 2017 года. Обратите внимание на композицию "Fastlove", которая достигла первого места в UK Singles Chart в 1996 году. Она была добавлена в этот сборник как дань памяти Джорджу Майклу, который умер до выхода этого альбома. Ремиксованная версия песни, (   Читать дальше...   )CD1:
-01. Ed Sheeran - Castle on the Hill  (4:21)
-02. Rag'n'Bone Man - Human  (3:18)
-03. Little Mix - Touch  (3:31)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, ElectronicПродолжительность: 02:36:48
+Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
+01. When Will I Be Famous (3:59)
+02. I Owe You Nothing (3:36)
+03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5288D63847FACF9D50D957D0910A8B155D290C4F
+magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +143,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123778   (786303) от 08.04.2017
+###  Публикация: 806441   (787334) от 24.11.2021
 
-HOT R.S. - 3 Albums (1977-1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, Glam>
+Mike Mareen - Dance Control (2006) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am 5:12
+02. Cecilia (Remix) 6:47
+03. Double Trouble 5:20
+04. Peace To Mankind 4:30(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276953   (787252) от 18.01.2019
+
+Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schritt fur Schritt
+02. Repeat
+03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276959   (787242) от 18.01.2019
+
+Sabu - Sabu (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Rollin' (7:17)
+02. We're Gonna Rock (7:23)
+03. You're Mine Forever (5:48)
+04. Loose Lucy Is On The Loose (6:40)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98BD63DD87D00CE8F2E30BF8608488345840A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512539   (787088) от 25.11.2021
+
+Игорь Николаев - Пять причин (2003) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости и отпусти
+02. Мутная река воспоминаний
+03. Пять причин
+04. Человек влюблённый в Сахалин(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F96E9AAFF22874EA74C390D17561E949FF34C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512593   (787082) от 25.11.2021
+
+Александр Серов - The Very Best Of (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка венчальная (2:57)
+ 02. Мадонна (3:38)
+ 03. Я люблю тебя до слез (4:31)
+ 04. Сюзанна (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC09674CE48E6CF35D76FFD22D2E35A28B32D073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277152   (787031) от 19.01.2019
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts Vol.11 (2019) 2CD [MP3|320 Kbps] <Schlager>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа появилась на свет в Йоханнесбурге (Южно-Африканская Республика), как чисто студийная, созданная продюсером Кевином Крюгером (Kevin Kruger) и Дэном Хиллом (Dan Hill) . HOT R. S. является аббревиатурой от названия первой записанной песни, а именно -Список альбомов:
-1977 - House Of The Rising Sun
-1978 - Forbidden Fruit
-1980 - Heads Or Tails(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, GlamПродолжительность: 01:35:20
+CD 01:
+01. Eloy de Jong - Regenbogen (Remix)
+02. Nicole - Traumfänger
+03. Jörg Bausch - Erst wenn's im Sommer schneit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:22:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05ECDC2C630697B2FFDB54D71E023CFB9C1C7AC6
+magnet:?xt=urn:btih:19D0CDAE7E7CC9104DF377997A3148A4D663BC3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124102   (786141) от 09.04.2017
+###  Публикация: 1277157   (787026) от 19.01.2019
 
-VA - 80's Pop Beyond The Hits (2017) [MP3|320 Kbps] <Pop, Pop Rock, New Wave>
+VA - Schlager Aktuell 14 (2019) 2CD [MP3|320 Kbps] <Schlager>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inxs - Listen Like Thieves 03:45
-02. Duran Duran - Careless Memories (Remastered 2010) 03:55
-03. Elvis Costello - Veronica 03:08
-04. John Parr - King Of Lies 04:11(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 01:39:08
+CD 01:
+01. Michelle - Nicht verdient
+02. Beatrice Egli - Was geht ab
+03. Maite Kelly - Die Liebe siegt sowieso(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:29:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:169D589684E8C34AC9D84EE2D60CB92C426D341D
+magnet:?xt=urn:btih:9509BE6BFC37565D848EC796823FAD74056B7B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +346,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124137   (786126) от 09.04.2017
+###  Публикация: 1276909   (787019) от 19.01.2019
 
-Disco Rock Machine - Time To Love (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Funk-Soul, Disco>
+VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Please Forgive Me
+02. Mariah Carey - Without You
+03. Michael Bolton - Said I Love You ... But I Lied
+04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277091   (787002) от 19.01.2019
+
+Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn Overture (1:03)
+02. Hymn (4:28)
+03. Sogni (feat. Vincent Niclo) (4:18)
+04. Sky and Sand (4:12)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388317   (786867) от 05.06.2020
+
+VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps - That's Where the Happy People Go (7:54)
+02. Kc & The Sunshine Band - Get Down Tonight (5:17)
+03. The Spinners - Are You Ready for Love (Single Version) (3:44)
+04. Ecstasy, Passion & Pain - Touch and Go (7'' Version) (4:19)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 02:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EA76BC9F2A9D29A5ABB44974870B3789673E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388220   (786856) от 05.06.2020
+
+Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+2. Sie hat es wieder getan (feat. Florian Silbereisen)
+3. Sie ist wieder da
+4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388217   (786844) от 05.06.2020
+
+Thomas Anders & Florian Silbereisen - Das Album (2020) [MP3|320 Kbps] <Europop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disco Rock Machine - второе коммерческое название коллектива в составе Kevin Kruger, René Veldsman, Trevor Rabin, более известного под другим названием - HOT R.S.01. Time To Love (7:23)
-02. Living For The City (7:25)
-03. You Really Got Me (7:14)
-04. Loving Styles (7:21)Жанр: Electronic, Pop Rock, Funk-Soul, DiscoПродолжительность: 00:29:23
+1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+2. Sie hat es wieder getan (feat. Florian Silbereisen)
+3. Sie ist wieder da
+4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0449242119F23B88B4C12804DF3F3B31B959ECBC
+magnet:?xt=urn:btih:22188E5B6EDE24886EFBE9CEE0D5900CECC3B28F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124374   (785794) от 11.04.2017
+###  Публикация: 1388387   (786843) от 05.06.2020
 
-Bosé - Papito (2007) [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
+Joy - Party Megamix (20 Hits Non-Stop) (2015) Dance Version, RM. [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, 80s>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morena Mia (Con Julieta Venegas)  (03:45) 
-02. Si Tu No Vuelves (Con Shakira)  (05:13) 
-03. Bambu (Con Ricky Martin)  (04:58) 
-04. Nada Particular (Con Juanes)  (06:21) (   Читать дальше...   )Жанр: Soft Rock, LatinПродолжительность: 01:11:59
+01. I'm in Love (Dance Version) (3:56)
+ 02. Magic Eyes (Dance Version) (2:40)
+ 03. Fire in the Night (Dance Version) (3:00)
+ 04. Countdown of Love (Dance Version) (3:16)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:08:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
+magnet:?xt=urn:btih:4A4D16189231F82971EDB5AC48BCA28E87620414
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124547   (785760) от 11.04.2017
+###  Публикация: 1388214   (786825) от 05.06.2020
 
-Thomas Anders - Pures Leben (2017) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance>
+Григорий Лепс - Честь имею! На дистанции (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Der beste Tag meines Lebens
-2. Sternenregen
-3. Das Lied das Leben heißt
-4. Feuerwerk(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:23
+1. Проложите
+2. Не писать мне повестей, романов
+3. Ошибка вышла
+4. День Рождения лейтенанта милиции(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 01:08:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDD60941BDC687346DBEB77965CFAD7CB741FFD7
+magnet:?xt=urn:btih:7070B7EA52F64F5E8B149D890C2772A3D677F6B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124800   (785634) от 12.04.2017
+###  Публикация: 1388265   (786763) от 06.06.2020
 
-Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
+Muzz - Muzz (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Independence
-02. There Has Got To Be A Way
-03. Restless Moods
-04. I’m Back For More (ft. Bobby Womack)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
+01. Bad Feeling (02:38)
+ 02. Evergreen (04:43)
+ 03. Red Western Sky (03:13)
+ 04. Patchouli (03:29)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:43:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
+magnet:?xt=urn:btih:DDA7DF594D8C1E23FF0691C11FB29191A416A011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +578,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124608   (785564) от 12.04.2017
+###  Публикация: 1388579   (786757) от 06.06.2020
 
-VA - Через Тернии К Звездам. Песни О Космосе (2009) [FLAC|Lossless|image + .cue] <Pop,  Monolog, Vocal, Field Recording, Spoken Word>
+Smoove & Turrell - Stratos Bleu (2020) [MP3|320 Kbps] <Funk, Disco, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It (04:30)
+ 02. It Ain't Working (05:37)
+ 03. Elgin Towers (04:32)
+ 04. This Time (05:04)(   Читать дальше...   )Жанр: Funk, Disco, SoulПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B7D2596E939ADE503CE61B9092166408E2A998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388458   (786731) от 06.06.2020
+
+Ансамбль русских народных инструментов Карусель - Вечерний звон (2002) [FLAC|Lossless|tracks + .cue]<Retro>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. К.Циолковский - Речь К.Э.Циолковского (0:45)
-02. Е.Кибкало - Всё выше (Марш авиаторов) (3:02)
-03. М.Бернес - А самолёты сами не летают (2:44)
-04. Передача с борта ИСЗ 'Спутник-1' - Позывные первого спутника Земли (0:26)(   Читать дальше...   )Жанр: Pop,  Monolog, Vocal, Field Recording, Spoken WordПродолжительность: 01:11:20
+01. Гай да тройка!
+02. Только раз
+03. Коробейники
+04. Ночь светла(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
+magnet:?xt=urn:btih:97A59B0F120E789C295012301CA9605C901778CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,231 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204025   (785429) от 04.02.2018
+###  Публикация: 1388472   (786721) от 06.06.2020
 
-Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
-02. Bad Attitude 4:03
-03. Never In A Million Years 4:11
-04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203968   (785427) от 04.02.2018
-
-David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Night & Day
-02 – Real Love
-03 – Night After Night
-04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203974   (785424) от 04.02.2018
-
-VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785424.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Selena Gomez Feat Gucci Mane - Fetish
-02. Demi Lovato - Sorry Not Sorry
-03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204000   (785422) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
-02. Deep In The Dark 3:51
-03. Close Enough 3:42
-04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204014   (785421) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US [MP3|320 Kbps] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Over Love 3:50
-02. Shadow Of Love 5:05
-03. Angels Calling 3:48
-04. Meaning Of The Word 5:42(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204010   (785396) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2, Europe [MP3|320 Kbps] <Pop Rock, Synth-pop, AOR>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Hold Me 4:46
-02. Maybe Tonight 3:40
-03. Foolish Lullaby 4:18
-04. Spanish Eddie 4:08(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, AORПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204029   (785393) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
-02. The Sweet Hello, The Sad Goodbye 5:07
-03. Over My Heart 4:25
-04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277292   (785364) от 20.01.2019
-
-Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
+Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1: Forever And Ever - The Greatest Hits
-01. Forever And Ever
-02. Happy To Be On An Island In The Sun
-03. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:39
+01. Chromatica I (01:00)
+02. Alice (02:57)
+03. Stupid Love (03:13)
+04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2240C2EE9CE4872155F01E1B2D6EE5C9C4B152C5
+magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,29 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190411   (785325) от 20.01.2019
+###  Публикация: 1388505   (786713) от 06.06.2020
 
-Алена Винницкая - 4 Альбома (2004 - 2010) [FLAC|Lossless|image + .cue] <Pop Rock>
+Григорий Лепс - Честь имею! На дистанции (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Авторская песня>
 
 >>Pop
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Алёна Винницкая (настоящее имя Ольга Викторовна Винницкая, укр. Ольга Вікторівна Вінницька; род. 27 декабря 1974, Киев) — украинская автор и исполнительница песен в стиле поп-рок, одна из первых участниц женской поп-группы «ВИА Гра».
-Живёт и работает на Украине, пишет и исполняет песни на русском языке.01. Давай забудем всё
-02. Рассвет
-03. Измученное сердце
-04. Я здесь, я рядом(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:52:36
+1. Проложите
+2. Не писать мне повестей, романов
+3. Ошибка вышла
+4. День Рождения лейтенанта милиции(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 01:08:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11637F2DBBA56AF15D0CCAA054D8BAAEC27C680C
+magnet:?xt=urn:btih:A3A48F088B18034A4E4E94D4F8E0CD263C5708D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204176   (785219) от 04.02.2018
+###  Публикация: 1388494   (786691) от 06.06.2020
 
-VA - Танцевальный рай: Hit Mix, Vol. 2 (2018) [MP3|320 Kbps] <Pop, Dance>
+Татьяна Буланова - День Рождения! (2020) [MP3|320 Kbps] <Pop>
 
 >>Pop
->>Eurodance, Euro-House, Technopop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sherrie Sherrie - Nana Song (feat. Nina)
-02. Зомб - #Делаемфлекс
-03. ЛСП - Монетка
-04. The Rasmus - Silver Night (Astero Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:36
+1. День рождения! [3:28]
+ 2. Дым сигарет [3:18]
+ 3. Алёшка Кудряшов [3:06]
+ 4. Там, где кончается осень [3:39](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDCCC394C984115E53A8920BA6061C37A626389A
+magnet:?xt=urn:btih:2FCBC8113992BECFD0A64347789F32A0F24470B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,141 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203833   (785211) от 04.02.2018
+###  Публикация: 1388510   (786667) от 06.06.2020
 
-Barbra Streisand - Guilty (1980) 2015, Columbia [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Марк Бернес - Марк Бернес. Часть 1 и 2 (2020) Remastered [MP3|320 Kbps] <Советская эстрада, Ретро>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Guilty (with Barry Gibb) (4:27)
- 2. Woman In Love (3:53)
- 3. Run Wild (4:09)
- 4. Promises (4:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:04
+Часть 1:
+1. Три года ты мне снилась
+2. Привет Бухаресту
+3. Мужской разговор(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:35:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB497D3CAC4F8D0E4420D3FEFD7BA3A1064454AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204069   (784986) от 05.02.2018
-
-Laura Branigan (Лора Брэниган) - Memories (1978) 7", Single, Not On Label [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Memories 3:12Жанр: PopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05E6CE5E6C625689B94DB956724E6B0991EBEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214849   (784949) от 21.01.2019
-
-Мика Ньютон - 2 Альбома (2005 - 2006) [FLAC|Lossless|image + .cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро I
-02. Теплая река
-03. Цунами
-04. Пожарные(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BF2D902988031934F3EA2E855ACD848AD1BD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204154   (784947) от 05.02.2018
-
-Laura Branigan (Лора Брэниган) - Gloria 2004 (2004) EP [MP3|320 Kbps] <Trance, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Gloria 2004 (Prodygee & Davis Mix) 3:23
-02. Gloria 2004 (Alternative Radio Version) 3:38
-03. Gloria 2004 (S.A.D. Radio Mix) 4:11
-04. Gloria 2004 (Prodygee & Davis Remix) 6:18(   Читать дальше...   )Жанр: Trance, Synth-popПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FBCADB8478EC567D5C084B0818EE1B53C9025E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204169   (784902) от 05.02.2018
-
-Николай Басков - Игра (2016) 2CD, Box Set [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь - не слова
-02. Натуральный блондин
-03. Не было бы печали
-04. Я не вернусь в любовь(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9506D2AC7F3C841E8ECD9BF910EEFEB3E7D3E615
+magnet:?xt=urn:btih:A0AF8EF44791AF88EB243EFAB910F0D9BD1F923B
 ```
 
 https://mybot314.ru/tekegram_catalog/

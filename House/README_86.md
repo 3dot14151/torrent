@@ -1,3 +1,177 @@
+###  Публикация: 1752963   (41599) от 03.10.2024
+
+VA - Milk & Sugar House Nation Ibiza (2024) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar - Let the Sun Shine (James Hurr Scorchio Extended Mix) (6:09)
+02. Earth N Days - Stronger (Extended Mix) (5:32)
+03. Antoine Clamaran, Lulu Hughes - Feel It (Jay Vegas Classic House Extended Mix) (5:22)
+04. Alex Lo Faro - Love You (Extended Mix) (4:22)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA92C36A483C49DF861FF4822AB70E20CEFE57B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755006   (40473) от 13.10.2024
+
+VA - Armada Electronic Elements - ADE 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan Blomqvist & Natascha Polké - Midnight Sun (Extended Mix) [4:40]
+02. Armin van Buuren & Agents Of Time feat. ORKID - Love Is Eternity (Extended Mix) [5:22]
+03. Andrea Oliva & Skye - Dancing In The Rain (Extended Mix) [6:29]
+04. Maxim Lany - Tigra (Extended Mix) [5:34](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 02:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72481812CA4EC0C725DC7AB3DE4E511BFD9D422E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755615   (40170) от 16.10.2024
+
+VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker & Hanson - Afterthought (Extended Mix) [08:13]
+02. Above & Beyond - Is It Love? (1001) (Matt Lange Extended Mix) [07:46]
+03. Ilan Bluestone & Giuseppe de Luca - Frozen Ground (Spencer Brown Extended Mix) [07:12]
+04. Soundprank - Atlantic (Extended Mix) [07:19](   Читать дальше...   )Жанр: House, Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE6292A3FE81EA65A813949B8B6827689F0607C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755708   (40056) от 17.10.2024
+
+Rufus Du Sol - Inhale / Exhale (2024) [MP3|320 Kbps] <Electronic, Breaks, House, Deep House, Progressive House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhale (1:48)
+02. Lately (4:10)
+03. Breathe (3:02)
+04. Music is Better (3:56)(   Читать дальше...   )Жанр: Electronic, Breaks, House, Deep House, Progressive House, Indie DanceПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590DE00088446090DCF7431EE367E10D6E9FAE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756517   (39665) от 21.10.2024
+
+VA - Amsterdam After Disco (2024) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazibiza - Soul Cool (Original Mix) (4:48)
+02. Cheesecake Boys & Crazibiza & Belle - Good Life (Original Mix) (4:57)
+03. Westray - Last Night (Original Mix) (4:55)
+04. Crazibiza - Like A King (Original Mix) (5:00)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CD5BED667905FA1082CC0C35A661051E377579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757168   (39176) от 26.10.2024
+
+VA - Autumn Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepest, AMHouse & Ghalia - Bastanna (I'll Wait) (03:00)
+02. Moses & VOLB3X - Let Me Down Slowly (03:32)
+03. Umur Anil Gokdag, TwoRule & Liwia - Everything I Wanted (03:11)
+04. Tury, Pawoh & N@OM1 - Lovely (02:24)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E437474E9CBABF73D1228BCE42AA25808A0C7395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757472   (39078) от 27.10.2024
 
 VA - Halloween 2024: Best of Dance, EDM, House & Electro (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -568,180 +742,6 @@ VA - Lump Records Greatest Hits (2024) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67B10D4502124E1EDC3D8CAA7748736C3A31F335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767024   (33456) от 21.12.2024
-
-VA - DJ's 12" Club Tunes 2024: The Best Of (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils van Zandt & Johnny Nuts - FU! Johnny (Extended Mix) (04:03)
-02. Abel Ramos, DJ Ghost & Albert Neve - Maxximizing (Extended Mix) (04:03)
-03. Kofi Sanoba - Famemba (Extended Mix) (06:01)
-04. Laurent Wery & Xerxes-K - Good Old Days (Extended Mix) (04:11)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF64FB638A9A05641F9CD94FEFB311EE1DA0DABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766802   (33454) от 21.12.2024
-
-VA - Winter Top Tracks Deep House Natural Soundcloud (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrasyab - Still With Me (03:55)
-02. Taylan Karabulut - Rigel (05:32)
-03. Berkan Ataç - Dream (03:02)
-04. Gus One - Without You (04:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9203EA7065171DBAE9A7F7D17C0E03049EEA8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767047   (33449) от 21.12.2024
-
-VA - Happy New Year Party 2025 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - Paradise (03:06)
-02. MaxRiven - Loveparade (02:24)
-03. Rene Rodrigezz, Nico Roschnai & Miguel Lemos - Call It Love (02:30)
-04. Teknova - Voices (02:06)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE3325A262CCB4FD34F5F5BC7AEBEB31BA62311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766810   (33447) от 21.12.2024
-
-VA - Armada Music Year Mix 2024 - Extended Versions (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autograf, Hoax (BE), sadHAPPY - Feel The Love (Extended Mix) [06:19]
-02. Brando - Mine (Extended Mix) [02:59]
-03. Kelli-Leigh - Unconditional (Extended Mix) [04:33]
-04. SNBRN - Live Like This Forever (Extended Mix) [04:40](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 07:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBFE759A3389AA6AD0DFF777776CF69CFD1D460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768920   (32936) от 26.12.2024
-
-VA - Happy New Year 2025 (Mixed by Edvard Hunger) (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edvard Hunger - Happy New Year [59:11]
-02. Edvard Hunger - Move On [05:22]
-03. Akustika - Eye Of The Storm [08:25]
-04. Dimas Mixon - Blinding Lights [07:40](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 02:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAE26F80CF215248CDDD2CBA9C791E3250EA255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769475   (32726) от 28.12.2024
-
-VA - Dance Hits Winter Selection (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin & Note U - Be My Lover (05:26)
-02. Harmonize - Show Me Love (05:10)
-03. Abee Sash - Memories (03:36)
-04. Cristian Ferrer - Perfect Storm (Radio Edit) (04:01)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577F9BB949FE482A3B1A38F16D3F3FCA17D93149
 ```
 
 https://mybot314.ru/tekegram_catalog/

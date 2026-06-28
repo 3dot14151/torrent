@@ -1,3 +1,55 @@
+###  Публикация: 1261108   (307603) от 09.11.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (194) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA41F727C128648B3F40196023B7352CFDF413F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261096   (307600) от 09.11.2018
+
+Обои - Desktop Wallpapers Full HD. Part (305) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DCC8D866BAC32F397A143BC8DE74EA911CA8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261088   (307598) от 09.11.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (188) [JPG]
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:779D86A738005D6597316BFD606B431069CD768B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584553   (305483) от 05.12.2012
-
-Компьютерная графика - Artworks by Digital Artists (02.12.12)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компьютерная графика - Artworks by Digital Artists (02.12.12)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584987   (305478) от 05.12.2012
-
-Работы художников - Artworks by Karol Bak (2003-2012)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Artworks by Karol Bak (2003-2012)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9962918120AFD8D5A369A4FAF3854294F346762
 ```
 
 https://mybot314.ru/tekegram_catalog/

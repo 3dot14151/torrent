@@ -1,3 +1,154 @@
+###  Публикация: 1059483   (459579) от 05.10.2016
+
+VA - Top 100 Club Tracks (September) (2016) [MP3|~319-320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459579.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Andrew Malevich vs Alexx Slam & Mike Prado - Stand Up (DADDY DJ Mashup) (04:00)
+002.Andrew Malevich vs Romi - Tutti Frutti (DADDY DJ Mashup) (03:43)
+003.Andrew Spencer, Blaikz - We Are Not Impossible (Extended Mix) (05:37)
+004.Anton Liss feat. Вика Маскова - Закроем Тему (Dj Andy Light & Dj O'Neill Sax Official Remix) (03:07)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD7CD20D39E574A0BB70EE4B73DE9DBD69CB5DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321307   (459084) от 24.08.2019
+
+VA - Enhanced Techno Electronic (2019) [MP3|320 Kbps] <Techno, Electronic, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459084.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Midori Hirano - October Original Mix
+002. Da Tweekaz - Forever (Extended Mix)
+003. Deepness - Melody Of Love
+004. Degos - Living The Life(   Читать дальше...   )Жанр: Techno, Electronic, EDMПродолжительность: 12:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C02BEB74BE2DFBBDB528AAF902DA64B9A2200BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321310   (459077) от 24.08.2019
+
+VA - My Own Litle Paradise (2019) [MP3|320 Kbps] <Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ialaz - Blonde Hurricane
+002. Allume - Adams
+003. Msh - In Every Life
+004. Mareekmia - Grace & Misery(   Читать дальше...   )Жанр: Chillout, Lounge, RelaxПродолжительность: 07:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8CA0C5B6FBE028B655DE74D84B7C1E27F9B5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549675   (458516) от 22.09.2012
+
+VA - B-Side - Smash It Up Mix (2011) [MP3|192 кб/с]<Breaks, Ghetto Funk, Hip Hop,Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Public Service - B-Side
+02. Ike's School - Featurecast
+03. Crowd Murder - Stickybuds
+04. Shimmy Shimmy Ya (WBBL remix) - ODB
+05. Insane In The Brain (B-Side edit) - Cypress Hill
+06. Ooooh! - Featurecast
+07. Two Blue - B-Side
+08. Massive Jungle (demo) - B-Side
+09. All The Girls - B-Side
+10. Yeah! (demo) - B-Side(   Читать дальше...   )Жанр: Продолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AADAB9E5587468C50AC028D82BDA9F5CB765880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408304   (458413) от 11.09.2020
+
+VA - Astral Dimension (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458413.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ozymandias - Sea Emperor
+002. Makai - Are We Dreaming
+003. Sensifeel - Insane
+004. Volcano - What Is Life(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC8F943C0A86030F55B5040F5D34D7117BFE66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408311   (458293) от 11.09.2020
 
 VA - My Sweet Side: Vocal Chillout (2020) [MP3|320 Kbps] <Chillout, Downtempo, Vocal>
@@ -611,172 +762,6 @@ VA - Total Big Room Anthems (2015) [MP3|320 кб/с]<Trance,House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7B7ED36F9B70DD52D8D0FB57A7C6244BFC3531C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942181   (456081) от 30.09.2015
-
-VA - Acoustic Chill Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zara James - Just Can't Get Enough
-02. Karizma Duo - Wake Me Up
-03. Anjali Joseph - May It Be
-04. Alice Lamb - Gravity(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E047635B7BA5664C72F9280C3B0AABAB8E0CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548724   (456065) от 23.09.2012
-
-VA - Ploom Boom: Pause - mixed by dj Alex Cosmo (2008) [MP3|320 кб/с]<Electro House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk # 1
-Продолжительность:  01:00:59
-
-1. Groovestylerz – Proove Your Love (2-4 Grooves Remix)
-2. Klaas vs Unknown – Right On Time (Electrosila Bootleg Mix)
-3. Dj Sket - Rock The Punguin (bootleg)
-4. Yanou – Children Of The Sun (R.I.O. Remix)
-5. Brad Hed – Girls & Boys (Vandalism Vocal mix)
-6. Jakarta – One Desire (Mondotek Remix)
-7. Dj Antoine – Entourage (Original mix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:04:11
-1. 2 Special feat. Lena Boo - Look Into My Eyes (DJ Lutique Rmx)
-2. Rihanna – Take a Bow (Seamus Haji & Paul Emanuel Club Mix)
-3. Basto! feat. I-Fan - Savior (Extended Mix)
-4. Simioli & Marchesini – Love Is An Angel
-5. Delinquent Feat Kcat - My Destiny (Wideboys Remix)
-6. Kid Massive - Take My Hand (Kevin Sunray Mix)
-7. Le Tompe feat. Jenny Casparius - Tell Me (original mix)
-8. Potbellez - Don t Hold Back (Out Of Office Remix)
-9. Alex Barattini – Real Emotion (Edition Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58570E5A8F0700D374D9F256ADDDB872932682C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408348   (455999) от 12.09.2020
-
-VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455999.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tonina - Adamly
-002. Aya Nakamura - Sucette
-003. Teedra Moses - Caught Up
-004. Judy Temple - Stocking Cap(   Читать дальше...   )Жанр: R&B, Soul, Hip LyricПродолжительность: 09:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08695C015DD68778EF3AB414EDC569045C2B926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550278   (455856) от 23.09.2012
-
-VA - Dubstep Top (June) (2012) [MP3|320 кб/с]<Dubstep, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Pac feat. Sinima - God Bless The Dead (DUBSTEPBASTER)
-02. Aaa - reallity
-03. Adele - Set fire to the rain (Lay remix)
-04. Adventure Club - Need Your Heart Ft Kai
-05. Aeph - When You
-06. Alphabet Pony - Space (VIP Mix)
-07. AmyKuney - Sway(ButchClancyRemix)Final
-08. Anneka - Shut Her Down (Mario M Remix)
-09. BARRON - Bambatta (Vip mix)
-10. Blackmill - Home (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 05:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B330BF46341DD5D061AE01A9FE3F8B1F25D67C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060357   (455468) от 07.10.2016
-
-VA - Happiness Emotions: Uplifting Trance (2016) [MP3|320 Kbps] <Progressive Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myk Bee - Endless Drive (Raw & Carpenter Remix)
-002. Beat Service & Ana Criado - An Autumn Tale (Original Mix)
-003. Max Millian - Distant Road (Radio Edit)
-004. Eximinds - Sunrise (Extended Mix)(   Читать дальше...   )Жанр: Progressive Uplifting TranceПродолжительность: 10:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A4B33D17C7EA2DFEB054E078732C4E7372822
 ```
 
 https://mybot314.ru/tekegram_catalog/

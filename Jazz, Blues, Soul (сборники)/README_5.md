@@ -1,3 +1,32 @@
+###  Публикация: 1376815   (856456) от 19.04.2020
+
+VA - Whiskey Blues - Blues Soldier (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sherman Robertson - Make It Rain
+02. Aron Burton - Cold, Cold Feeling
+03. Mick Kolassa; Annika Chambers - Fever
+04. Blackbox Zero - Crossroads(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 17:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C618EE3A793069BAEFA097B0B3DAF8AD3F2A9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109988   (855403) от 01.03.2017
 
 Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -715,35 +744,6 @@ Chris Bell - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A40C66424303404EA549397902990E1065462EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501150   (835045) от 10.10.2021
-
-VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835045.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Steoples - Alas Alice
-002. Timewarp Inc - Breakbit
-003. Eunice Haze - String Around My Heart
-004. Niles Philips feat. Tonkin - Nose Dive(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 08:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
 ```
 
 https://mybot314.ru/tekegram_catalog/

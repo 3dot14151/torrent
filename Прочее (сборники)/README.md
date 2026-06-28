@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1878495   (1074671) от 
+
+VA - Music News For Forum vol.174 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074671.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Безупречный - Ты смертельно прекрасна (05:55)
+ 002. 10AGE - Делай как я (03:29)
+ 003. A$THMA BOYS - lala (01:41)
+ 004. ABV & Егор Гайдук & MKHLSDRV - Stars in the Sky (03:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB90D3A304A6D7EEB2E50A030130CF06BCBFB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878082   (1074419) от 
+
+VA - Summer Dance Hits 2026 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lykke Li, The Magician - I Follow Rivers - The Magician Remix (4:39)
+02. MIKA - Relax, Take It Easy (4:30)
+03. Ella Henderson, Rudimental - Alibi (feat. Rudimental) (4:30)
+04. Doechii - Anxiety (4:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F85D15E78441FE12345BB31636EDDBB1660A1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877673   (1074209) от 
+
+VA - Music News For Forum vol.173 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074209.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ленинград - Нора (02:11)
+ 002. 4444 OF A KIND - Waiting 4 (Extended Mix) (04:11)
+ 003. AALLAR - Travel On (03:12)
+ 004. Alex Coffman - Танцевала босиком (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EAA0B9A892341DF931626CA40E1770A942B945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876787   (1073570) от 17.06.2026
 
 Daniele Gazzarin - Favorites Collection Part 14 (2026) [MP3|320 Kbps] <Country, RootsRock>
@@ -659,93 +746,6 @@ Garth Brooks - Hits singles (2026)[MP3|320 Kbps] <country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C8A04F302B89C0ADFD6C372A34B0FDA6254E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872885   (1070663) от 25.05.2026
-
-AI - Russian Poets Covers Compilation Part 19 (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А. Ахматова, A.M. Artimusic - Со Дня Купальницы-Аграфены…
-02 - М. Волошин, Lus Aleksandrs - Зеркало
-03 - И. Бунин, Wps - Вечер
-04 - С. Надсон, Поэтический Оазис - Только Утро Любви Хорошо...(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD00B759F62BD64F60DB2CDE9F44819DFEEA248B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872884   (1070662) от 25.05.2026
-
-AI - Russian Poets Covers Compilation Part 18 cover by Dmitrii Razinov (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я. Смеляков, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Вот Опять Ты Мне Вспомнилась, Мама
-02 - М. Цветаева, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Посвящение Женщине В Гибельном...
-03 - М. Цветаева, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Так Будет
-04 - М. Цветаева, Когда Поэзия Становится Музыкой, Dmitrii Razinov - Ты Проходишь (   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B766F3A1D363CBBF63B32EC27E9C72367A4D3CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872882   (1070661) от 25.05.2026
-
-AI - Russian Poets Covers Compilation Part 17 cover by iSenin (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Гори, Звезда Моя
- 02 - Я Покинул Родимый Дом
- 03 - О Красном Вечере
- 04 - Месяц Рожу Полощет В Луже(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896395A81D39842922C5E56CC49DA2BD0F413D83
 ```
 
 https://mybot314.ru/tekegram_catalog/

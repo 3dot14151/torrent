@@ -1,3 +1,119 @@
+###  Публикация: 1800087   (16080) от 31.05.2025
+
+Joe Yellow - Greatest Hits & Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover To Lover (7'' Version) (4:20)
+02. Take My Heart (7'' Vocal Version) (3:56)
+03. I'm Your Lover (7'' Vocal Version) (3:51)
+04. Love At First (7'' Vocal Version) (3:29)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7BD76FFB7C86DFFC850C58542B49477859E42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802918   (14008) от 20.06.2025
+
+V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Astroventure
+02. Spacehawk - Star Chaser
+03. Italo Emotion - Back To Life (Primero Remix) 
+04. Kebu - Fourth Rendez-Vous(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805090   (12562) от 04.07.2025
+
+VA - Italo Disco Dance Party Collection Part 3 (2024) CDr, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlimkhanOV A. & Victoria Nordmann - Disco Night (Extended Version) (6:01)
+02. Magic System D.J. - Beautiful Night (5:02)
+03. Ancient Silence - Don't Let Me Down (3:59)
+04. Mancol feat. Anita Campagnolo - Look In My Eyes (5:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE5DCA4A78860FBA538B30D4D7486107A22BFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805088   (12552) от 04.07.2025
+
+VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Heroes - You're My Heart (Album Version) (5:50)
+02. Mr. Milkman - The Ghost (Extended Version) (6:23)
+03. Valerie Star - I Follow The Rainbow (Extended Vocal Star Mix) (6:34)
+04. AlimkhanOV A. - Rainy Night In Heaven (Radio Version) (3:46)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EBF49A875CC1625D945C22C06D8DEB1FE3C9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808131   (10575) от 23.07.2025
 
 Satin Jackets - Cruise Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco>

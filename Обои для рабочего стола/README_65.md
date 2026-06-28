@@ -1,3 +1,29 @@
+###  Публикация: 580060   (346008) от 24.11.2012
+
+Fantastic Wallpapers (23.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE43C545F2C1BFD94376FFEE122FF59677366FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073557   (344950) от 16.11.2016
 
 Обои - Holiday wallpaper 2016 [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563554021C01A461049BFD77DCE35F9F011C6B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955016   (336671) от 09.11.2015
-
-Обои - Большая подборка обоев  на тему природа 1920 x1080 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вам  большую подборку обоев на тему ПриродаФормат: JPGРазрешение файлов: 1920 x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43824C243F4D14DA22531E586D7B5F54AF3AEB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

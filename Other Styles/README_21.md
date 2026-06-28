@@ -1,3 +1,119 @@
+###  Публикация: 1363476   (942549) от 28.02.2020
+
+VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942549.jpg" />
+</div>
+
+
+###  Подробнее
+
+|04:19| 01. Eyes Ripping Fire
+|04:47| 02. Dancing Madly Backwards on a Sea of Air
+|04:39| 03. Close Your Eyes
+|04:33| 04. Crimson Lust(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDEB036A12C5000B0DC77D81826FE7D999AE04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363465   (942410) от 28.02.2020
+
+Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942410.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:38| 01. Enter The Ride
+|03:17| 02. Neon Gray
+|03:31| 03. Time Capsule
+|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9113F33E46582757400EFAAFEEDE1E9200173B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361926   (942400) от 28.02.2020
+
+Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harran
+02. Horizon
+03. Passage
+04. Runaway(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4361CBCC654E87534AA1AD381FE2A81504556B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363466   (942325) от 28.02.2020
+
+Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942325.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:38| 01. Enter The Ride
+|03:17| 02. Neon Gray
+|03:31| 03. Time Capsule
+|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363531   (942318) от 28.02.2020
 
 Группа Терёха - По следу солнца (2020) [MP3|320 Kbps] <Folk>
@@ -627,122 +743,6 @@ Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364472   (936391) от 03.03.2020
-
-Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Use Somebody (Piano Instrumental) (4:04)
- 02. Firework (Piano Instrumental) (4:20)
- 03. Fix You (4:11)
- 04. Thinking Out Loud (Piano Instrumental) (3:26)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB2DA294991813E5999D5DE705A26CE5B74BEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364289   (936309) от 03.03.2020
-
-Felix Slovacek - World Melodies (2014) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Mio Babbino Caro
-02. Una Furtiva Lagrima
-03. Barcarolla
-04. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DE0960F1906C5E4336943345A2F619C708DC11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364323   (936259) от 03.03.2020
-
-Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C. Debussy - Svit luny
-02. P. I. Cajkovskij - Andante
-03. C. Saint-Saens - Samson a Dalia
-04. S. Rachmaninov - Vokalisa(   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364471   (936257) от 03.03.2020
-
-Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May It Be
-02. Ballroom Of Romance
-03. Granuaile's Dance
-04. Dulaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
 ```
 
 https://mybot314.ru/tekegram_catalog/

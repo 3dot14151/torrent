@@ -1,3 +1,219 @@
+###  Публикация: 1861639   (1062910) от 26.03.2026
+
+Светлин Наков | JavaScript. Основы программирования. Полный курс для начинающих (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие по программированию на современном высокоуровневом мультипарадигменном языке JavaScript с помощью продвинутого редактора кода Visual Studio Code представляет собой тщательно структурированный и систематизированный сборник задач в области разработки программного обеспечения начального уровня. Все задачи подробно разобраны и снабжены готовым решением (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA1D429917BC7FB8987D4EC5C4BC8E17B508AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861715   (1062893) от 27.03.2026
+
+Rob Ciampa, Matt Ciampa, Rich Murphy и др. | YouTube Channels For Dummies. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unleash Your Video Stardom!
+
+Ready to shine on the world's biggest stage? With YouTube Channels For Dummies, you'll unlock the secrets to creating powerful videos and channels that captivate audiences and propel your brand to stardom. Four renowned experts guide you through every step, from ideation to production, promotion, and monetization.
+(   Читать дальше...   )Жанр: Digital Audio Production, Podcasts & Webcasts, Digital Video ProductionЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369E4E8B0EDA8302FBA6C0E23E95B0D7930CB93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861725   (1062834) от 27.03.2026
+
+Alexia Mandeville | Video Game Design For Dummies (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn what it takes to design a video game, as a hobby or as a career!
+
+Video Game Design For Dummies teaches you what it takes to design games from concept to completion. You'll learn the theory behind great gaming experiences, and you'll discover tools you can use to bring your game ideas to life. An experienced video game developer teaches you the basics of game (   Читать дальше...   )Жанр: Computer & Video Game Design, Game Programming, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1C67A891A2F0129B351CF3257ABA9220CE72B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861827   (1062829) от 27.03.2026
+
+Patrick Marie | Modern Web Cartography. Open Source Map Solutions with OpenStreetMap, Overpass, Nominatim, Leaflet and Folium. First Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Web Cartography is your ultimate guide to practical web maps using open source tools, with a particular focus on OpenStreetMap (OSM) and its rich ecosystem. In an era where maps are embedded in virtually every digital service from navigation apps to data dashboards, understanding how to build and customize them is more valuable than ever. While proprietary (   Читать дальше...   )Жанр: Cartography, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF1057CF06192E35BAD56A8FDFDCA0AF12AB595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861832   (1062827) от 27.03.2026
+
+Raúl Pimienta, Pedro López | Ultimate .NET MAUI Projects. Design and Deploy Cross-Platform Applications with .NET MAUI Using C#, XAML, MVVM Architecture and SQLite (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062827.jpg" />
+</div>
+
+
+###  Подробнее
+
+As the need for unified mobile and desktop applications continues to rise, .NET MAUI offers a modern, efficient solution—enabling developers to create native apps for Android, iOS, Windows, and macOS using a single codebase in C# and XAML. Ultimate .NET MAUI Projects is your comprehensive, hands-on guide to mastering this powerful framework, and building production-ready, (   Читать дальше...   )Жанр: Cross-platform Software Development, Microsoft .NET, Software DevelopmentЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633785F35C2656A6B6FB22C30E947E3DE1EC2E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861835   (1062824) от 27.03.2026
+
+Sreejith Salgunan | Ultimate React Testing with Jest. Build Reliable Web Applications Using React Testing Library, Modern Testing Patterns, Async Flows and CI/CD Integration (English Edition) (2026 ...
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate React Testing with Jest uses Jest as the foundation to introduce practical, production-ready frontend testing that fits the pace of real engineering teams.
+
+The book begins by understanding why testing matters and how to approach it the right way, then moves into testing React applications incrementally. Early chapters focus on testing components and user (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: Orange Education Pvt LtdФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508030F0D577AD71A5E82D059B0A3987DB177713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861837   (1062821) от 27.03.2026
+
+Soumaya Erradi | Web3 Development with Angular. Building Web Applications with Blockchain and Web3 Technologies. First Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062821.jpg" />
+</div>
+
+
+###  Подробнее
+
+his book is a comprehensive guide that will help you create blockchain-based web applications using Angular, a powerful framework that, while not the most popular choice in the Web3 community, offers distinct advantages. Suitable for both junior developers with some knowledge of front-end development and senior developers transitioning into Web3 development, this (   Читать дальше...   )Жанр: Software Development, Web Development & Design Programming, Computer Security & EncryptionЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733E9A192BBE69C62AB54A532B6C640AB0F3C2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861711   (1062817) от 27.03.2026
+
+Ольга Козлова | Геймдев по классике. Откуда берутся сюжетные приемы в видеоиграх (2025) [PDF, FB2, EPUB]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоигры существуют уже больше полувека. За это время искушенные геймеры, казалось бы, видели уже все… Но талантливые разработчики умеют удивлять! Современный геймдизайнер – это человек-оркестр, который знает о всех компонентах видеоигр и умеет грамотно соединять их в единое целое.
+В книге рассматриваются все составные части видеоигры и рассказывается, как они создают (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571CF19B24CDF9CEBB618F774D1153A54507A416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861868   (1062806) от 27.03.2026
 
 Stewart Weiss | System Programming in Linux. A Hands-On Introduction (2026) [PDF] [EN]
@@ -472,223 +688,6 @@ Artificial intelligence algorithms are the backbone of search and optimization, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:977608126AE42C34E1C2F55D2DF803C29A51E991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861667   (1062775) от 27.03.2026
-
-Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Your detailed guide to all things Cisco―a leading player in network technology.
-
-With 800 pages of in-depth content, Cisco Networking All-in-One For Dummies is your one-stop guide to the ins and outs of networks powered by Cisco, a leading maker of networkin solutions including routers, switches, and security. You'll get thorough explanations of how to design, (   Читать дальше...   )Жанр: LANs, Internet & Networking Computer Hardware, Computer NetworkingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5339D589909348E0CC5B74E9DBE370EB93FEBE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861664   (1062774) от 27.03.2026
-
-John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Computer Architecture: A Quantitative Approach, has been considered essential reading by instructors, students and practitioners of computer design for nearly 30 years. The seventh edition of this classic textbook from John Hennessy and David Patterson, winners of the 2017 ACM A.M. Turing Award recognizing contributions of lasting and major technical importance to (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Microprocessor Design, Computer ScienceЯзык: АнглийскийИздательство: Morgan KaufmannФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861659   (1062773) от 27.03.2026
-
-Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами компактное, но вместе с тем весьма насыщен ное руководство по HTML - основополагающему языку разметки, лежащему в основе каждой веб-страницы. Здесь собрана только самая важная и актуальная информация для быстрого и эффективного освоения HTML, от простейших структур до расширенных возможностей современной веб-разметки.
-Вы узнаете, как создавать и структурировать (   Читать дальше...   )Жанр: Компьютерная литература, Программирование, WEB-мастерингИздательство: АСТФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861655   (1062770) от 27.03.2026
-
-Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062770.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book explains how the Z Garbage Collector was designed, why it was designed this way, the common pitfalls to avoid when using ZGC in JDK 25 and how to get useful information from the garbage collector.
-Java is one of the most widely used programming languages in the world. It is a memory-safe language that completely relies on a good garbage collection (GC) (   Читать дальше...   )Жанр: Software Engineering & Systems Development, Programming & Programming LanguagesЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861651   (1062769) от 27.03.2026
-
-Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Programming Language Pragmatics is the most comprehensive programming language textbook available today, with nearly 1000 pages of content in the book, plus hundreds more pages of reference materials and ancillaries online. Michael Scott takes theperspective that language design and language implementation are tightly interconnected, and that neither can be fully (   Читать дальше...   )Жанр: Compiler Design, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: Elsevier Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861647   (1062768) от 27.03.2026
-
-Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revised for a new second edition, Intermediate C Programming provides a stepping-stone for intermediate-level students to go from writing short programs to writing real programs well. It shows students how to identify and eliminate bugs, write clean code, share code with others, and use standard Linux-based tools, such as ddd and valgrind.
-
-This second edition provides (   Читать дальше...   )Жанр: C Programming, C Programming Language, Programming AlgorithmsЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861882   (1062764) от 27.03.2026
-
-Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте код-ревью продуктивным, вызывающим положительные эмоции процессом, каким он и должен быть. Неважно, проверяют ваш код или же вы проверяете чью-то работу, получите продуманные инструкции, которые помогут избежать напряженных дебатов, неплодотворных придирок и узких мест — всего того, чего мы привычно ждем от код-ревью.
-Научитесь здравому и внимательному подходу (   Читать дальше...   )Жанр: Проектирования программного обеспечения, Тестирование программного обеспечения, Разработка программного обеспеченияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861881   (1062763) от 27.03.2026
-
-Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliver code reviews that consistently build up your team and improve your applications.
-
-“Looks Good to Me” offers a unique approach to delivering meaningful code reviews that goes beyond superficial checklists and tense critical conversations. Instead, you’ll learn how to improve both your applications and your team dynamics.Жанр: Software Design Tools, Software Testing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3546C0375A5000D9A1606C4FF580AE985A625B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

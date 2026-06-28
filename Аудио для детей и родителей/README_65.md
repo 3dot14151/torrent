@@ -1,3 +1,29 @@
+###  Публикация: 1077778   (299371) от 01.12.2016
+
+Людмила Петрановская | Если с ребенком трудно (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дети не слушают своих родителей, сколько стоит этот мир. В попытках научить «нерадивое чадо», как «надо себя вести», ответственные родители вооружаются новейшими психологическими «приемчиками», разучивают современные техники сидения на гречке, а дети в ответ лишь становятся все более раздражительными и непослушными. Что же нам мешает в отношениях с ребенком, а ему (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияПродолжительность: 04:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C9A940A57A8F138A72026BE3D3E0F0099DCFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905781   (299271) от 13.11.2020
 
 Робертино Лоретти - Избранное (2003) [MP3|320 кб/с]<Italian pop, vocal>
@@ -677,35 +703,6 @@ Tweenies - The Christmas Album (2004) [MP3|320 kbps]<Детские песенк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D162AAC5AE224FD0683CFCD529E37C1A465674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270201   (290119) от 13.12.2010
-
-Disney - Princess Christmas Album (2009) [MP3|192 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Eve Dinner (Snow White; Grumpy; Bashful; Doc & Sleepy)
-02. Christmas Is Coming! (Ariel; Belle; Cinderella; Jasmine; Pocahontas; Sleeping Beauty & Snow White)
-03. Have a Holly Jolly Christmas (Bashful; Doc; Grumpy & Snow White)
-04. I'm Giving Love for Christmas (Cinderella)(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B7A1AAA1E213030634630549D28D14386ECE60
 ```
 
 https://mybot314.ru/tekegram_catalog/

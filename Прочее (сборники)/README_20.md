@@ -1,3 +1,206 @@
+###  Публикация: 975716   (971487) от 15.01.2016
+
+VA - Дискотека 2016 Dance Club Vol. 147 от NNNB (2016) [MP3|320 кб/с] <Dance, Club, House, Trance, Pop, Dubstep, Breaks, Drum’n’Bass, Trap, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxes - Amazing (Cahill Radio Edit)
+02. Flashtronica - I Can`t Stop (Diego Power Real Deep Remix)
+03. Armin Van Buuren, W&W - If It Ain’t Dutch (Radio Edit)
+04. Luke Bond vs. Cartel - Once More (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, House, Trance, Pop, Dubstep, Breaks, Drum’n’Bass, Trap, Chill OutПродолжительность: 11:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D022F85BAB8BF5336FCBB1A4B4AA946B9326D707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975768   (970938) от 16.01.2016
+
+VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Brando - Love Is A Fantasy (Radio Remix) (04:17)
+02. Boris Zhivago - Love In Russia (Radio Remix) (04:45)
+03. Birizdo I Am - Maybe Baby (Radio Edit) (04:04)
+04. Casanova - Angel Eyes (Short Version) (04:31)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 04:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F6500CDE5AD50243039720FC5330E0AF30D02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975900   (970928) от 16.01.2016
+
+VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House, Electro, Bigroom, Dutch, Dirty, Bounce>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970928.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. W & W And Moti - Spack Jarrow (Original Mix) 04:31
+002. Showtek Feat. Vassy - Satisfied 04:19
+003. Global Deejays & Frontload - Get Up! 04:28
+004. Starjack Feat. Mimoza - Thunder (Starjack Club Mix) 05:30(   Читать дальше...   )Жанр: Club, House, Electro, Bigroom, Dutch, Dirty, BounceПродолжительность: 09:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19BCBF1115E9901188A467B791EB382F38CCF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976080   (970872) от 16.01.2016
+
+VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Cheatham - Get Down Saturday Night (Club Mix) [06:52]
+02. Magazine 60 - Rendez-Vous Sur La Costa Del Sol (Maxi Version) [05:21]
+03. Boney M. - Gotta Go Home (Club Mix) [04:26]
+04. Dance Department - Paradise (Extended Dance Remix) [08:03](   Читать дальше...   )Жанр: Disco, Italo Disco, EurodiscoПродолжительность: 05:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F55827469263974D2E5A65392B657DD1D23032A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358033   (970630) от 06.02.2020
+
+VA - 100 Greatest BRIT Awards Winners (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970630.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - New Rules
+002. Stormzy - Blinded By Your Grace, Pt. 2 (feat. MNEK)
+003. Little Mix - Shout Out to My Ex
+004. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF9610D4ABC7E6C90D4B0A4F5FCCC784A24180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976432   (969830) от 17.01.2016
+
+VA - I Love Italo Disco ot Vitaly 72 - 5 (2015) [MP3|208 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D. White - One Wish (Extended Mix) (05:20)
+02. Liebe - I Believe In You (04:14)
+03. Italover - Forever Alone (04:09)
+04. Ken Laszlo - Tin Box (06:01)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 04:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6738A91D9649A3F99CA649AED76ED6231261D4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976501   (969725) от 17.01.2016
+
+VA - I Love Italo Disco ot Vitaly 72 - 6 (2015) [MP3|201 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kristian Conde - Light In The Dark (06:23)
+02. Tonschatz - Magic Energy (Single Version) (03:45)
+03. Mode One - Ocean Of Love (06:14)
+04. D.J. Savage - I Bridge New Life (Extended Version) (07:36)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 05:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8F1DE2D1B76FFE262AEEABA816383D4E4D372D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976465   (969654) от 17.01.2016
 
 VA - Dance Radio Edit: Celebrate Life (2016) [MP3|256-320 кб/с] <Dance, Club, House, Electro>
@@ -554,207 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360006   (961920) от 14.02.2020
-
-VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran – Perfect Duet (Ed Sheeran & Beyoncé)
-02. Benji & Fede – Ogni volta
-03. Dan + Shay – Tequila
-04. Bruno Mars – Just the Way You Are(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359986   (961881) от 14.02.2020
-
-VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dava - Ранила (Amice Remix) (4:36)
-2.Veber - Я Буду Кричать (4:04)
-3.Bahh Tee feat. HammAli & Navai - Жить, Не Думая О Тебе (3:55)
-4.Anivar feat. Adamyan - Руку Держи (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007C25FEF577B36CF81E3A15F1F46D3D7AE5A5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360225   (961853) от 14.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights 3:22
-02. SAINt JHN - Roses (Imanbek Remix) 2:56
-03. Zivert - Credo 3:04
-04. AronChupa & Little Sis Nora - Hole In The Roof 2:50(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B2B368A9B43F950F9F3AC6A39BD1B187D96C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747649   (961449) от 20.01.2014
-
-VA - The Official UK Top 40 Singles Chart (19-01-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот раз BBC очень поздно опубликовало свой традиционный UK Singles Chart . В 23.05 по Москве появился очередной официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Pharrell Williams - Happy (3:53)
-02. Pitbull Feat Ke$ha - Timber (3:24)
-03. Avicii - Hey Brother (4:14)
-04. Jason Derulo - Trumpets (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB208371828AAE09321F2321F91624099FAA33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978943   (961060) от 25.01.2016
-
-VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, Pop, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roman Flugel - Wilkie (Original Mix)
-002. Rex The Dog - Musik Hypnotises (Original Mix)
-003. Rayko - Get Up
-004. NTEIBINT - A Baby For My Bass(   Читать дальше...   )Жанр: Funky House, Nu Disco, Pop, Indie DanceПродолжительность: 10:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B318C26DF8031AD3930C44BA6B3BE3673D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253400   (960986) от 20.01.2014
-
-VA - Музыка любви - 5CD (2008) [MP3|320 kbps] <Other, Romantic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Other, RomanticПродолжительность: 05:49:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360276   (960294) от 15.02.2020
-
-VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.A$AP Ferg - Value (2:47)
-2.AJR - Bang! (2:50)
-3.Anivar feat. Adamyan - Руку Держи (3:57)
-4.Anne-Marie - Birthday (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 959996   (561794) от 10.07.2018
+
+Шопен - Гении классической музыки (2012) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вальс ми бемоль мажор, соч.18 (Большой блестящий вальс)
+02. Этюд до диез минор, соч.10 н.4
+03. Вальс ля бемоль мажор, соч.42 (Большой вальс)
+04. Соната для фортепиано н.2 си бемоль минор, соч.35, Похоронный марш. Lento(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C007CB39F851794E3F37BD7B091CE08430C580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556120   (561512) от 08.06.2022
 
 Leif Ove Andsnes, Mahler Chamber Orchestra - Mozart Momentum 1786: Piano Concertos Nos.23 & 24, Piano Quartet No.2, Piano Trio No.3 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
@@ -730,35 +759,6 @@ Rondo Veneziano - Attimi di magia (1999) [FLAC|tracks+.cue]<Modern Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D731A0BBEE5F2B684B8991683F57994E2A85B8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959166   (540214) от 07.09.2016
-
-Rondo Veneziano - Fantasia D'Autunno (1998) [FLAC|tracks+.cue]<Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autunno (6:55)
-02. Corteo dei Dogi (4:35)
-03. Crepuscolo (reprise) (2:08)
-04. Larmes De Pluie (4:38)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2AB1871C7FE49ED569A2E34096560205BC7FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

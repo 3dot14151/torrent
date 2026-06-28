@@ -1,3 +1,154 @@
+###  Публикация: 935136   (500628) от 07.09.2015
+
+VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alberto Feria Alvaro MNML - Penicilline [07:02]
+002. Deep Hazex - The Minimum of the King in the Mountain [07:34]
+003. DJ Navigare - Piter PeN [06:49]
+004. Manu Hell - TuttiFatti [06:20](   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 10:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DE7737052151282D686148FB85BE11DBF50F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540379   (500609) от 01.09.2012
+
+2expensive - Bittersweet Dreams (vol. 1) (2012) [MP3|320 кб/с]<Drum & Bass, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feint feat. Veela - Horizons (Original Mix)
+02 - Matrix & Futurebound feat. Cat Knight - Move On
+03 - Drumsound & Bassline Smith - Through the Night (Club Mix)
+04 - Proxie - Fly Away (Original Mix)
+05 - Madcap - Hemisphere (Original Mix)
+06 - Mute & Mako - Essential Forms (Klute Remix)
+07 - Amaning - O.S.T
+08 - Chris.SU feat. Mira of Plastic - Higher
+09 - Dynamic & Blade - Groove Baby
+10 - Blu Mar Ten feat. Stray - Blind Soul (Bcee Remix)(   Читать дальше...   )Жанр: Drum & Bass, ChilloutПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEB75530CE812DD578573D24BA0F3332F1A2B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935146   (500550) от 07.09.2015
+
+VA - Trance Desire Volume 54 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dash Berlin feat. Roxanne Emery - Shelter (Photographer Remix) (07:04)
+02. Fabio XB, Christina Novelli feat. Liuck - Step Into The Light (Original Mix) (06:36)
+03. Super8 & Tab feat. Julie Thompson - Let Go (Extended Mix) (06:23)
+04. Alan Morris & Sarah Russell - Two Ships (Original Mix) (06:59)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D6FA8902D6C37401E96EF7CD85B5B3D1E564BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935062   (500547) от 07.09.2015
+
+VA - Deep House - Hotel Lounge Dance Music (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Blame - The Grove
+02. Elton Ames - Beach House
+03. Hoboken - Lampedusa Lounge
+04. Deep Walls - Deep House Mykonos(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AE28177CCF1E89A819240C240D99AFF072446D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935140   (500538) от 07.09.2015
+
+VA - Beatport Top 100 Tech House August (2015) [MP3|320 кб/с]<Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technasia, Green Velvet - Suga (Original Mix)
+02. Oscar L - Alors On Danse (Original Mix)
+03. &ME - Woods (Original Mix)
+04. NY's Finest - Do You Feel Me (Dosem Remix)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 11:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD080EC4C6C9515676B7C307B86AC907EB75BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317541   (500181) от 01.08.2019
 
 VA - Good Morning Motivational Summerset (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
@@ -618,157 +769,6 @@ VA - Summer Chill [DigiCom] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCDCAC30EDCBE169025DC8A203B1DC08F5DACD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936390   (496489) от 11.09.2015
-
-VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Colin Hay - Down Under (Nicolas Haelg Remix)
-03. Alex Cruz - Haunting (feat. Anna Renee & Melle Kuil)
-04. Kodaline - High Hopes (Filous Remix)(   Читать дальше...   )Жанр: Dance, Aсoustic, Folk, Indie, Deep HouseПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1788E04360848D5B3ACD1BD4EF01EA551A6728AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381560   (495879) от 31.08.2011
-
-VA - E-Burg CLUB - Trance MiX 2011 vol.34 (2011) [MP3|320 kbps]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract Vision & Elite Electronic - Rise Again (Ultimate Remix)
-02. Andre Visior & Kay Stone - Sunrise (Original mix)
-03. Aruba Ice - Vremya Na Dvoih Denis Kenzo Rmx Radio Ver
-04. Boy Hagemann - Whispering
-05. Craving - First Feeling (Original Mix)
-06. Dee Jay Dan - Sorry Vocal by Alla
-07. Dr Willis - We Choose (To Go To The Moon) (Exit Remix)
-08. Fabio Xb And Andrea Mazza - Light To Lies (Gareth Emery Mix)
-09. Giuseppe Ottaviani - Danceology (Original mix)
-10. Infinity - Understand Me (Trance Arts Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C95673B028009D4AE5F98B484265DB4C0C0DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158018   (495687) от 14.08.2017
-
-VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Mauama & Fabiana Rosh - Take Me Higher (Extended Mix)  5:33
-002.  Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)  7:36
-003.  Jones & Brock feat. Anica - Join Me (Hang Mos & Alexx Slam Remix)  5:01
-004.  Greg Gelis - Shine (Art Alive Remix) (feat. Idrise)  4:53(   Читать дальше...   )Жанр: Nu Disco, House, Funky HouseПродолжительность: 10:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8159D5848C0F347114606E4AD88BB88BF51FDA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404313   (495287) от 24.08.2020
-
-VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495287.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nicholson - Dirty Lil Bastard
-002. Niko Hoffre'n - Leave Me Again
-003. Arjans - Whispers (Extended Mix)
-004. Tinlicker - When The Light Fades(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA573167896CE75A93D23C5791C2128AA28A62F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404310   (495056) от 24.08.2020
-
-VA - Chillout Top 100: The Best Relaxing Music Vol. 2 (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495056.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fade feat. Angel Falls - Space (Rayan Myers Remix) (5:14)
-002. Sundrifting feat. Natune - Just Be (Original Mix) (6:22)
-003. Dave Harrigan - Sunset Beach (Original Mix) (4:15)
-004. A-Mase - In A Lost Paradise (Original Mix) (7:20)(   Читать дальше...   )Жанр: Downtempo, ChillOut, RelaxПродолжительность: 08:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A2757999C66149890D00C46DB0095EA4E933FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

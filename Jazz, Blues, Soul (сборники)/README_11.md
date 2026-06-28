@@ -1,3 +1,32 @@
+###  Публикация: 1133150   (696783) от 11.05.2017
+
+Roy Buchanan - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Evil (live)
+02. Too Many Drivers
+03. Black Autumn
+04. That Did It(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153AEA7DC18F3F4A434E1AA4297B702A6B7B0285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027443   (696415) от 19.06.2016
 
 VA - Melancholy Rock Blues (2016) [MP3|320 кб/с] <Blues, Rock Blues>
@@ -716,35 +745,6 @@ VA - Jazz Erotica - Sinfully Glamorous Naughty Smooth Jazz Music for Seductive E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6AEEDFA6761E586F9EE58F31E3622CCE57D8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228434   (637371) от 31.05.2018
-
-VA - Blues Rock Drive 4 [4CD] (2018) [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danielle Nicole - Pusher Man (03:44)
-02. Per Frost - Black Crow Blues (04:10)
-03. Beth Hart & Joe Bonamassa - Why Don't You Do Right (04:34)
-04. Robbert Fossen Band - Still Called The Blues (03:37)(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 04:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E67BBCAA789524FE956B80D24A92C821013608
 ```
 
 https://mybot314.ru/tekegram_catalog/

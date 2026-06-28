@@ -1,3 +1,32 @@
+###  Публикация: 1457029   (1024602) от 25.03.2021
+
+VA - Symphony Of The Street (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rap - в настоящее время сформировался как очень яркая и самобытная культура, условно называемая уличной. Со своей музыкой, одеждой, сленгом, изобразительным искусством - граффити, несколькими стилями танцев, со своей системой жизненных ценностей - то есть со всеми признаками полноценной субкультуры, какой была культура модов или хиппи001. Asian Doll - Everybody Stressed
+002. Death Over Simplicit - Childhood's End
+003. Evidence - Speaker Cabinet
+004. Ampichino - Go Crazy(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E17685621F24309D7B4B5821CC3B9461D22A527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459323   (1023296) от 01.04.2021
 
 VA - Exotic Reggae: Dub Edition (2CD) (2021) [MP3|320 Kbps] <Reggae, Dub, Riddim>
@@ -716,35 +745,6 @@ VA - 100 Greatest 00s Hip-Hop (2020) [MP3|320 Kbps] <Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D030185B658C579AB14769BD45D6C5C5C7CDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367702   (914242) от 17.03.2020
-
-VA - Reggae On The Roof: Miami Carnival (2020) [MP3|320 Kbps] <Reggae, Dancehall>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914242.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Vadim Vs Fat Freddy's Drop - Flashback
-002. The Romy - Shape Of You
-003. Tom D. Genese - Microbe
-004. Chronixx - Rastaman Wheel Out(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 08:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F099501B9262F5645B3CB0819EFE9953028CC0D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

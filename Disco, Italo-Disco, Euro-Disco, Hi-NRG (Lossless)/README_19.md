@@ -1,3 +1,119 @@
+###  Публикация: 1419189   (342041) от 27.10.2020
+
+Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To Neon (4:33)
+02. Pandora's Box 2020 (5:02)
+03. Heart On Fire (4:35)
+04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABBCF08DFD469BF9CD2E7D730CC5E5FE1ED8EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419512   (339982) от 28.10.2020
+
+Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Age (12'' Version) (6:47)
+02. Like Puppets (12'' Version) (5:26)
+03. Plastic Age (Male Vocal Mix) (8:00)
+04. Like Puppets (7'' Version) (3:49)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3D52F15A6ED092F678DC03F33128AF7FD29752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419514   (339980) от 28.10.2020
+
+Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il giudizio (4:15)
+02. Beata (3:50)
+03. Sfere di Qi (3:58)
+04. Non ricordi (5:08)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4E880B25D90300F7625CAC5CA1596A58842267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419441   (339708) от 28.10.2020
+
+Earth, Wind & Fire - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339708.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Earth Wind And Fire and The Emotions - Boogie Wonderland (4:50)
+02. Let's Groove (5:33)
+03. Shining Star (2:50)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 03:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0442B744D41625B9481C4B0FE9AD1A19FC70DD83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330691   (338987) от 11.10.2019
 
 Oblivion - Voyage To Discovery (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Spacesynth>
@@ -632,122 +748,6 @@ Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25142BC99C2FC0B4E459C0399E5A930C8FF1B700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961735   (294718) от 04.12.2015
-
-Ricchi E Poveri - The Collection (1998) [FLAC|tracks+.cue]<Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Maria (2:56)
-02. Amarsi un po (3:24)
-03. Dimmi quando (3:29)
-04. Buoananotte Fiorellino (3:02)(   Читать дальше...   )Жанр: Italo-Disco, DiscoПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9102AD6E31DC3427128183FEA7F9DE41464AA2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961715   (294583) от 04.12.2015
-
-Al Bano & Romina Power - The Collection (1998) [FLAC|tracks+.cue]<Vocal, Ballad, Schlager>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicità (3:15)
-02. It's Forever (2:59)
-03. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
-04. Io Ti Cerco (3:39)(   Читать дальше...   )Жанр: Vocal, Ballad, SchlagerПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078C98149BE24A0F0CAAA15E1938239288D16F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335895   (284402) от 04.11.2019
-
-VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirko Hirsch - Fire (Long Version) (7:08)
-02. Galaxy Hunter - Running High (4:24)
-03. Retronic Voice - Menace To Society (5:08)
-04. Tiziana Rivale - Take Me In Your Arms (3:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45968B7D217E21709D37719678877EDEBCB1F95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335899   (284261) от 04.11.2019
-
-VA - Italo Eurobeat Collection Vol. 1 (2019) 2CD [FLAC|Lossless|tracks + .cue] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiorama - Aliens 2 (The Nightmare) (Alieno Mix) (6:41)
-02. Gipsy & Queen - Love (Mixmaster Remix) (6:32)
-03. Mr. Zivago - Love In Moscow (Extended Version) (5:16)
-04. Atrium - Midnight Dancer (Extended Version) (7:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB54783102FAA7657D63610937907224E9EC199F
 ```
 
 https://mybot314.ru/tekegram_catalog/

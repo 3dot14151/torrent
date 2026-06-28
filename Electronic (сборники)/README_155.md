@@ -1,3 +1,160 @@
+###  Публикация: 571266   (388491) от 07.11.2012
+
+VA - Dub-Pack - Week 7 (2012) [MP3|320 кб/с]<Dub-Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Benga – Smack Your Bitch Up
+2. Britney Spears – Inside Out
+3. Charlie Clouser – Saw Theme Tune (ToxiK Remix)
+4. Chase & Status – Running
+5. Ciara feat. Ludacris – Ride (Trendsetter aka Mark Holiday Remix)
+6. Effie – Lonely (Stinkahbell Remix)
+7. Ellie Goulding – Lights (Bassnectar Remix)
+8. Ellie Goulding – Lights (WIRED Remix)
+9. Flux Pavilion – I Can't Stop
+10. John Murphy – 28 Days Later (DJ ObRiver Remix)(   Читать дальше...   )Жанр: DubStepПродолжительность: 01:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE51025DA376872D61360C9B50BE3EE2D19C8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253124   (387903) от 07.10.2018
+
+VA - Record Super Chart 556 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rompasso - Ignis 3:32
+02. Tiesto - WOW 3:41
+03. Fisher - Losing It 4:08
+04. Dynoro & Gigi D'Agostino - In My Mind 3:05(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF49C3C2A9A7A0A714E2C1B802C200BBAEA79BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067601   (387830) от 29.10.2016
+
+VA - Beatport Trance Pack  (29.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal, Uplifting Trance, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciro Visone & Chris Raynor - MiG-29 (Original Mix)  6:19
+02. Giuseppe Ottaviani & Christian Burns - Brightheart (OnAir Mix)  6:58
+03. Kaimo K & Sarah Russell - Why Can't You Love Me (Original Mix)  6:50
+04. Chris Metcalfe - Orbit  4:05(   Читать дальше...   )Жанр: Trance, Melodic, Vocal, Uplifting Trance, Energy, ProgressiveПродолжительность: 05:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773AD99E2A56872F5003864F6A84DA7E1F6457A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067413   (387818) от 29.10.2016
+
+VA - Turbo mix №8 (2016) [MP3|319-320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387818.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2Drunk2Funk - God Is A DJ (Radio Edit)
+002.3LAU Ft. Yeah Boy - Is It Love (Riggi & Piros Remix)
+003.50 cent & MOT  - Папа дай мне Inferno  (Dok-Hi Mush Up)
+004.50 Cent Feat. Justin Timberlake And Timbaland - Ayo Technology (Talyk Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A381C21BE5D01546CD533D58C4BD32A93F95DB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571145   (387739) от 07.11.2012
+
+VA - In Colours (9CD) (2010-2012) [MP3|320 кб/с]<Chillout, Lounge, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387739.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mikael Delta - Water Mirroring (3:59)
+2. PrOmid - Caress (Original Mix) (4:49)
+3. Erik Hakansson - Smooth (Original Mix) (3:45)
+4. Polished Chrome - Secret Of Sound (5:02)
+5. Alexsandro Da Silva - Dacota Sunlight (Far Away Mix) (6:54)
+6. Jens Buchert - Dominion (5:36)
+7. The Flashbulb - The History Of Rain (1:57)
+8. Islands Of Chill - Bring Back Silence (Cool & Lazy Afternoon Cut) (4:47)
+9. Jamie Ball As Action Bastard - Kowloon Side (3:18)
+10. Uranus - Your Eyes (4:09)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 12:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF0572F487C930F7D2709BE88A9B9C9FDDDA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174127   (387541) от 14.10.2017
 
 VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
@@ -627,156 +784,6 @@ VA - Extra Trance: Bonus [10] (2016) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9343AD853F988F5F006ACB558A166C282ACC8AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068203   (382820) от 31.10.2016
-
-VA - Record Super Chart #460 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR & Tigerlily - Invisible Children (Extended Mix)  3:45
-02. Calvin Harris - My Way (Audiorockers & Matt Raiden Remix)  3:43
-03. Sick Individuals vs. Holl & Rush - Helix (Extended Mix)  4:24
-04. Zara Larsson - Ain't My Fault (Rakurs Remix)  4:45(   Читать дальше...   )Жанр: House, Electro House, Future House, Club, DanceПродолжительность: 02:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653CA5E06A56E67454CA860459F9406E8789FE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326607   (382516) от 21.09.2019
-
-VA - Sea Party Dance House (2019) [MP3|320 Kbps] <Dance, Club. House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zeheit - Between Countries
-002. Brasslover - Waiting The Drop (Dub Mix)
-003. Made - I'm Coming Up
-004. Dachs - Fiore Blu (Original Mix)(   Читать дальше...   )Жанр: Dance, Club. HouseПродолжительность: 13:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5B7F88BF86FE074EA9F6D5D5B16F5FEA175349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326608   (382515) от 21.09.2019
-
-VA - Deep House Paradise Mix (2019) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382515.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artur Muro - Deep
-002. Erinaq - Anori (Original Mix)
-003. Mechanical Fusion - The Whale (Original Mix)
-004. Conwell Minolta - In The Stories(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D47D0BC77175BF6A330B22C53BAB09F86154DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573194   (381751) от 10.11.2012
-
-VA - Sense Of Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - We Are Here To Make Some Noise (Judge Jules Remix)
-002. Eluna - Severence (Markus Schulz vs. Elevation Remix)
-003. Abstract Vision & Elite Electronic - Kinetic
-004. Alexander Popov - Elegia (Original Mix)
-005. Ashley Wallbridge - Mumbai Traffic (Club Mix)
-006. Chris Schweizer - Ultra (Original Mix)
-007. Dave Silcox feat. Amy Pearson - This Is Love
-008. Dima Krasnik - Corsair (Original Mix)
-009. Faruk Sabanci & Mark Sixma - Starburst (Original Mix)
-010. Garry Heaney & Tristan D - Island Of Dreams (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, TranceПродолжительность: 04:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEA4C08E325A2F8ECEF92DF563266B5CF5FEEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573367   (381747) от 10.11.2012
-
-VA - Club Dubstep - №14 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Mirror (Original Mix) (04:36)
-02. Serenade (Roughmath Remix) (06:16)
-03. Pressure (feat. KT Forrester)Жанр: DubstepПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB000240360C60C5B11EB0CCD19AE08F5FA0267
 ```
 
 https://mybot314.ru/tekegram_catalog/

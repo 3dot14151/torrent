@@ -1,3 +1,29 @@
+###  Публикация: 1467240   (1017832) от 03.05.2021
+
+Сборник - Joel Grimes - Photographer Branding Toolkit [PSD, TTF, OTF, ACO, ASE]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте вашу фотографию заметной. От Facebook и YouTube до визиток и фирменных бланков - получите инструменты, необходимые для создания бренда с помощью вашей фотографии, которая будет выделяться.Формат: PSD, TTF, OTF, ACO, ASE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4808AA2DB8A7535E1068A0A2E77A26E67305A1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467244   (1017819) от 03.05.2021
 
 Сборник - Joel Grimes - Beauty Brushes NEW BUNDLE + Bonus Brushes - Rain & Splashes [ABR, JPG]
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_979676.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_978009.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F864F98BA81901744714FD6357E7A3FC8E2C321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765197   (875765) от 11.03.2014
-
-Сборник - Свадьба 4 / Wedding 4 [JPEG,PSD,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадебная тематикаФормат: JPEG,PSD,EPS,AIРазрешение файлов: 2500х3700-8500х5600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790D67FDDBE4C2584A1518E5E7CD9883E6DA4C9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

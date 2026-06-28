@@ -1,3 +1,119 @@
+###  Публикация: 1129219   (724225) от 27.04.2017
+
+Evgeny Khmara (Евгений Хмара) - Fairy Tale (2017) [MP3|320 Kbps] <New Age, Piano, Soundtracks>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of Earth
+02. Fairy Tale
+03. Steam Locomotive
+04. When She Slept(   Читать дальше...   )Жанр: New Age, Piano, SoundtracksПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6851DC8A4B1472ABDB0C7F0E1193FD7A2A8B983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128976   (724218) от 27.04.2017
+
+Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Sadeness Part I (Meditation Mix) 3:00
+02. Enigma - Mea Culpa Part II (Fading Shades Mix) 6:13
+03. Andru Donalds - Simple Obsession 4:07
+04. Andru Donalds - Wating For The Hurricane 4:45(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936DEF5CF1E44DFFEDF2CCFB35694FD16A7CD4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217670   (722852) от 03.08.2020
+
+VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Lounge, House>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722852.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1: Seven Lazy Lounge
+01. First Song - Desansis - First Song - Desansis (3:51)
+02. Sunlight - Island Groove - Sunlight - Island Groove (6:24)
+03. Seaside - Enigmatic - Seaside - Enigmatic (5:37)(   Читать дальше...   )Жанр: Lounge, HouseПродолжительность: 02:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01ED1A91AF60617537E14DB897DC8EDBDC27669A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188994   (722736) от 03.08.2020
+
+VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armstrong - Future City 			(04:43)
+02. Orient Team - The Quest 			(04:06)
+03. Del Mar - Evening Cafe (Ibiza Dub) 		(05:28)
+04. Van Der Hayden - Hymn To Love 		(04:58)(   Читать дальше...   )Жанр: Lo-FiПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7286AFE461ABAF191E4E3AEFBB4567AAC074093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129237   (722501) от 28.04.2017
 
 VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canyengue (1996) [MP3|192 Kbps] <Tango>
@@ -626,122 +742,6 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023952   (719938) от 07.06.2016
-
-Atticus Ross, Claudia Sarne, Leopold Ross - Три девятки / Triple 9 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|image + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticking Glock (06:28)
-02. The Drop (02:07)
-03. Eleven Fifty Nine (06:21)
-04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A25925662D5E3219F1BAABFCA8B18125C55DF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023707   (719727) от 07.06.2016
-
-Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Main Title 	2:40
-02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
-03. 	Terminator Gets Guns / Search For Sarah 	1:13
-04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218871   (719526) от 11.04.2018
-
-Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Beyond Time
- 02 – Slot Canyons
- 03 – Across Worlds
- 04 – Misty Morning(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F76026964135330D2460AC4E8E4FF9C1B9541AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285058   (718953) от 27.02.2019
-
-VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Capoeira>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capoeira Ultimate - Berimbao Viola
-02. Tafari Roots - Faca De Ponta
-03. Capoeira Experience - Ingá Ingá
-04. Capoeira Muzenza - Vou Ver Mou Mestre(   Читать дальше...   )Жанр: World, Ethnic, CapoeiraПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

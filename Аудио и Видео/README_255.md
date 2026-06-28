@@ -1,3 +1,174 @@
+###  Публикация: 1429381   (176760) от 06.12.2020
+
+Ани Лорак - Неизданное (2020) [AAC|~254 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бегущая по волнам (2:08)
+02. Бывшая (1:28)
+03. Дождь для нас (3:18)
+04. Мышка (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1EE542C70A6ECAF62C4DF2E8095DCED6EFFEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429567   (176664) от 06.12.2020
+
+Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (3:05)
+02. Don't Start Now (3:03)
+03. Cool (3:30)
+04. Physical (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9115F8EA47DE9EBE55C017470BDF0978B6D56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429571   (176605) от 06.12.2020
+
+Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 Kbps] <Electro, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (Joe Goddard Remix)Жанр: Electro, PopПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1981D63829B85B67B26C17F5E2478A33F65167F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429623   (176052) от 07.12.2020
+
+Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delco (4:36)
+02. The Shadow of God's Hand (3:54)
+03. Life in Remission (4:26)
+04. Shame (4:02)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D5EC5FFAF7DA96C4D6582EF6087B84DF2B6234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429619   (176046) от 07.12.2020
+
+Stvore - One (2020) [AAC|~344 Kbps] <Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zamri (3:36)
+02. Znak (4:39)
+03. Podnimaysya (3:52)
+04. Zatmeniye (4:39)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D71379A135753FFE87CD0D680C4567F23B41BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429824   (176009) от 07.12.2020
+
+Leæther Strip - Æppreciation II (2018) [AAC|~351 Kbps] <ebm, industrial, dark electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Shave (4:18)
+02. Beat My Guest (2:29)
+03. Tainted Love (3:26)
+04. Man in the Man (3:49)(   Читать дальше...   )Жанр: ebm, industrial, dark electroПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78A270AA371B6A083178C5E7A4CFD84748B4618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429831   (176004) от 07.12.2020
 
 Leæther Strip - Æppreciation III Deutsche Wælle (2018) [AAC|~344 Kbps] <ebm, industrial, dark electro>
@@ -571,180 +742,6 @@ VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCED5D35D46B988E30F6D507AAE1FDB0B39CCF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430456   (173733) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Waiting for the Horizon (Dreamful Sky Mix) (5:23)
-02. Jean Mare - Sine Cascading (Sunset Chill Mix) (4:24)
-03. The Space Ensemble Project - Galileo in Minds (Great Chillout Mix) (5:48)
-04. Guardians of Secret - Guinean Warmth (Mystic Voice Mix) (4:59)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611DD723571F58742C4BCFCA32B9CF1179F38A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430469   (173730) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Blue Sun (5:34)
-02. Jean Mare - Ageless (Allmira Enigmatic Mix) (4:53)
-03. Lebensart - Atmo Chant (Voices from Nowhere Mix) (6:30)
-04. Richard Bonnee - Voices of the Misty Dream (Soundcloud Chillout Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430421   (173715) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum, Svetlana - Virus to Heaven (Svetlana Vocal Mix) (5:06)
-02. Jean Mare - Another Orbit (Your Dreams Mix) (3:35)
-03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
-04. Richard Bonnee - Frost Point Zero (Deep Space Groove Mix) (7:02)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EED5B2DB0C8080B4F6E32EDF117CD0760CDB672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430476   (173705) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pascheba - Vi Ser (Chillout Cut) (5:22)
-02. For Found Future - Hypnotic Dreams (Transformation Downbeat Cut) (5:17)
-03. Jean Mare - Space Experience (Electronic Sphere Mix) (5:55)
-04. Houie D. - Sun over Gobi (4:07)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB43432A15DC714448DB0C0E8325196140FBCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670116   (171720) от 22.10.2023
-
-Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressive Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171720.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Sundown:
-01. Another World (Floorplay Remix) (6:03)
-02. Ionized (5:31)
-03. Let There Be Light (7:17)(   Читать дальше...   )Жанр: Goa Trance, Progressive TranceПродолжительность: 02:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430477   (170775) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Found Future - The Forest Dreams (Artenovum Piano Mix) (5:02)
-02. Marie Therese - Black Swan (3:37)
-03. Jean Mare - Lost Enigma (Smooth Spherical Mix) (7:30)
-04. Artenovum - Far East (Atmospheric Voices Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD50B74D4EFF7EEF1F378F09FDC885A09456FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

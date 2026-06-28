@@ -1,3 +1,61 @@
+###  Публикация: 1678052   (147335) от 20.11.2023
+
+Мэйби Бэйби - Мэйбилэнд (2022) [FLAC|Lossless|WEB-DL|tracks] <Teen Pop, Pop Punk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nya-Nya-Nya ^ω^ (00:02:20)
+02 - Мэйбилэнд (00:02:22)
+03 - Дакимакура (00:03:20)
+04 - Интимки (00:02:49)(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435206   (145915) от 27.12.2020
+
+Владимир Пресняков - Слушая тишину (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег
+02. Слушая тишину
+03. Ты у меня одна
+04. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100775736A0EBA7A4D54CDABA4F3852F01086032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435072   (145813) от 27.12.2020
 
 Alsou (Алсу) - Greatest Hits (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F122177C3C2A9F1ECB6E408B1A0FE7231157D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697058   (119110) от 05.02.2024
-
-Децл, МЭD DОГ, Ronny, Антон Токарев, Dino Mc47, Izachonok, Fargo, Maugli, ALEX VUCKII, Istokiya - У всех свои слёзы (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слёзы (4:09)
-02. Слёзы (3:17)
-03. Слёзы (2:49)
-04. Слёзы (2:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1695DCCDE05DC901991FA6E521F1F6819CD53E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696694   (118658) от 08.02.2024
-
-Александр Маршал - Блокпост - Сборник лучших песен (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блок-пост 'Акация' (3:01)
-02. Братишка (3:21)
-03. Приказ 'Назад' (2:32)
-04. Третий тост (5:11)(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D6073628E13ECAC1751732044B905BB990A627
 ```
 
 https://mybot314.ru/tekegram_catalog/

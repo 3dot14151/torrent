@@ -1,3 +1,109 @@
+###  Публикация: 1336051   (282049) от 05.11.2019
+
+VideoHive - Bended Slideshow - 23432105 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bended Slideshow - это многофункциональный проект с HUD элементами.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F849E76C2A0B4551DF9F779AC699F9AC0366E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335948   (282046) от 05.11.2019
+
+VideoHive - Drop Inked Elegant Slideshow - 22809684 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте оригинальное слайд-шоу с каплями чернил и элегантными летающими картами с эффектами параллакса и оптимизма. Идеально подходит для медленного, современного, оригинального и красочного видео-сюжета с чернильными брызгами VFX, кинематографическим слайд-шоу, презентацией в инстаграм, свадебной или романтической открытием, настроением, вдохновляющим настроением, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6BEB7EE9193A7B5E3F4CF1CCDC5BF7E58BCC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964372   (281959) от 11.12.2015
+
+Проекты - Pond5 - Cube Hex [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0A12100E8F36D7B395F41B199E0E7C51B19566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964515   (281957) от 11.12.2015
+
+Проекты - FluxVFX - Photo Spread [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D5EEC8A1F2BE788947EE013F11B299D8628F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336191   (281920) от 05.11.2019
 
 VideoHive - Flying Photos - 24918216 [AEP]
@@ -569,114 +675,6 @@ MotionElements - Vintage Photo Album - Four Seasons - 13194474 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCDC8A78AAF8497CBDCE2EF2059432BD066ADA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265957   (271708) от 30.11.2018
-
-Проекты - VideoHive - Modern Opener - Slideshow - 22859286 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Opener - Slideshow - оригинальный, современный проект для вашего творчества.
-Автор проекта: RofiteroФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A2D2F0FA106E7E4223AA1DE552192F705300F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265958   (271692) от 30.11.2018
-
-Проекты - VideoHive - Dynamic Slideshow - 22797718 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Slideshow  - динамичный, современный проект для вашего творчества.
-Автор проекта: RofiteroФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CFE24B027EF990C88A5E2C0B84411B746BF64D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266814   (269064) от 03.12.2018
-
-Проекты - VideoHive - Photo Brush Slideshow - 20373472 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Brush Slideshow - Это элегантный и впечатляющий проект After Effects для вашего творчества.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7A97381776CA5991E6274F1127E9766AE00B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190172   (268559) от 08.12.2017
-
-Проекты - Проект ProShow Producer - Snowy Winter [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект выполнен в PSP-6. Слайдшоу с элементами натурального снега.
-Проект может быть использован в оригинальном исполнении, либо набором стилей и переходов для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C8C5954F8A71E91F92A6950C80F43A6395E503
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1284646   (727426) от 22.02.2019
+
+ДиДюЛя - Седьмое чувство (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колесо времени (Велюровый вальс)
+02. Покорители пространства (Ветряные мельницы)
+03. Танец с дождём (Причудливые круги)
+04. Люди индиго (Объект перемен)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F388CD9E83F459C6DF3B571269664DA474CBBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022586   (727363) от 03.06.2016
+
+Kelsea Ballerini - The First Time (2015) [FLAC|Lossless|image + .cue] <Country, Modern Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XO (2:54)
+02. Peter Pan (3:20)
+03. Love Me like You Mean (It 3:20)
+04. Square Pegs (3:23)(   Читать дальше...   )Жанр: Country, Modern CountryПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DED4C5B676388E55E2411553DC11DD1654B8F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022896   (727232) от 03.06.2016
+
+Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 кб/с] <Instrumental, New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man's Dream (Live) (2:47)
+02. For All Seasons (Live) (6:01)
+03. Yanni: Welcome (Live) (3:45)
+04. Felitsa (Live) (4:51)(   Читать дальше...   )Жанр: Instrumental, New Age, Easy ListeningПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25D2BD15EE53E5FBC8336526B9F2B839C4C4F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128428   (727189) от 25.04.2017
+
+Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solar Wind part 1 (3:52)
+02.  Solar Wind part 2 (5:14)
+03.  Eclipse Of The Moon (5:01)
+04.  Child Of War (4:21)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2C804604A90C3191EC0A275FED4D79003CCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022982   (726688) от 04.06.2016
 
 Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
@@ -620,122 +736,6 @@ Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Sc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00100FDB69DC858FEED3E6BA4E09F2DADDE92D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129219   (724225) от 27.04.2017
-
-Evgeny Khmara (Евгений Хмара) - Fairy Tale (2017) [MP3|320 Kbps] <New Age, Piano, Soundtracks>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of Earth
-02. Fairy Tale
-03. Steam Locomotive
-04. When She Slept(   Читать дальше...   )Жанр: New Age, Piano, SoundtracksПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6851DC8A4B1472ABDB0C7F0E1193FD7A2A8B983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128976   (724218) от 27.04.2017
-
-Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness Part I (Meditation Mix) 3:00
-02. Enigma - Mea Culpa Part II (Fading Shades Mix) 6:13
-03. Andru Donalds - Simple Obsession 4:07
-04. Andru Donalds - Wating For The Hurricane 4:45(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936DEF5CF1E44DFFEDF2CCFB35694FD16A7CD4A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217670   (722852) от 03.08.2020
-
-VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Lounge, House>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722852.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1: Seven Lazy Lounge
-01. First Song - Desansis - First Song - Desansis (3:51)
-02. Sunlight - Island Groove - Sunlight - Island Groove (6:24)
-03. Seaside - Enigmatic - Seaside - Enigmatic (5:37)(   Читать дальше...   )Жанр: Lounge, HouseПродолжительность: 02:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01ED1A91AF60617537E14DB897DC8EDBDC27669A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188994   (722736) от 03.08.2020
-
-VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armstrong - Future City 			(04:43)
-02. Orient Team - The Quest 			(04:06)
-03. Del Mar - Evening Cafe (Ibiza Dub) 		(05:28)
-04. Van Der Hayden - Hymn To Love 		(04:58)(   Читать дальше...   )Жанр: Lo-FiПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7286AFE461ABAF191E4E3AEFBB4567AAC074093
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 640712   (887110) от 07.04.2013
+
+Емилия - Кукла (2013) WEBRip	 [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5522088D5E418D9BC8715D95DE24312A82DB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372108   (886991) от 02.04.2020
+
+Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industrial Melodic Death Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Northern Genocide - Supernova (1080р)
+002 2019 Northern Genocide  - Genesis Vol. 666 (1080р)
+003 2019 Northern Genocide - Ikiruoste (1080р)Жанр: Industrial Melodic Death MetalПродолжительность: 00:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E78D1DD457E6680E3809AD1F386B42DCD433677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371795   (886980) от 02.04.2020
+
+Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886980.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Malevolence - Condemned To Misery (1080p)
+002 2015 Malevolence - Turn to Stone (1080p)
+003 2017 Malevolence - Slave To Satisfaction (1080p)
+004 2017 Malevolence - Wasted BreathПроизводство: MLVLTD RecordsЖанр: Hardcore ,Beatdown ,SludgeПродолжительность: 00:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23B5B00D514514ADDEFE8AD757688DB576D71DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762965   (886814) от 05.03.2014
+
+NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7200EB5EE407A5B682B29351DB6842BE5904A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762964   (886643) от 05.03.2014
 
 NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
@@ -593,112 +702,6 @@ Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374429   (872834) от 10.04.2020
-
-Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA Disbelief - The Ground Collapse (2020)Производство: Listenable RecordsЖанр: Death, Thrash, Sludge MetalПродолжительность: 00:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DA6005D98F54B75C97BECB338FD69A1F058FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374432   (872828) от 10.04.2020
-
-Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA Megatherium - God (2020)Жанр: Psychedelic Stoner, Doom MetalПродолжительность: 00:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D198ECEFCFA130C4953819247BB22BAFBF6763C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374624   (872579) от 10.04.2020
-
-Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Thrash, Heavy Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
-</div>
-
-
-###  Подробнее
-
-CDA Sodom - 2001 - M-16Жанр: Thrash, Heavy MetalПродолжительность: 00:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D222F1EBBFA6262CB6880AE09F178DEA6B0D865F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188099   (871447) от 31.03.2010
-
-Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка клипов исполнителя Paul van Dyk. Там где это было возможно звуковые дорожки AC3 заменены на FLAC из этого замечательного релиза. На мой взгляд получилось вполне удачно, но окончательное мнение, разумеется, за вами. В подборку не вошли клипы, сделанные из видеоматериала, отснятого во время тура в поддержку альбома Global так как музыкальные треки там урезаны, (   Читать дальше...   )01. Paul Van Dyk - For An Angel (03:03) (2009)
-02. Paul Van Dyk - Let Go (03:45) (2007)
-03. Paul Van Dyk - Tell Me Why (06:16) (2000)Жанр: Trance, Progressive Trance, DanceПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

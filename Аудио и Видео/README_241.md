@@ -1,3 +1,177 @@
+###  Публикация: 1530611   (233240) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 6 (2012) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kheops & the Cats - Someone Like You (5:36)
+02. People of the Sun - Skinny Love (4:12)
+03. Alien on Mars - Paradise (4:28)
+04. Dj Kodi - Feel So Close (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF863D6967C321FDA020AAC89972D167410CFA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530645   (233230) от 12.02.2022
+
+VA - Distant Places Lounge, Vol. 1: Chillout Your Mind (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Spirit Muse - Breath-Ful Moments (20:22)
+02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
+03. Gary B - Afraid to Fall (Original Mix) (4:54)
+04. Michael e - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0C429B3DDD0640B744287850E8E4E932BD2123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530615   (233200) от 12.02.2022
+
+VA - Lounge Tribute, Vol. 8 (2014) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Breeze - Happy (5:10)
+02. Eclectic, SEN - All Apologies (5:00)
+03. Pimpi Arroyo - Venus (4:42)
+04. Ambar, Mary F - I Will Survive (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41103D3A18C81741565BBD752A12810F594DC700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539765   (233067) от 27.03.2022
+
+VA - Lounge Atmosphere, Vol. 3 (2022) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Take It Easy (Original Mix) (4:08)
+02. The Strike Boys - Cocaine Is a Sin (Original Mix) (4:34)
+03. Bossasonic - Sunday Afternoon Party (Original Mix) (3:32)
+04. Martin Liege - Time to Chill (Original Mix) (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3F222CE9191B369BBBD08EACACEE7DF1AC1018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539766   (233038) от 27.03.2022
+
+VA - Lounge Jazz In Mykonos (2022) [AAC|~322 Kbps] <Jazz, Lounge, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ely Bruna, Papik - Smalltown Boy (3:14)
+02. P. A. Jeron - Rough (2:35)
+03. The Tangram - Back (4:09)
+04. Soulstance, Ana Flora - So Danco Samba (5:27)(   Читать дальше...   )Жанр: Jazz, Lounge, Easy ListeningПродолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52EBBC7223625340A8CCC93D0A7CDE21869BA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539764   (233032) от 27.03.2022
+
+VA - Slow And Mellow (Relaxing Dinner Nu Soul Tracks) (2022) [AAC|~309 Kbps] <Jazz, Nu Soul, Nu Jazz, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ely Bruna, Wendy D. Lewis - Good Times (3:20)
+02. Anduze - Julie (3:27)
+03. Lo Greco Bros, Flow Bop - Close To You (5:37)
+04. Michela Gazzolo - My Oh My (5:37)(   Читать дальше...   )Жанр: Jazz, Nu Soul, Nu Jazz, Easy ListeningПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A971E019241B230CECC361748C94A9F960B188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541481   (232983) от 03.04.2022
 
 VA - Deep-House Carnival, Vol. 1 (2022) [AAC|~315 Kbps] <House>
@@ -571,180 +745,6 @@ VA - Across the Ocean (Lounge Collection), Vol. 2 (2020) [AAC|~320 Kbps] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976D1ED152AF9B8129FFFA20FF7267F8B76C3BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541116   (232607) от 03.04.2022
-
-Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Is Trix (Intro) (0:55)
-02. Too Damn Hot (3:36)
-03. Getting Cross (2:58)
-04. Beatptized (Aclapella) (3:42)(   Читать дальше...   )Жанр: Neo CharlestonПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A0708C958680E5D374279DA1A1A3B6CC6685D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541477   (232599) от 03.04.2022
-
-VA - Vanlife Moods, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tapelapse - Daydreaming (2:10)
-02. Velvet Dreamer, Michael Buk - Midnight Lovers (Original Mix) (4:47)
-03. Chambre 2 - Le matin se reveille (Original Mix) (4:38)
-04. Weathertunes - Mystic River (Original Mix) (5:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3014DA7E84AC356C46FD5B7FFF712CF1012075C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541229   (232592) от 03.04.2022
-
-VA - After Work Chillout, Vol. 2 (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillout Lounge Ibiza - Embrace in Space (Sunset Mix) (5:46)
-02. Emotions Music - Vernal Awakening (6:40)
-03. Dama - Dream (2:44)
-04. Greg Suaves - Riding the Wind (Cut Version) (1:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B6300B9DDD87CBA81AE227FAD145E382052BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541260   (232584) от 03.04.2022
-
-VA - Sweet Morning (Chill out and Lounge Collection), Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CaPa - Julian (Original Mix) (4:39)
-02. Weathertunes - Flower Fields (Original Mix) (5:01)
-03. Weber - Back at Weber's (Original Mix) (3:43)
-04. Dreamhunter - Horizon in Blue (Original Mix) (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1655B7C54339FEBD4F66A5F99E458919484707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541485   (232565) от 03.04.2022
-
-VA - Deep-House Carnival, Vol. 2 (2022) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass - Got It on the Dancefloor (Original Mix) (4:50)
-02. House Affairs - So Cool (Original Mix) (5:21)
-03. Cedric Salander - Inside Me (Original Mix) (7:13)
-04. Benatural - Barbus (Original Mix) (5:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C010480A91AEA2BCC03CD3E665647A53BC54E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541224   (232559) от 03.04.2022
-
-VA - After Work Chillout, Vol. 1 (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makia Blue - Thought Carousel (4:22)
-02. Dyodho - Eternity (Extended Chillout Mix) (7:30)
-03. The Big Break Lounge - Beautiful Time (4:53)
-04. Heisenwerk - Maximum Chillout (3:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F06EF84616BFD4DE0B6DEACDC61E929A71B1412
 ```
 
 https://mybot314.ru/tekegram_catalog/

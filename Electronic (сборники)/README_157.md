@@ -1,3 +1,148 @@
+###  Публикация: 1068419   (380738) от 01.11.2016
+
+VA - LUXEmusic: Dance Super Chart Vol.92 (2016) [MP3|320 Kbps] <House, Electro House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACDC - T.N.T (DJ Zarubin Radio Edit)  3:46
+02. Madonna - Frozen (A-Mase Nu Disco Remix)  5:32
+03. USB и Илья Зудин - Губы Губы (Oleg Perets Club Remix)  4:26
+04. Елена Князева - Сильная (DJ Noiz Remix)  3:01(   Читать дальше...   )Жанр: House, Electro House, Mash Up, Club, DanceПродолжительность: 03:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD76B4CB6DBA3E5B305069ADC17284027D4E906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326829   (380348) от 22.09.2019
+
+VA - Autumn Festival Popular Dance Music (2019) [MP3|320 Kbps] <Dance, Pop, House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380348.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kapoor - Zen
+002. Stedwart - Sunset Loving
+003. Trigger Finger - Guest List
+004. Steve Murrell - 2 Am(   Читать дальше...   )Жанр: Dance, Pop, House, ClubПродолжительность: 12:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DC80F213928FAEDDED426BA57F860F1C81E622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948865   (379581) от 22.10.2015
+
+VA - Vocal Deep House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faithless - I Can't Get No Sleep (Fabrique Remix) [07:32]
+02. Kosheen - Hide U (Jerome Robins Jungle Funk 3 Year Anniversary Edit) [04:49]
+03. Timbaland Feat. Keri Hilson - The Way I Are (Dj Kapral Remix) [04:38]
+04. Celine Dion - My Heart Will Go On (Dj Fat Maxx Ultimate Deep Re-Edit) [08:40](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D27324A0F59BF17C418BF3F28C83BC4CF8909BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949118   (379576) от 22.10.2015
+
+DJ Quicksilver - Сборник композиций (2015) [MP3|320 кб/с]<Trance, Techno, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boombastic (Epic Radio Edit)
+02. FFM (Do You Remember)
+03. Cyberia
+04. Deep In Motion(   Читать дальше...   )Жанр: Trance, Techno, House, DanceПродолжительность: 03:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871D772BE2D1181F703A6F99FC3F4C4EBBFD2686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253849   (379519) от 11.10.2018
+
+VA - Dubstep Generation (2018) [MP3|320 Kbps] <Dubstep, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379519.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Fatu - Furious Flash
+002. Dexter Dub - Sternengeschwader (Drumstep Version)
+003. Hive - Questionable Directions
+004. Brkchk - Pressure(   Читать дальше...   )Жанр: Dubstep, TrapПродолжительность: 08:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BB372073D49AAC2FB2CCEE28C79EFC8EECDCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253853   (379509) от 11.10.2018
 
 VA - Respect Drum & Bass (2018) [MP3|320 Kbps] <Drum & Bass>
@@ -618,163 +763,6 @@ VA - Cosmic Interference (2017) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:368FEBCAAD36D5AFDF26558D4166C3CA62F8C380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573534   (376554) от 12.11.2012
-
-VA - Club Dubstep - №18 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AllDegrees feat. Dani Galenda - I Can't Hear You (GoingNuts Remix) [05:15]
-02. Arkwright - House Of Sin [04:34]
-03. BeatMagik - High Voltage (Original Mix) [04:39]
-04. Blitzkids mvt. - Cold (J. Rabbit Remix) [04:53]
-05. Document One - Moving Together (feat. Tigerlight & Makism MC) [05:35]
-06. Dub and Run - Coming Home [04:35]
-07. Eddie K & Statix Feat. Astronaut - Anymore [05:23]
-08. Flinch ft Domonique Porter - When I'm Gone (Original Mix) [04:40]
-09. Foxy As Fox - Obsession (Original Sexstep Mix) [05:18]
-10. Hans Zimmer - Time (Instrumental Core Remix) [05:17](   Читать дальше...   )Жанр: DubstepПродолжительность: 02:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B5FFC940C7D90275A5F8155B8D0773B5E8C1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175696   (376451) от 19.10.2017
-
-VA - The Groove Deep House Project (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dahu & MPathy - Shattered
-002. Fernando Olaya - Saint germain
-003. The Messenger - Ground Floor
-004. Cosmic Cowboys - Samba(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DD0ADB9F174DF089C1F7772D30D67D1E17C0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175651   (376448) от 19.10.2017
-
-VA - Deep House Collection Vol.140 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Kilo & LIVA - Deixe-Me Ir (LIVA Remix) 4:45
-02. 5prite - Tinstaafl (Original Mix) 5:29
-03. 8150 - Nature (Original Mix) 7:06
-04. Aaliyah - Try Again (Idyl Cover - Gurkan Asik Remix) 4:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:98:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35589BFBB4E2B3517E2E1E0FA02FA55C4C0899D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069037   (376440) от 03.11.2016
-
-VA - Ethernal Optimism: Uplifting Trance Mix (2016) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Ft. Bullysongs - Freefall
-002. Solid Stone & Jennifer Rene - Heart Call (Original Mix)
-003. Somna & Jennifer Rene - Hands (A.R.D.I. Remix)
-004. Super8 & Tab - Mega(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 12:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824CFA8F9E1F3BC7D4B86CECAF8BAAC195BEEC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574258   (376228) от 12.11.2012
-
-VA - Dub-Pack - Week 11 (2012) [MP3|320 кб/с]<Dub-Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 16bit – Ford Fiesta
-2. Addictive – Domino Effect (Shy Pony Remix)
-3. Afrojack feat. Eva Simons – Take Over Control (Adam F Remix)
-4. Allie Moss – Corner (Titch Remix)
-5. Antiserum – Skullfucked
-6. Avril Lavigne – When You're Gone (Alex Mind Remix)
-7. Bassnectar – Boombox (Datsik Remix)
-8. Bassnectar – Here We Go
-9. Clubroot – Cherubs Cry
-10. Crim – Distorbia(   Читать дальше...   )Жанр: Dub-StepПродолжительность: 01:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C50B18A95AA9F4B9429D302A311AC0A71618C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

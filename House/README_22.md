@@ -1,3 +1,177 @@
+###  Публикация: 1277734   (785028) от 21.01.2019
+
+VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Papaya - I'm Burning (Tech House Mix) 9:49
+02. DJ Papaya - I'm Burning (Tribal Mix) 9:18
+03. WILKKEN & JHON CHRISTIAN - Tche Ngolove (Original Mix) 5:36
+04. Gunball & CHIPS DOWN - Shake Down (Original Mix) 4:06(   Читать дальше...   )Жанр: House, FutureHouse, Dubstep, OtherПродолжительность: 02:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4B9282ED5D28C1185C93F49C98D21C52278CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204363   (784989) от 05.02.2018
+
+VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320 Kbps] <Progressive House, House,Progressive Trance, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gai Barone – Tanita (Intro Mix) (06:32)
+02. Tannura – Halfway (07:54)
+03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
+04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D035FC7092744EA435C279F9E39D37A1720BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204254   (784975) от 05.02.2018
+
+VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
+02.  Talamanca  -  Meditation (Deep Mix)  7:21
+03.  Approaching Black  -  You Are (Original Mix)  8:08
+04.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  6:12(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC449E5DDCC6938C907EFF5B7DA8C57C23B8E7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204341   (784918) от 05.02.2018
+
+VA - Best Deep House Music 2017 Vol.4 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferhat Sonsoz  -  Wilde Rose (Original Mix)  6:47
+02.  Aida & Berkhan Baser  -  All (Original Mix)  5:31
+03.  Mozkai & Pocohontas  -  Fall In Love (Original Mix)  5:26
+04.  Zara & DJ Nil  -  Dle Yaman (Original Mix)  5:38(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D2A9B35725B32762699C7153D7CE02DB86C8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204528   (784688) от 06.02.2018
+
+VA - Lowdown Origins (2018) [MP3|320 Kbps] <House, Future House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ivan LopZ & Brish feat. Dani Crom  -  Malibu (Original Mix)  3:38
+02.  Ivan LopZ & Brish feat. Dani Crom  -  Malibu (Radio Edit)  2:48
+03.  Forget & Donovin  -  I Miss U (Original Mix)  3:03
+04.  Dani Crom  -  Innocent Evil (Deadliest Sound)  3:16(   Читать дальше...   )Жанр: House, Future House, Big RoomПродолжительность: 01:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55BA1A0B7E0C1D495ED64805EF332FD8BC3C136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204633   (784687) от 06.02.2018
+
+VA - Open House Records Presents Vocal Sessions (2018) [MP3|320 Kbps] <House, Vocal House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aaron North  -  Boy Wunda (Original Mix)  5:47
+02.  Anto  -  Cloud 9 (Original Mix)  5:20
+03.  Base Tempo  -  Don't Let Go (Original Mix)  5:12
+04.  Connor Drew  -  You & Me (Original Mix)  5:36(   Читать дальше...   )Жанр: House, Vocal House, Future HouseПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADCE4215343DD31916E9F78C7695C2B5B0FE583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204597   (784685) от 06.02.2018
 
 VA - Work That Body Vol.2 (2018) [MP3|320 Kbps] <House>
@@ -571,180 +745,6 @@ VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30E25423771628F59401A8E89806AC11958F6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205910   (783251) от 11.02.2018
-
-VA - Carnaval House (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  RezaKarami  -  My Bass Friend (Original Mix)  4:58
-02.  High One  -  Low Kiss (MKVG Remix)  4:30
-03.  MikeSelf  -  Candy War (Extended Mix)  8:22
-04.  Mack Jack  -  Aruba (Instrumental Mix)  4:56(   Читать дальше...   )Жанр: HouseПродолжительность: 03:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5872F5DB2BFD571E1E864A0352F93D4FDB0D4F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205689   (783247) от 11.02.2018
-
-VA - Ultra Tone Essentials Vol.2 (2018) [MP3|320 Kbps] <Deep House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Genvee & Faith Feloque  -  Dream In Neon Shades (Original Mix)  6:00
-02.  Genvee & Faith Feloque  -  All Inside (Original Mix)  4:48
-03.  Rona Ray & V.Underground  -  Your Friend (Original Mix)  6:48
-04.  Keenan & V.Underground  -  Spellbound (Vuky J's Soulful Vocal Mix)  7:06(   Читать дальше...   )Жанр: Deep House, Afro HouseПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF6DA4AE769A327CAAAB31CA4E8359D3AA203F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205886   (783239) от 11.02.2018
-
-VA - Beatz 4 Freaks Vol.27 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luca Debonaire & Kaippa  -  Thousand Words (Radio Edit)  3:41
-02.  PEZNT  -  One Minute Man (Original Mix)  6:30
-03.  Malikk  -  I Like It (Original Mix)  5:08
-04.  Jonathan Ulysses & Lisa Williams  -  Tripping (Hoxton Whores Radio Edit)  4:21(   Читать дальше...   )Жанр: HouseПродолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF45D698BF0B22E3B2679403141F575B9E94C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205960   (782984) от 12.02.2018
-
-VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archion – Don’t Lose Control (Instrumental Mix) 3:25
-02. Betamine – Eyes (Original Mix) 3:31
-03. Deepoow – Yep (Original Mix) 6:07
-04. Dimix – State Of Mind (Vocal Mix) (Feat. Taylor William) 4:19(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F99141E76FD498D6D94F908B07C41D7071AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205806   (782981) от 12.02.2018
-
-VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blaster Maxter  -  Armageddon (Original Mix)  5:47
-02.  Bassjunx  -  Carnival (Original Mix)  5:07
-03.  Leopardgecko  -  Yogurt (Original Mix)  6:01
-04.  DoranSilver  -  Portal (Original Mix)  4:00(   Читать дальше...   )Жанр: House, Big Room, ClubПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570314F2788782296FBBF87E557E232ED5A30DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205989   (782948) от 12.02.2018
-
-VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Midnight  -  Synthetic (Mango vs. We Are All Astronauts Vocal Remix)  7:40
-02.  Elypsis & Mandy Reign  -  Poison (Gregory Esayan Dub Remix)  5:42
-03.  LaMeduza & Stendahl  -  Different You (Approaching Black Vocal Remix)  4:59
-04.  Marsh  -  Mini Anthem (Original Mix)  3:51(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDB4268AA723F72B1ACBD225DE6BCADDE049407
 ```
 
 https://mybot314.ru/tekegram_catalog/

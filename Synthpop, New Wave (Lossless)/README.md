@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1878524   (1074644) от 
+
+VA - Spacedance, Vol. 8 (2026) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight - Mystic Motion (4:06)
+02. Daylight - Timeless Echo (3:56)
+03. Based on Bass - Edge Of Space (4:11)
+04. Futurespace - Living On Mars (4:31)(   Читать дальше...   )Жанр: Spacedance, SpacesynthПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C983FA3E017935D0F803F3D5D463550C2C72DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877569   (1074048) от 21.06.2026
+
+Molasar - Talismans (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreadnought (5:41)
+02. Molasar (4:17)
+03. Dread (4:35)
+04. Celsius (5:24)(   Читать дальше...   )Жанр: Synthwave, DreamwaveПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0ED5A414B489619398E5B2A64A90A43383541D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877564   (1074047) от 21.06.2026
+
+VA - Project Paula - Amiga (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volkor X - Apidya (4:18)
+02. Fixions - Flashback (4:16)
+03. Wrencan - Speedball 2 (3:54)
+04. MASTER BOOT RECORD - Shadow of the Beast (5:49)(   Читать дальше...   )Жанр: Synthwave, CyberpunkПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37284A0BB1BC3846F5A6E98FC80F164EC769C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876330   (1073192) от 
 
 Depeche Mode - Greatest Hits (1997) Compilation, Unofficial [FLAC|Lossless|image + .cue] <SynthPop>
@@ -659,93 +746,6 @@ Industry & Seduction - это всеоблемющий сборник, охва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC2FB8528E3C9CF612A5E9308C7623D9AD9262C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601900   (1046322) от 02.01.2023
-
-VA - Now That’s What I Call Punk & New Wave (2022) 4xCD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Electronic, Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046322.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. London Calling (The Clash)
-02. Teenage Kicks (The Undertones)
-03. Ever Fallen In Love (With Someone You Shouldn’t’ve) (Buzzcocks)(   Читать дальше...   )Жанр: New Wave, Electronic, RockПродолжительность: 04:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E1B6910BE00C9B707B8C426A875E6DE69DA1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602948   (1045934) от 07.01.2023
-
-Solar Fake - Enjoy Dystopia (2021) 2xCD, Deluxe Edition [FLAC|Lossless|image + .cue] <Synth-pop, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045934.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. At Least We'll Forget
-02. I Despise You
-03. This Pretty Life(   Читать дальше...   )Жанр: Synth-pop, ElectroПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F70DC130D42E9455C56E68E7F01C31B36D1A83A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603260   (1045811) от 08.01.2023
-
-VA - Spacedance, Vol. 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurespace - Around The World (Extended Dance Version) (5:28)
-02. Daylight - Robots (Extended Italo Dance Mix) (5:23)
-03. Futurespace - Heartbeat (Instrumental Version) (5:10)
-04. Based on Bass - Human Interface (Instrumental Version) (5:01)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541E72772F03FEF906A7A84080EDA1A8E1A32531
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1084484   (271371) от 18.12.2016
+
+Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Breathing in Moonlight [00:03:04]
+02 -  Emancipation [00:05:01]
+03 -  Brittle Earth [00:04:19]
+04 -  Fear Not [00:05:12](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0C6D2965083D4574C7E6382D3459C75130D7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189394   (271274) от 05.12.2017
+
+Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erda 05:08
+02. The Ruin 05:24
+03. Runatal 05:40
+04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189337   (271062) от 05.12.2017
+
+Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acquarius
+02. Aries
+03. Cancer
+04. Capricorn(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266378   (270963) от 01.12.2018
+
+Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дитер Гайке (нем. Dieter Geike, 25 декабря 1946 года) — немецкий композитор и музыкант, мультиинструменталист, известный как «Blonker». Играл на клавишных, бас-гитаре, гитаре, мандолине, перкуссии и драм-машине. В его музыке можно услышать переплетения разных стилей и жанров: джаз, рок, классика и нью-эйдж.01. Indigo (4:27)
+02. The Rose (3:52)
+03. When A Man Loves A Woman (2:45)
+04. Inside (3:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 03:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499255   (270685) от 01.12.2018
 
 Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
@@ -626,122 +742,6 @@ Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA030B0AE6B5CAAAFC6D6411C228B54C59B35D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338894   (267982) от 17.11.2019
-
-VA – Super Instrumental Vol.2 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A. Ventura - Schiwago-Melodie
-02. C. Santana - Moonflower
-03. D. Modena - Song Of Ocarina
-04. G. Ventura - Une Belle Historie(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F50348F91080C64A207C9A0608706BE5552769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190292   (267760) от 09.12.2017
-
-Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Ambush
-3. Horde Patrol
-4. The Prince(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F52E08B8D55D5887D6E79C34A982664C7724DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190497   (267572) от 09.12.2017
-
-VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kbps] <Reggaeton, Salsa, Bachata>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiquito Team Band - Abreme Los Caminos 3:21
-02. Raulin Rodriguez - Corazon Con Candado 4:23
-03. Osmani Garcia "La Voz", Dayami La Musa - Bumper 3:16
-04. El Chacal - Las Balas 3:50(   Читать дальше...   )Жанр: Reggaeton, Salsa, BachataПродолжительность: 03:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277E56BBE42033FC921C698377A92040F68E68AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219410   (267474) от 05.12.2018
-
-Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandora
-02. Dreaming Under Branches
-03. Na Vi
-04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
 ```
 
 https://mybot314.ru/tekegram_catalog/

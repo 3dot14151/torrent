@@ -1,3 +1,264 @@
+###  Публикация: 1146955   (610991) от 01.07.2017
+
+VA - Rock Remakes - Non Stop Part three (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Beatles Meets Michael - Way You Make Me Feel (Michael Jackson)
+02. Therion - Summer Night City (Abba)
+03. Roxette - Help! (The Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912639   (610613) от 26.06.2015
+
+Roger Hodgson - In The Eye Of The Storm (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинать сольную карьеру в 80-х годах минувшего столетия в прогрессивном роке было делом заведомо неблагодарным. Тем не менее, многих музыкантов это не останавливало, и они наперекор всем начинали выпускать сольные альбомы, нередко вызывая тем самым досаду поклонников и злорадство критиков. Роджер Ходжсон (Roger Hodgson) – один из основателей Supertramp – также не (   Читать дальше...   )A1. Had A Dream (Sleeping With The Enemy) (8:28)
+A2. In Jeopardy (5:58)
+A3. Lovers In The Wind (4:15)
+A4. Hooked On A Problem (4:59)(   Читать дальше...   )Производство: A&M RecordsЖанр: Soft RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296653   (610045) от 18.04.2019
+
+Кино - Легенды Русского Рока (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+A1 Алюминиевые Огурцы
+A2 Время Есть, А Денег Нет
+A3 Солнечные Дни(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E5BB41649F6C276D99DCDB81EA2241CBA6C493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546040   (609500) от 22.04.2022
+
+Pet Shop Boys - Behaviour (1990) Unofficial Release, Reissue 1992 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609500.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Being Boring
+A2 So Hard
+A3 To Face The Truth
+A4 How Can You Expect To Be Taken Seriously?(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D48E4BEBFC353927225F77ADD54A0E6D98EE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038250   (608085) от 27.07.2016
+
+Herbie Hancock - Empyrean Isles / Maiden Voyage (1964-1965) 2015, Remastered [DTS-HD MA, LPCM, Dolby TrueHD 2.0|192/24|Blu-ray] <Jazz, Hard Bop, Piano Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Empyrean Isles
+01. One Finger Snap
+02. Oliloqui Valley
+03. Cantaloupe Island(   Читать дальше...   )Жанр: Jazz, Hard Bop, Modal, Piano JazzПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBCBD76B7F0DFDA7ED4018B609771A73FE6DBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038235   (607945) от 27.07.2016
+
+Steven Wilson - 4 ½ (2016) [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Book of Regrets 9.23
+02. Year of the Plague 4.15
+03. Happiness III 4.31
+04. Sunday Rain Sets In 3.50(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:46 + 00:36:54 + 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919F6BB56AD54ED5EBD0A575A362D421D048AC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941398   (607676) от 23.04.2022
+
+Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Song Of Songs
+A2	At The Balalaika
+A3	Granada
+A4	Shine Through My Dreams(   Читать дальше...   )Жанр: Pop/Easy ListeningПродолжительность: 00:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD39C66E482673A37C083EF65F671EC48BD8C106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945141   (607675) от 23.04.2022
+
+VA - Soul Meeting Vol. II - The Sound Of Young America (1966) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607675.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Diana Ross & The Supremes -	Reflections
+A2	Stevie Wonder -	I'm Wondering
+A3	The Temptations -	You're My Everything
+A4	Marvin Gaye & Tammi Terrell -	Ain't No Mountain High Enough(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7E8F2BECD8B6C041C5B1A5BEF52A5267F73396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939700   (607671) от 23.04.2022
+
+Al Martino - Spanish Eyes (1965) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Spanish Eyes
+Written-By – Kaempfert, Singleton, Snyder
+02.	Melody Of Love
+Written-By – Englemann, GlazerЖанр: PopПродолжительность: 00:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B0A4F335979C66628A17454F13F21D74BD4B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941322   (607553) от 23.04.2022
 
 VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
@@ -487,267 +748,6 @@ A4 Химена · Jimena(   Читать дальше...   )Жанр: Easy List
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0498125CF5859DAA37F01F967D1187657E18F26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546722   (604588) от 25.04.2022
-
-Ольга Вардашева и Людмила Невзгляд - Холодный Вечер (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Холодный Вечер
-(А. Морозов, обработка В. Литвиненко - М. Рябинин)
-02. Как Забыть Тебя
-(музыка и слова В. Литвиненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F38F28C330AEAE26BED0BF0C52988A91D6394A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546708   (604420) от 25.04.2022
-
-Акварели - Рыжее Лето (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рыжее Лето
-(Ю. Антонов - Л. Дербенёв)
-02. Потеряешь — Я Найду
-(Ю. Саульский - В. Харитонов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD25BA8D42890F5564D5324E60A5077B89E5F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546695   (604322) от 25.04.2022
-
-Поют ВИА «Веселые Ребята», «Метроном», «Орфей», «Здравствуй, Песня» (1979) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веселые Ребята - Ветер Шумит
-(Р. Майоров – А. Монастырев, О. Писаржевская)
-02. Метроном - Все Будет
-(Р. Майоров – В. Харитонов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB41BBF4B261DDD2E9860AAE102F6BE5445ADFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296681   (604066) от 22.04.2019
-
-Steps - Step One (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Europop, Euro House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604066.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Steptro
-A2 Last Thing On My Mind
-A3 5,6,7,8
-A4 One For Sorrow(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CA163EA6D6E4DDC4AD2742BFB805C6D61DD4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297237   (604035) от 22.04.2019
-
-Владимир Кузьмин - Звёздная Коллекция (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Пороги
-02. Я не забуду тебя (Сибирские морозы)
-03. Когда меня ты позовёшь(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9FC68084896F933C1152CA4D25072D23287B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089383   (603217) от 27.04.2022
-
-VA - RETROспектива, часть II: Эстрадные оркестры II (1937-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный секстет - Тополь (медленный вальс)
-02. Инструментальный секстет - Цветущий май (фокстрот)
-03. Венгерский джаз-секстет п.у. Т. Балаша - Чай вдвоем (румба)
-04. Венгерский джаз-секстет п.у. Т. Балаша - Серебряная гитара (танго)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CDE915717A0E4E70712072D67FB8BAD86BF598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297720   (603074) от 24.04.2019
-
-Michael Jackson - Blood On The Dance Floor. HIStory In The Mix (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Hip Hop, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Blood On The Dance Floor
-02. Morphine
-03. Superfly Sister(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055C536E63D35F4664ADD40727E1030D19E3D026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297746   (603066) от 24.04.2019
-
-Rainbow - Ballads (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Cath The Rainbow
-02. Maybe Next Time
-03. Tearin' Out My Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C363EDBC6FB7F794D9E001C20555E7E031C2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297726   (603054) от 24.04.2019
-
-Guns'N'Roses - The Ballads (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Don't Cry
-02. Patience
-03. November Rain(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2EE2D772F394935C13F2D352C86BC1C0D8BB95
 ```
 
 https://mybot314.ru/tekegram_catalog/

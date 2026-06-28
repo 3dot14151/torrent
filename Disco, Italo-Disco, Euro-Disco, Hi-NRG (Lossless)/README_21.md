@@ -1,3 +1,117 @@
+###  Публикация: 1636252   (241026) от 29.05.2023
+
+Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change
+02. Heartbeat
+03. Lost In Paris
+04. The Years (Go By)Жанр: Italo-DiscoПродолжительность: 00:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631969   (235924) от 08.05.2023
+
+Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now
+02. Can't Escape From You
+03. Angel Of Love
+04. I Love Fashion(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F1CF6DACD3AED0642B2A7D6AEB957947313D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576133   (235663) от 12.09.2022
+
+Giorgio Moroder - From Here To Eternity / E=MC2 (1977, 1979) Reissue, Remastered [FLAC|Lossless|image + .cue] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235663.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 - From Here To Eternity
+1979 - E=MC2Жанр: Disco, Electronic |Продолжительность: 01:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A858DE05C74169E8E5BCAC01B2A22DBB4A68DDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632105   (235565) от 08.05.2023
+
+Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Part of You (Edit)
+02. A Part of You (Club Mix)
+03. A Part of You
+04. A Part of You (Club Mix Instrumental)Жанр: DiscoПродолжительность: 00:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BBC3395ECC96DC4E0CDB90A180DBDBA6B97868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644853   (233604) от 07.07.2023
 
 Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [FLAC|24/44.1|WEB-DL|tracks] <Disco, Eurodance, Europop>
@@ -626,120 +740,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15A2C02D3AC591648CB4806B98FAE66A20ED4463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612634   (207212) от 16.02.2023
-
-Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance to Desire
-02. Desire
-03. Hey, Hey (Remix '89)
-04. Flight of Fantasy (Remix '89)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651196   (207088) от 05.08.2023
-
-Fancy - Viva la Vida (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva la Vida (Radio Edit)
-02. Viva la Vida (Extended)Жанр: Euro-DiscoПродолжительность: 00:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B742E8A7EB733AA38373770A870BA3BB7BB7A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614141   (206816) от 21.02.2023
-
-Bad Boys Blue - 25 (The Long Mixes - Extended Versions) (2022) 2xCD [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You’re A Woman (New Long Version) 6:56
-02. Gimme Gimme Your Lovin’ (New Long Version With Trevor Vocals) 6:02
-03. Lady In Black (New Long Version) 5:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80950ECD4549EACFD976676673512CDDA0EB742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614576   (206685) от 22.02.2023
-
-Silicon Dream - Time Machine (2022) 2 CD 35th Anniversary Delux Expanded Editon, Maschina Records [FLAC|Lossless|tracks + .cue] <Euro-Disco, New Beat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206685.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Time Machine (You Are The Master Of Time-Age)
-02. Jimmy Dean Loved Marilyn-Film Ab (The Hollywood-Age)
-03. Corleone Speaking (The Chicago-Age)(   Читать дальше...   )Жанр: Euro-Disco, New Beat |Продолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90330EAE952A6E0B2EE087E85F418511043C45E
 ```
 
 https://mybot314.ru/tekegram_catalog/

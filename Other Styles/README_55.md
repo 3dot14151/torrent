@@ -1,3 +1,119 @@
+###  Публикация: 1278546   (768468) от 26.01.2019
+
+The Shadows - The Best Of The Shadows (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock, Rock-n-Roll>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowmix
+02. I Just Called To Say I Love You
+03. Apache
+04. Riders In The Sky(   Читать дальше...   )Жанр: Pop Rock, Rock-n-RollПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE60287C4E440B65FFFB29D26E80B1F9DE75BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278809   (768467) от 26.01.2019
+
+Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Hour Story (12:16)
+02. Imbalance (04:14)
+03. Conditional Futures (04:02)
+04. Floating City (03:38)(   Читать дальше...   )Жанр: Contemporary Classical, Instrumental, CelloПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278437   (768403) от 26.01.2019
+
+Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (5:51)
+02. To the Unknown Man (5:14)
+03. Irina Valentinova – Mythodea - Movement 9 (3:48)
+04. Moonlight Reflections (3:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277967   (768349) от 26.01.2019
+
+Христина Соловій - Любий друг (2018) [MP3|320 Kbps] <Pop-Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Любий друг
+2. Хвиля
+3. Океан
+4. Шкідлива звичка(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125501   (767922) от 15.04.2017
 
 Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|Lossless|image + .cue] <Folk Rock>
@@ -629,122 +745,6 @@ David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1F9E576903B49C49E1D8D2B58348413ADF59D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017271   (763124) от 16.05.2016
-
-2002 - Believe (2012) [FLAC|Lossless|tracks + .cue] <NewAge, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Believe.
-02 - A Dream Creation.
-03 - Chain of Life.
-04 - We Meet Again.(   Читать дальше...   )Жанр: NewAge, RelaxПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86DA092D0753515235B091C21F6226B9F838119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214833   (763074) от 23.03.2018
-
-Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naher zu mir (To be one) (03:53)
- 02. So sicher wie im Himmel (04:42)
- 03. Good Time (04:19)
- 04. Segel im Wind (03:17)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017084   (762832) от 16.05.2016
-
-Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кай ёнэ
-02. Настенька
-03. Нанэ мандэ родо
-04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280320   (762003) от 02.02.2019
-
-Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Condor Pasa
-02. Ave Maria
-03. Amazing Grace
-04. Don't Cry for Me Argentina(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

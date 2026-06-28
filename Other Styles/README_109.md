@@ -1,3 +1,119 @@
+###  Публикация: 821005   (483701) от 16.09.2014
+
+M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Leftfield, Modern Classical, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack's Dream (01:23)
+  02. Waking Up (04:09)
+  03. Tech 49 (05:59)
+  04. Starwaves (03:41)(   Читать дальше...   )Жанр: Leftfield, Modern Classical, SoundtrackПродолжительность: 01:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAE96D459D97A55C98194849C41ACCD37846399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938280   (483655) от 17.09.2015
+
+Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All of Our Yesterdays
+02. Allan Yn N Fan
+03. Darker Shade Of Black
+04. Long Long Time(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC9F5415D10838FFE17E36FF3DCFAE9A8CA3CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938266   (483491) от 17.09.2015
+
+В.Зубков - Мелодии из к/ф «Цыган» (1980-1981) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Признание Насти – Людмила Лонг, вокализ (2:19)
+02. Нас не нужно жалеть (сл. С. Гудзенко) – М. Волонтир, инструм. ансамбль (2:09)
+03. Добрая дорога (сл. Б. Примерова) – Валерий Зубков (2:10)
+04. Встреча (3:45)Жанр: SoundtrackПродолжительность: 00:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59045AFFE964C75629B06EB508B90685E8D2E698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056006   (483293) от 24.09.2016
+
+Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered [MP3|320 Kbps] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around (Northern Lights Club Mix) (Remastered 2016) (10:28)
+02. Age Of Loneliness (Enigmatic Club Mix) (Remastered 2016) (6:15)
+03. Push The Limits (ATB Remix) (Remastered 2016) (7:51)
+04. Gravity Of Love (Judgement Day Club Mix) (Remastered 2016) (5:59)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609538   (483286) от 24.09.2016
 
 VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .cue] <Soundtrack, Rock>
@@ -673,122 +789,6 @@ Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244741   (479924) от 02.09.2018
-
-Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside
-02. Given
-03. Journey
-04. Perspective(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244617   (479923) от 02.09.2018
-
-Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmony in Motion (07:20)
-02. Tearful Moments (08:51)
-03. Stationary Spirits (09:57)
-04. The Pathway of Life (06:39)(   Читать дальше...   )Жанр: New Agе, Relax, MeditativeПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938760   (479798) от 19.09.2015
-
-Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air 1:47
-02. Der Flug 4:32
-03. Casa Del Mar 6:10
-04. Wurzburg 5:32(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B93B74988840A0AE6455FD25CFEE4F156CA2818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938900   (479559) от 19.09.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
 ```
 
 https://mybot314.ru/tekegram_catalog/

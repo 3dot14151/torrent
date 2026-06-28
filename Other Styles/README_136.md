@@ -1,3 +1,125 @@
+###  Публикация: 1076392   (313694) от 25.11.2016
+
+Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On (04:21)
+ 02. Isle of Hope, Isle of Tears (05:02)
+ 03. As She Moved Through the Fair (2016 Version) (03:56)
+ 04. Mo Ghile Mear (My Gallant Star) (03:37)(   Читать дальше...   )Жанр: Celtic, Folk, WorldПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582511   (312776) от 02.12.2012
+
+Патруль / End of Watch (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Public Enemy -  Harder Than You Think
+02 David Sardy -  I Am The Police
+03 David Sardy -  My Evil Is Big
+04 The Delfonics -  Hey! Love
+05 David Sardy -  Follow Me Into The House
+06 David Sardy -  Heroes
+07 David Sardy -  Hold The Baby - You Can't Live Without Her
+08 The Latin Rascals -  Lisa's Coming
+09 David Sardy -  Take Care Of Janet
+10 David Sardy -  Minivan Tail(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802C7C1F6C156936904EAF63B198044C9B01A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583471   (312450) от 02.12.2012
+
+Симфонический оркестр ''Русская филармония'' - Музыка российского кино (1997) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_312450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это как раз тот случай, когда прошлое не превзойдено пока никем. Уже мало кто помнит о канале ТВ-6, да и оркестра под таким названием не осталось, а вот гениальная интерпретация музыки из советских (хотя в заголовке и сказано российских, но Вы понимаете, что это скорее политес :) 1997 года) кинофильмов звучит сегодня! Думаю, что она доставит Вам истинное наслаждение.1. И. Дунаевский. Увертюра из к/ф 'Дети капитана Гранта' (4:22)
+2. С. Прокофьев. Мертвое поле из к/ф 'Александр Невский' (5:59)
+3. Д. Шостакович. Бал во дворце из к/ф 'Гамлет' (3:22)
+4. Д. Шостакович. Романс из к/ф 'Овод' (6:24)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959937   (312414) от 26.11.2015
+
+Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pale Surface (6:18)
+02. Hills (6:11)
+03. Enlightened Soul (6:38)
+04. Lead Me (6:31)(   Читать дальше...   )Жанр: New Аge, RelaxПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741A3F6345631820B7313AC73022E08BB9B0D64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959804   (312406) от 26.11.2015
 
 Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
@@ -635,122 +757,6 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB27711524DE823DBBE91FC5654A1129DE59FA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260331   (307703) от 09.11.2018
-
-Kathryn Louderback - Christmas Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Lullaby (Still, Still, Still and Away in a Manger)
-02. What Child is This?
-03. Mary’s Alleluia
-04. Angels We Have Heard on High (ft. Hark! The Herald Angels Sing)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B585CCC408924E264E7294C078F0F84652A9E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183565   (307688) от 14.11.2017
-
-Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. A New Day (3:07)
- 02/11. Falling Leaves (3:47)
- 03/11. Dream of Flying (5:55)
- 04/11. Broken Shadows (2:29)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183511   (307677) от 14.11.2017
-
-Сергей Курёхин - Трагедия в стиле рок (2000) [FLAC|Lossless|image + .cue] <AvantGarde Jazz, Folk/Rock, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. Часть 1
-03. Часть 2
-04. Часть 3(   Читать дальше...   )Жанр: AvantGarde Jazz, Folk/Rock, SoundtrackПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332990   (307650) от 23.10.2019
-
-Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy (01:29)
-02. 29 (02:44)
-03. Rising Star (02:05)
-04. From the Bottom (01:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 603201   (996864) от 15.01.2013
+
+Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hands Up
+02.Let The Sunshine In
+03.Sexual Revolution
+04.I Am
+05.My Army Of Lovers
+06.Israelism
+07.Lit De Parade
+08.Give My Life
+09.La Place De Saint Tropez
+10.Carry My Urn To Ukraine(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605032   (996213) от 18.01.2013
 
 Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
@@ -779,41 +814,6 @@ Liz Mitchell (Ex-Boney M) - Let It Be (2004) [MP3|320 кб/с]<Pop,Disco,Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF87158B6D041B9A491153E1234F04889AEEC352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614293   (977300) от 08.02.2013
-
-Andrea Bocelli - Passione [Deluxe Edition] (2013) [MP3|320 кб/с]<Pop/Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfidia
-02. Roma Nun Fa' La Stupida Stasera
-03. Champagne
-04. Anema E Core
-05. Quizás Quizás, Quizás (Duet With Jennifer Lopez)
-06. Era Gia' Tutto Previsto
-07. Tristeza
-08. La Vie En Rose (Contains Excerpt Performed By Edith Piaf)
-09. Corvovado - Quiet Nights Of Quite Stars (Duet With Nelly Furtado)
-10. Sara' Settembre (September Morn)(   Читать дальше...   )Жанр: Pop/Classical CrossoverПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859456C1C9D1ACCDBC808CC1924CDB41A5AEEE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 959166   (540214) от 07.09.2016
+
+Rondo Veneziano - Fantasia D'Autunno (1998) [FLAC|tracks+.cue]<Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autunno (6:55)
+02. Corteo dei Dogi (4:35)
+03. Crepuscolo (reprise) (2:08)
+04. Larmes De Pluie (4:38)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2AB1871C7FE49ED569A2E34096560205BC7FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959214   (540120) от 07.09.2016
 
 Rondo Veneziano - Rondo Veneziano (1980) [FLAC|tracks+.cue]<Modern Classical>
@@ -732,41 +761,6 @@ Robert Wells - Rhapsody In Rock Complete (2000) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E648B386D6933694F79F0682317177EA3F79A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537322   (512222) от 20.08.2012
-
-VA - Highlights from Jesus Christ Superstar (1996) [MP3|320 кб/с]<Rock opera>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture
-02 - Heven In Their Minds
-03 - Whot The Buzz
-04 - Everything's Alright
-05 - Hosanna
-06 - Simon Zelotes - Poor Jerusalem
-07 - Pilate's Dream
-08 - The Temple
-09 - I Don't Know How To Love Him
-10 - The Lust Supper(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

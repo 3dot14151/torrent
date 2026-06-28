@@ -1,3 +1,154 @@
+###  Публикация: 936390   (496489) от 11.09.2015
+
+VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Colin Hay - Down Under (Nicolas Haelg Remix)
+03. Alex Cruz - Haunting (feat. Anna Renee & Melle Kuil)
+04. Kodaline - High Hopes (Filous Remix)(   Читать дальше...   )Жанр: Dance, Aсoustic, Folk, Indie, Deep HouseПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1788E04360848D5B3ACD1BD4EF01EA551A6728AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381560   (495879) от 31.08.2011
+
+VA - E-Burg CLUB - Trance MiX 2011 vol.34 (2011) [MP3|320 kbps]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract Vision & Elite Electronic - Rise Again (Ultimate Remix)
+02. Andre Visior & Kay Stone - Sunrise (Original mix)
+03. Aruba Ice - Vremya Na Dvoih Denis Kenzo Rmx Radio Ver
+04. Boy Hagemann - Whispering
+05. Craving - First Feeling (Original Mix)
+06. Dee Jay Dan - Sorry Vocal by Alla
+07. Dr Willis - We Choose (To Go To The Moon) (Exit Remix)
+08. Fabio Xb And Andrea Mazza - Light To Lies (Gareth Emery Mix)
+09. Giuseppe Ottaviani - Danceology (Original mix)
+10. Infinity - Understand Me (Trance Arts Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C95673B028009D4AE5F98B484265DB4C0C0DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158018   (495687) от 14.08.2017
+
+VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, House, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Mauama & Fabiana Rosh - Take Me Higher (Extended Mix)  5:33
+002.  Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)  7:36
+003.  Jones & Brock feat. Anica - Join Me (Hang Mos & Alexx Slam Remix)  5:01
+004.  Greg Gelis - Shine (Art Alive Remix) (feat. Idrise)  4:53(   Читать дальше...   )Жанр: Nu Disco, House, Funky HouseПродолжительность: 10:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8159D5848C0F347114606E4AD88BB88BF51FDA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404313   (495287) от 24.08.2020
+
+VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495287.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicholson - Dirty Lil Bastard
+002. Niko Hoffre'n - Leave Me Again
+003. Arjans - Whispers (Extended Mix)
+004. Tinlicker - When The Light Fades(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA573167896CE75A93D23C5791C2128AA28A62F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404310   (495056) от 24.08.2020
+
+VA - Chillout Top 100: The Best Relaxing Music Vol. 2 (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495056.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fade feat. Angel Falls - Space (Rayan Myers Remix) (5:14)
+002. Sundrifting feat. Natune - Just Be (Original Mix) (6:22)
+003. Dave Harrigan - Sunset Beach (Original Mix) (4:15)
+004. A-Mase - In A Lost Paradise (Original Mix) (7:20)(   Читать дальше...   )Жанр: Downtempo, ChillOut, RelaxПродолжительность: 08:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A2757999C66149890D00C46DB0095EA4E933FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404304   (494933) от 24.08.2020
 
 VA - Beatport Progressive Trance: Electro Sound Pack #157 (2020) [MP3|320 Kbps] <Progressive Trance>
@@ -600,169 +751,6 @@ VA - Dystopia: Minimal Techno Mix (2018) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7CA876E6B309358444756B101B905D879F9899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937260   (490163) от 14.09.2015
-
-VA - Beatport Top 100 Deep House August 2015 (version 2) (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Damian Lazarus & The Ancient Moons - Vermillion (&Me Remix) 07:48
-002. Watermat & Moguai - Portland (Original Mix) 06:22
-003. Kollektiv Turmstrasse - Sorry I Am Late 08:10
-004. Tube & Berger feat. J.U.D.G.E. - Disarray 05:52(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA8B8B119C9631223CBB24FDA0F4C1E2F46E55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383157   (489774) от 03.09.2011
-
-VA - mGirl Trance Vol.45 (02.09.2011) [MP3|320 kbps]<House,Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_489774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simmons & Blanc - Whatever It Takes (Orjan Nilsen Remix)
-02. Steve Brian - Maspalomas
-03. Temple One - Feel For You (Original Mix)
-04. Tone Project - D.R.E.A.M.
-05. Vlad Seven - Soul (Original Mix)
-06. Dee Jay Dan - Sorry Vocal by Alla
-07. Dr Willis - We Choose (To Go To The Moon) (Exit Remix)
-08. Fabio Xb And Andrea Mazza - Light To Lies (Gareth Emery Mix)
-09. Giuseppe Ottaviani - Danceology (Original mix)
-10. Infinity - Understand Me (Trance Arts Dub Mix)(   Читать дальше...   )Жанр: House,TranceПродолжительность: 03:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AB9770464BA409E57469E841CBE7154378BC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544231   (489651) от 08.09.2012
-
-VA - Euphoric Emotions Vol.38 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manufactured Superstars feat. Scarlett Quinn - Take Me Over (Bingo Players Remix) [05:03]
-02. Headstrong feat. Stine Grove - Tears (Aurosonic Progressive Mix) [09:10]
-03. Orjan Nilsen - Go Fast! (Original Mix) [08:50]
-04. John O"Callaghan feat. Audrey Gallagher - Big Sky (Original Mix) [09:29]
-05. Giuseppe Ottaviani feat. Linnea Schossow - Just For You [07:09]
-06. Susana & Josh Gabriel - Frozen (extended mix) [07:56]
-07. Myon feat. Shane 54 & Carrie Skipper - Vampire (Club Mix) [09:22]
-08. Reminder & Cathy Burton - Love To Hold (Original Mix) [07:46]
-09. Timmy & Tommy feat. Leila - Perfect Motion [08:09]
-10. The Blizzard & Omnia - My Inner Island (Original Mix) [07:39](   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA2EBC65055184EB3F603630D95BBB90BCCEEBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383289   (489590) от 03.09.2011
-
-VA - Best music of Summer 2011 from DjmcBiT (August) (2011) [MP3|320 kbps]<Electrohouse>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_489590.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tommie Sunshine - Tonight's The Night Ft. Tiffany Roth (Nom De Strip Remix)
-002. Tomy Declerque - Lowin (Mass Digital Remix)
-003. Tony Romera, Jordan Viviant - Baby Work It Out (Original Mix)
-004. Trafik - The Difference (Miles Dyson Remix)
-005. Trash Yourself - Die (The Toxic Avenger)
-006. Twelve11 - Feathered (Original Mix)
-007. Utmost DJs - Love Me (Dj MriD Remix)
-008. Vengerov - Kazantip Intro (Swanky Tunes & Hard Rock Sofa Remix)
-009. Wolfgang Gartner - Menage A Trois (Original Mix)
-010. Yenn, Nam Nori, Rico Caruso - Call It What You Want (Fast Foot Remix)(   Читать дальше...   )Жанр: ElectrohouseПродолжительность: 11:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9A84842C5D2376FDA6A1645AA2DC4A7294AB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404869   (489564) от 27.08.2020
-
-VA - Liquid Chill Bass (2020) [MP3|320 Kbps] <D&B, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ogonek - Embrace The Darkness
-002. Ill Truth & Charli Brix - Midnight
-003. Marcus Tee - Bedtime Stories
-004. Pete Rann - Paradise 25(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 15:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE537C5798C54F5AC5C1F55396C244692394DD23
 ```
 
 https://mybot314.ru/tekegram_catalog/

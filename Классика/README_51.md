@@ -1,3 +1,31 @@
+###  Публикация: 488215   (90857) от 26.04.2012
+
+Johann Sebastian Bach-Famous Organ Works: organ Helmut Walcha (1957-1972)/1985, Universal Music Japan UCCG-5036/[ APE |Lossless]<Organ>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toccata and Fugue in D minor, BWV565
+1.	Toccata	-	2:24
+2.	Fugue	-	6:521985Жанр: OrganПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6442D896A70ED50FE3F61A5BF22C7D81BD0E9C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487764   (90629) от 25.04.2012
 
 Johann Sebastian Bach – Fluten Sonaten BWV 1020, 1030-32, 1013, Nicolet & Richter (1975-1988) /1997, Archiv Produktion, 427 113-2/ [FLAC|Lossless]<Classical>
@@ -810,41 +838,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9C86A1D4F74067F142352EEABF9BCEDD6B101D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472906   (84574) от 26.03.2012
-
-Иоганн Себастьян Бах - Страсти по Иоанну | Johannes-Passion BWV 245 (1994) [MP3|192 кб/с]<Classic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84574.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Choral - О Mensch, bewein' dein Sunde gross
-2.	Evangelist - Jesus ging mit seinem Jungern
-3.	Choral - О grosse Lieb
-4.	Evangelist - Auf dass das Wort erfullet wurde
-5.	Choral - Dein Will gescheh, Herr Gott zugjeich
-6.	Evangelist - Die Schar aber und der Oberhauptmann
-7.	Aria (Alt) - Von der Stricker meiner Sunden
-8.	Evangelist - Simon Petrus aber folgete Jesu nach
-9.	Aria (Sopran) - Ich folge dir gleichfalls
-10.	Evanselist - Derselbige Junger war dem Hohenpriester bekannt(   Читать дальше...   )1994Жанр: ClassicПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8F541A39148613CE9E3DAAC2B5B054E397DC07
 ```
 
 https://mybot314.ru/tekegram_catalog/

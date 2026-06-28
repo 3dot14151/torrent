@@ -1,3 +1,90 @@
+###  Публикация: 1164902   (434663) от 12.09.2017
+
+Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanzen (3:29)
+02. Jamphel Yeshi (4:02)
+03. Benjamin (4:13)
+04. Sommerzeit (3:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B229932EF88A73E945D15179BF6D00B7E6EA5383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063385   (432379) от 17.10.2016
+
+Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forbidden Dance (4:01)
+02 - Tragic Dream (3:59)
+03 - Black Wedding (3:53)
+04 - Mischief (2:09)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0CE0CC760C523610346F54074B02B68FB7F57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249806   (431049) от 25.09.2018
+
+Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Through 06:07
+02. Seasons of the Heart 04:20
+03. Echo of Desire 08:35
+04. Always a Dream 04:46(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85F6CCD2EE092CC0F5CF1421628FB92C9F7AD89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250067   (429132) от 26.09.2018
 
 Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
@@ -664,93 +751,6 @@ VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253057   (385447) от 08.10.2018
-
-Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385447.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Perfect Silence (6:44)
- 2. Behind the Veil (6:16)
- 3. Eternal Journey (8:11)
- 4. Always and Forever (6:19)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED39D546628565D7ADC423A93766599A11082CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252981   (385347) от 08.10.2018
-
-Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Management (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kokoro No Tsubasa
-02. Kagayaki No Naka De
-03. Resilience
-04. Courage(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF0744CFAB5B72C909E1FBD43991399690CE494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174543   (385325) от 15.10.2017
-
-Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beneath an Autumn Moon 10.20
-2. Whispers in the Trees 8.56
-3. To Dance with Falling Leaves 10.44
-4. Between Two Worlds 10.32(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7438BE386621625A59994911D554B6EC6BF1F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

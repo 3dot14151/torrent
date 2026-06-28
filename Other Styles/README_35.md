@@ -1,3 +1,119 @@
+###  Публикация: 1111938   (845052) от 07.03.2017
+
+Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heart [00:04:17]
+02. Unspeakable Love [00:06:44]
+03. Sunshine Mind [00:04:36]
+04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003171   (845019) от 02.04.2016
+
+VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Buenos Aires (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - El dia que me quieras
+02. Floreal Ruiz - Por la vuelta
+03 Alberto Marino - Tres amigos
+04. Astor Piazzolla - Orgullo criollo(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003061   (845012) от 02.04.2016
+
+Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Score / Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malaguena - Brian Setzer
+02. Traeme Paz - Patricia Vonne
+03. Eye Patch - Alex Ruiz
+04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111994   (844960) от 07.03.2017
+
+VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calming Water Consort - Sleep Better: Relaxing Beach Ocean Waves
+02. Trouble Sleeping Music Universe - Music for Deep Sleep
+03. Sea Tranquility Academy - Relaxing Background Music
+04. Yoga Meditation Music Set - Hypnotic Sounds: Breaking Waves(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD807B06B231082BA7824FB8DB8D5A408AB2BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002714   (844917) от 02.04.2016
 
 Sam "The Man" Taylor & His Orchestra - Sam "The Man" Taylor In Japan (1961) LP, Stereo [FLAC|Lossless|tracks] <Jazz, Sax, Instrumental>
@@ -624,128 +740,6 @@ Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCBAB9E34F06EE2A14B1705EB36D0F5278598037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310267   (837216) от 18.03.2011
-
-The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanna's theme [02:08]
-02. Escape 700 [05:16]
-03. Chalice 1 [00:47]
-04. The devil is in the details [03:22]
-05. Map sounds - Chalice 2 [00:15]
-06. The forest [01:07]
-07. Quayside synthesis [01:21]
-08. The sandman [01:45]
-09. Marissa flashback [02:44]
-10. Bahnhof rumble [02:37](   Читать дальше...)Жанр: Techno, Big-BeatПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A73D1528F265B578663D7C89EF74FE6F06C5C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004607   (836890) от 07.04.2016
-
-Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude and Pursuit
-02. Descent to Fortress
-03. Forbidden Dream
-04. Kick Fight(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004663   (836786) от 07.04.2016
-
-Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cantos I
-02. Cantos II
-03. Cantos Profanae
-04. Cantos IV(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004600   (836540) от 07.04.2016
-
-Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836540.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Der Profi: Chi mai    05:06
-02. The Untouchables: Ness Family Theme    03:22
-03. Der Maulwurf: Marche En La    03:02(   Читать дальше...   )Жанр: Classical, Stage & Screen, InstrumentalПродолжительность: 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
 ```
 
 https://mybot314.ru/tekegram_catalog/

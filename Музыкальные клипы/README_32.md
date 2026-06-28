@@ -1,3 +1,116 @@
+###  Публикация: 1185103   (293122) от 21.11.2017
+
+Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видеоклип Rihanna feat. Jay-Z - Umbrella.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450F02330C31D98DD6D12CFD8287EF4505F2014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185321   (292872) от 21.11.2017
+
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292872.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все (   Читать дальше...   )000 Intro
+059 La Bouche - Sweet Dreams
+060 Mr.Credo - Мама азия
+061 Modern Talking - China In Her Eyes (feat. Eric Singleton(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962533   (292758) от 05.12.2015
+
+Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
+02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
+03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
+04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962598   (292639) от 05.12.2015
+
+Ageless rock (2015) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не стареющий рок!01. Cream - White Room [06:12]
+02. Queen - We Will Rock You [02:10]
+03. Mungo Jerry - Baby Jump [04:05]
+04. Alice Cooper - I Never Cry [02:26](   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Glam RockПродолжительность: 02:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943029AE4E46748178C799B539DE5116FB4A4637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185549   (291230) от 22.11.2017
 
 David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
@@ -612,116 +725,6 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16909E6F2AC5C125F649AB4C663A31B02429729D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334360   (252049) от 25.05.2023
-
-Тина Тернер - лучшее / Tina Turner - ALL THE BEST - The Live Collection (2005) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее от Королевы рока за 15-летний период с 1985 по 2000 год.01. Steamy Windows
-02. Show Some Respect
-03. I Can't Stand the Rain
-04. River Deep Mountain High(   Читать дальше...   )Жанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 02:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E4710E8089F3FE572E07E4B28332EFC83F1542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495450   (251584) от 12.05.2012
-
-Sandra - The Complete History (2003) DVDRip [H.264]
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов Sandra1 Maria Magdalena
-2 In The Heat Of The Night
-3 Little Girl
-4 Innocent Love(   Читать дальше...   )Жанр: Synth-pop, Pop, Euro House, Euro Dance, DiskoПродолжительность: ???
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495133   (251223) от 11.05.2012
-
-Сборник видеоклипов Millenium Slow (2012) HDTVRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник медленных композицийЖанр: POPПродолжительность: 05:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494343   (251044) от 10.05.2012
-
-30 Seconds To Mars - Hurricane (Uncensored) (2010) BDRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фентезийный клип-фильм Hurricane от 30 Seconds To Mars. Отлично снят. Главное, пожалуй, музыка, по крайней мере - для меня. Она просто шикарная.Жанр: Hard rock, space rock, progressive rockРежиссер: Bartholomew CubbinsАктеры: Jared Leto, Shannon Leto, Tomo MiličevićПродолжительность: 00:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

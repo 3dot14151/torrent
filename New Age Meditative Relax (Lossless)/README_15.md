@@ -1,3 +1,93 @@
+###  Публикация: 519433   (636910) от 06.07.2012
+
+Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Of Touch
+02. Vertigo
+03. The End Of August
+04. The Rain Must Fall
+05. Felitsa
+06. Voyage
+07. Nightingale
+08. Ode To Humanity
+09. Niki Nana
+10. One Man's DreamЖанр: New AgeПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033760   (636142) от 12.07.2016
+
+Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Edge of Dreams [00:58:01]Жанр: New AgeПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A82821B3965100C56A63C810B907416148953A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033553   (635816) от 12.07.2016
+
+Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Lullaby 03:53
+02.Pacifique 03:47
+03.Marta' s Song 04:12
+04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033914   (634360) от 13.07.2016
 
 Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
@@ -658,93 +748,6 @@ Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231098   (608849) от 16.06.2018
-
-Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cloudforest Trail (6:16)
-2. Pillars in the Mist (9:34)
-3. In the Presence of Beauty (7:05)
-4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296841   (608534) от 19.04.2019
-
-Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Reflection (7:17)
- 02. The Road to Here (6:07)
- 03. Rising (8:49)
- 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148309   (603483) от 07.07.2017
-
-Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Thousand Star (8:16)
-02.Flow Of Time's Arrow (7:22)
-03.Belle E'Poque 3012 (8:16)
-04.The Visionary (9:05)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
 ```
 
 https://mybot314.ru/tekegram_catalog/

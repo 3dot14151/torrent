@@ -1,3 +1,31 @@
+###  Публикация: 575129   (370098) от 14.11.2012
+
+[Wallpapers] Обои для рабочего стола - League of Legends (Лига Легенд)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола - League of Legends (Лига Легенд)
+Собраны все чемпионы и их скины.
+(14.11.2012)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759CB1CCC5183B1E1DFF73582EC55CBBE12EE7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950529   (370043) от 26.10.2015
 
 Обои - Computer Desktop Wallpapers Collection 1355 [JPG]
@@ -641,32 +669,6 @@ Military Wallpapers (18.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B26791C3C933D0F23F4821D902AB863C87316E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577386   (357904) от 19.11.2012
-
-Stunning HD Digital Art Space Wallpapers (17.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BF425F0317AB0ADC6F1DC6A1408AABE8782508
 ```
 
 https://mybot314.ru/tekegram_catalog/

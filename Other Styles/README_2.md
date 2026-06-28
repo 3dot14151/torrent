@@ -1,3 +1,88 @@
+###  Публикация: 1604340   (1045374) от 13.01.2023
+
+Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Session) (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit of the Sea (Ritchie & Candice Anniversary Home Session)
+02. Shadow of the Moon (25th Anniversary New Mix)Жанр: Folk RockПродолжительность: 00:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F68AA2BB34926E41CF2F36179FDDEA527574B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604227   (1045311) от 14.01.2023
+
+Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Dawn
+02. Spirit Of Silence
+03. Signs Of Love
+04. Walking In The Air(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9E07AAEC25E5D1E683F5A964A5D87B0C7AF149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604093   (1045285) от 14.01.2023
+
+Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hammond, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stayin' Alive (Original Mix) [02:53]
+02. Summer Nights (Original Mix) [03:39]
+03. Kiss You All Over (Original Mix) [03:15]
+04. The Devil Sent You To Lorado (Original Mix) [03:09](   Читать дальше...   )Жанр: Hammond, InstrumentalПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB6EC5F84FD07AC93F30E5578607A324BB12561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604704   (1044946) от 17.01.2023
 
 Канцлер Ги - Страшная сказка (2010) [FLAC|Lossless|image + .cue] <Folk-Rock>
@@ -655,93 +740,6 @@ Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442221   (1036880) от 24.01.2021
-
-Gabriella Quevedo - Acoustic Cover Songs, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Brick In The Wall (4:27)
-02. Back (3:44)
-03. Blackbird (2:30)
-04. Californication (5:56)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29679E3EB1DF0295465921166ADE858898B3DD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442225   (1036870) от 24.01.2021
-
-Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultans Of Swing (5:24)
-02. That's Life (3:18)
-03. Wanted Dead Or Alive (5:02)
-04. Lay All Your Love On Me (4:48)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CACE22C23373E01D94FF0BC8A19A255B5CEF499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616678   (1036112) от 03.03.2023
-
-VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Era - Era
-02 - Enigma - The Roundabout
-03 - Deep Forest - Bohemian Ballet
-04 - Sacred Spirit - Legends(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743D78AF4985456382B4F16BEC15DDCF8DADA702
 ```
 
 https://mybot314.ru/tekegram_catalog/

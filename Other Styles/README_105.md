@@ -1,3 +1,123 @@
+###  Публикация: 933223   (505273) от 02.09.2015
+
+London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [FLAC|Lossless|WEB-DL]<Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 20th Century Fox Fanfare [00:24]
+02. Cleopatra (excerpts) (arr. J. Mauceri): Caesar and Cleopatra [14:32]
+03. Cleopatra (excerpts) (arr. J. Mauceri): Anthony and Cleopatra [11:11]
+04. The Godfather (arr. J. Mauceri) [15:20](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D475A08B70AC05BD6CD04C46C3383360B86662B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933444   (505271) от 02.09.2015
+
+VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Minions - Universal Fanfare
+02. The Turtles - Happy Together
+03. The Spencer Davis Group - I’m a Man
+04. The Kinks - You Really Got Me(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13D0E6C15547318E3B6BCBB58C3BD98DA617D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538175   (504885) от 28.08.2012
+
+VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native American, Ethno, New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sacred Ground - Bill Miller (6:21)
+2. Can You Hear The Call - Robert Mirabal (6:37)
+3. Mountain Song - Star Nayea And Primeaux & Mike (6:00)
+4. Spirit Wind - Bill MIller (5:05)
+5. Seeking Light - Joanne Shenandoah (6:13)
+6. Raven - Little Wolf Band (5:43)
+7. People Of Yesterday - Robert Mirabal (5:00)
+8. Prayers In The Wind - Little Wolf Band (4:07)
+9. Let Us Dance - Primeaux & Mike And David Carson (5:16)
+10. Mother Earth - Walela And Joanne Shenanadoah (4:50)Жанр: Native American, Ethno, New Age, Ambient, DowntempoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539369   (504867) от 28.08.2012
+
+Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504867.jpg" />
+</div>
+
+
+###  Подробнее
+
+(30:03) 1. Raga Jhinjhoti
+(27:30) 2. Raga DarbariЖанр: Relax, Meditative, InstrumentalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538375   (504856) от 28.08.2012
 
 Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno, Ambient, New Age>
@@ -707,134 +827,6 @@ Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute
 ###  Подробнее
 
 Жанр: Instrumental | Pan FluteПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317259   (501384) от 31.07.2019
-
-David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look of Love (3:34)
- 02. What the World Needs Now (2:48)
- 03. (They Long to Be) Close to You (2:50)
- 04. Arthur's Theme (Best That You Can Do) (4:32)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317235   (501367) от 31.07.2019
-
-Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Loving (2:54)
- 02. Here Comes the Sun (3:01)
- 03. Yesterday (2:31)
- 04. Here, There and Everywhere (2:27)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380289   (501278) от 26.08.2011
-
-VA - The Rough Guide To The Music of South Africa, part 2 (2006) [FLAC|Lossless] <world, ethnic african>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_501278.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:27] 01. Busi Mhlongo - Yehlisan'Umoya Ma-Afrika
-[05:38] 02. Mahlatihini & The Mahotella Queens - Umuntu Ngumuntu
-[05:03] 03. Chicco - Umagubane
-[04:57] 04. Yvonne Chaka Chacka - UmQombothi
-[02:45] 05. Soweto Sring Quartet - St Agnes And The Burning Train
-[04:32] 06. Shiyani Ngcobo - Yekanini
-[02:36] 07. Miriam Makeba & The Skylarks - Ndidiwe Zintaba
-[02:49] 08. Mtabhane Ndima - Thandabantu
-[03:24] 09. Soul Brothers - Mama Ka S'Bongile
-[03:29] 10. Lesego ampolokeng & The Kalahari Surfers - Blue V's(   Читать дальше...   )2006Жанр: world, ethnic africanПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380290   (501271) от 26.08.2011
-
-VA - The Rough Guide To The Music of South Africa (1997) [FLAC|Lossless] <world, ethnic african>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_501271.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:14] 01. Izingqungqulu Zomhlaba - Nigizongena Kanjani
-[04:20] 02. Mahlathini & the Mahotella Queens - Nyamphemphe
-[08:10] 03. Noise Khanyile & the Jo'burg City Stars - Groovin' Jive No.1
-[03:27] 04. Lucky Dube - House of Exile
-[04:54] 05. Yvonne Chaka Chaka - Motherland
-[04:03] 06. Tebogo - My Kind of Jazz
-[02:54] 07. Spokes Mashiyane - Meva
-[04:03] 08. African Jazz Pioneers - Jive Township
-[04:41] 09. The Elite Swingsters - Yaze Yangala
-[07:52] 10. Bheski Mseleku - Celebration(   Читать дальше...   )1997Жанр: world, ethnic africanПродолжительность: 01:11:18
 
 ## Скачать торент
 ```bash

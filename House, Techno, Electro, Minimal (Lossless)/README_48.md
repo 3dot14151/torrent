@@ -1,3 +1,205 @@
+###  Публикация: 1415612   (376869) от 12.10.2020
+
+Martin Goodwin - Discography 6 Releases (2013-2020) Tehnofonika, Northallsen, Kornarion [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclosion Pt.1 (06:55)
+ 02. Eclosion Pt.2 (12:08)
+ 03. Eclosion Pt.3 (06:37)
+ 04. Eclosion Pt.4 (08:15)(   Читать дальше...   )Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 04:50:59 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BAF85EB491384EC2FB5E94B6C70B9D59D56F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303292   (376330) от 12.10.2020
+
+Aleja Sanchez - Discography 30 Releases (2010-2020) Northallsen Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Dialogue (07:11)
+ 02. The Language Of Silence (06:18)
+ 03. Inner Voices (06:34)Тип издания: WebЖанр: Techno, Ambient, Experimental •Продолжительность: 14:27:01 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CD81AC27791EFB008D3B3B3B51B0F0242899F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069172   (376102) от 03.11.2016
+
+VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonny White - Ambient Intro/Rainfall [01:56]
+02. Rhythm & Sound - Smile (feat Savage) [06:55]
+03. Maurizio - M5 A (edit) [05:49]
+04. Deepchord - DC12 A1 [06:15](   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 02:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A7DCD39334350A0E30BC4B25BFEAF32E067C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254683   (373193) от 14.10.2018
+
+VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Schulte - Trolley Bus (Winter Trip) (6:52)
+02. Luss - Morning Sun (7:50)
+03. The White Man - Heliopausa (8:42)
+04. David Hausdorf - Club Fever (7:37)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE71D49AF8EA9956145E780DA6BBD2828E77BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176434   (371924) от 21.10.2017
+
+Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, World>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sherazade And Her Never Ending Stories (3:42)
+ 02. Umama (5:33)
+ 03. Dive Into The Mystic (5:19)
+ 04. Shotgun (5:23)(   Читать дальше...   )Жанр: Deep House, Downtempo, WorldПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE88C69A8D3834FA66B6AEFA372725CE61EC850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327859   (370251) от 27.09.2019
+
+VA - Ethereal Techno #007 (2019) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clawz SG - Xanax (original mix) (6:31)
+02. EarthLife - India (original mix) (8:55)
+03. Lost Soul (CH) - Maze (original mix) (6:52)
+04. Martin Dubiansky - Element 5 (original mix) (9:46)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 02:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9E49FFBE06E12A9D435725A44A2690CA08E8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327861   (370243) от 27.09.2019
+
+deadmau5 - mau5ville - Level 3 (2019) [FLAC|Lossless|WEB|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 - Polyphobia (7:30)
+02. Deadmau5 - Glivch (5:15)
+03. Deadmau5 & Shotty Horroh - Are You Not Afraid (3:11)
+04. Deadmau5 & Shotty Horroh - Are You Not Afraid (J. Worra F No Remix) (5:00)(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6968387ED21592E93CD71DC2BAB2FAB85903D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069858   (369138) от 06.11.2016
 
 Mario Hammer And The Lonely Robot - L’esprit De L’escalier Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, IDM>
@@ -546,206 +748,6 @@ Deadmau5 - Here's the Drop! (2019) [FLAC|Lossless|WEB|tracks] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B0536870462055B8A9A8A85FDD1251655C22AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072371   (354675) от 12.11.2016
-
-VA - Stil Vor Talent Berlin - Kottbusser Tor (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Techno HouseПродолжительность: 03:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C74907C935B10AF61DFEEA12AFE74ACC5B6D861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256628   (354420) от 22.10.2018
-
-VA - Sudbeat Showcrates 4 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Budakid & Nordfold - Amado (Original Mix) (7:02)
-02. RPO & GMJ - Immersion (Original Mix) (6:39)
-03. James Gill - Through the Looking Glass (Original Mix) (7:28)
-04. Mauro Augugliaro - Lost in a Silver Dream (Original Mix) (9:04)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFB50E562A9E8FDF8A43711ED2FC35595D89B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178711   (353820) от 29.10.2017
-
-VA - Anjunadeep 09 (Mixed By Jody Wisternoff & James Grant) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boerd – Void (01:26)
-02. Lycoriscoris – Flight (04:12)
-03. Gallago – Sun (Interlude Edit) (01:41)
-04. Dusky – Square Miso (Anjunadeep 09 Mix) (04:37)(   Читать дальше...   )Жанр: Deep House, Downtempo, Chill HouseПродолжительность: 05:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B50C2CF8C4B2C0DD33C943C1501786E1C39FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072585   (352614) от 13.11.2016
-
-VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonwalk - Breath (original mix) [07:08]
-02. Phil Fuldner - Needin' Someone (Sascha Braemer remix) [07:57]
-03. Juliet Sikora - Larrys Garage (original mix) [06:03]
-04. Tube & Berger - When They Come (original mix) [06:20](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6EB9D2A838C5F48F5912DC2B8BDD78996E3F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329582   (352376) от 05.10.2019
-
-VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Doering – Emma Wong (06:07)
-02. Lexer – You Give Me (06:47)
-03. KANT – Wow (06:25)
-04. Kollektiv Ost – Power | Sascha Braemer Remix (06:48)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFDFCF303BE9244BD2593710F7C54509E748040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329500   (352367) от 05.10.2019
-
-Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Is Gonna Save Us (Radio Edit) [03:23]
-2. Love Is Gonna Save Us (Benny Extra Long Mix) [06:34]
-3. Love Is Gonna Save Us (Benny Extra Long Mix - Instrumental) [06:34]
-4. Love Is Gonna Save Us (LP CD Version) [05:07](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EB316DC217762E71F97E5AFB993CD4EB64130E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256712   (352110) от 23.10.2018
-
-Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Radio Edit) (2:45)
-02. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Vocal Club Mix) (8:19)
-03. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Instrumental) (6:57)
-04. Bodyrox feat Luciana - Yeah Yeah (Electro Radio Edit) (2:37)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: : 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
 ```
 
 https://mybot314.ru/tekegram_catalog/

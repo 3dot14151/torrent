@@ -1,3 +1,61 @@
+###  Публикация: 1619549   (1032973) от 16.03.2023
+
+Kamelot - The Awakening (2023) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (Intro) (1:18)
+02. The Great Divide (4:08)
+03. Eventide (4:15)
+04. One More Flag in the Ground (4:08)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5F4A5D872D9F6758C23E3B1E59748AA37F4DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446972   (1032310) от 11.02.2021
+
+Simulacrum - Genesis (2021) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traumatized (05:53)
+ 02. Nothing Remains (05:52)
+ 03. Arrhythmic Distortions (05:33)
+ 04. Like You Like Me (05:47)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97741C5CA96ECD428B200762F95C82996943FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446962   (1032287) от 11.02.2021
 
 Sirenia - Riddles, Ruins & Revelations (2021) [MP3|320 Kbps] <Symphonic Melodic Metal>
@@ -687,64 +745,6 @@ Stefan Petanovski - Eros (2021) [MP3|320 Kbps] <Instrumental Progressive Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F550786FD657C672019F2BA102DFDE462622AC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454199   (1026416) от 14.03.2021
-
-Daemon Grey - Follow Your Nightmares (2021) [MP3|320 Kbps] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Throne Room
-02. King of Sin
-03. Whiskey Devil Girl
-04. Stoned and Alone(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675ACEBAD837F1494D535D28B40EEBF054F7D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455294   (1025795) от 18.03.2021
-
-Batushka - Carju Niebiesnyj (2021) EP [MP3|320 Kbps] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pismo I [00:04:31]
-02 - Pismo II [00:04:23]
-03 - Pismo III [00:03:45]
-04 - Pismo IV [00:04:10](   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B86EB3F364A4A0DAD3311D81668F65625EB13CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 596594   (131408) от 30.12.2012
+
+Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Romantic Period, Recital>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, RecitalПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D913DAAA53CCD2E5A79F4750266D8AB96B5F2B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596221   (131303) от 30.12.2012
 
 Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless]<Classical, Sonatas, Piano>
@@ -714,32 +740,6 @@ Arvo Part - Alina (1999) [MP3|320 Kbps] <Classical, Contemporary>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE96C7476DB5F53743EB6E441E1358502CE51C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709084   (112845) от 24.03.2024
-
-Ильин Роман - Дж. Берк, Дж. Ван Хьюзен. Платье в горошек и лунный свет (2024) [FLAC 16/44.1|Lossless|tracks] <contemporary, скрипка, фортепиано>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112845.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дж. Берк, Дж. Ван Хьюзен. Платье в горошек и лунный светЖанр: contemporary, скрипка, фортепианоПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F23E95821560DB5785D9BA8907E758BC72E34F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

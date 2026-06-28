@@ -1,3 +1,119 @@
+###  Публикация: 1231744   (603182) от 21.06.2018
+
+Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda [03:09]
+02. Visitors from the Stars [02:38]
+03. Ancestors [03:08]
+04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297649   (603095) от 24.04.2019
+
+Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603095.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jacaranda Street (5:33)
+2. The Lavender Lighter (3:32)
+3. My Love Waits For Me (4:06)
+4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297787   (603090) от 24.04.2019
+
+VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Fading Like A Flower
+2.	Wind Of Change
+3.	Don't Let The Sun Go Down On Me
+4.	Vintage (Ballade To Australian Wine)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297703   (603089) от 24.04.2019
+
+Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Атомы любви
+2. Перезагрузи
+3. Родины нет во мне
+4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297558   (603082) от 24.04.2019
 
 Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
@@ -625,128 +741,6 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299117   (600022) от 01.05.2019
-
-Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lilac Skies
-02. Unspoken Words
-03. Dochas
-04. Blue Whispers(   Читать дальше...   )Жанр: New Age, Jazz, AcousticПродолжительность: 48:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD75305131E20A6099036F5F738C1A9C71062B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232523   (599928) от 24.06.2018
-
-Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Wonderland (03:47)
-02. Sketchbook of Untold Magic (03:32)
-03. Falling Stars (03:33)
-04. Fairy Tale (04:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299143   (599901) от 01.05.2019
-
-Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spirit of the Water (5:07)
- 02. Atlantis Memory (5:25)
- 03. Atlantida (5:28)
- 04. Lost Continent (6:04)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525923   (599618) от 23.07.2012
-
-Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Dance
-02. Flying Condor
-03. Allin Quampi
-04. Love Mountain
-05. May you walk in sunshine
-06. Five Spirit
-07. Sunquyman
-08. Four Circles of Live
-09. Tatanka
-10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

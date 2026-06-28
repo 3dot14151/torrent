@@ -1,3 +1,128 @@
+###  Публикация: 1030472   (672278) от 01.07.2016
+
+Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672278.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:11] 01. Burn Down The Gate
+[06:23] 02. Bait The Wolf
+[04:33] 03. The Green
+[03:16] 04. A Sybaritic Experience To Be Savoured(   Читать дальше...   )Жанр: Post-Metal, Post-Rock, InstrumentalПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9E19C73B308D6BA71CE0C4C55FDA1CF42D21FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290947   (672218) от 23.03.2019
+
+Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Deep Is Your Love (4:12)
+02. He Ain't Heavy, He's My Brother (4:30)
+03. Nobody Does It Better (3:30)
+04. Arthur's Theme (The Best You Can Do) (3:28)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 03:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B0B9DF50C278247C1B9BA22800114653E36827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509995   (672202) от 13.06.2012
+
+Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain Leuh (05:08)
+02. Jeroen Van Aken (09:11)
+03. Three (05:26)
+04. Adolescent (05:30)
+05. Abutting, Dismantling (06:26)
+06. Young and Old (06:33)
+07. Du Meine Leise / ALTMIX (03:52)
+08. XXX / GS + Tiempo (04:40)
+09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509646   (672078) от 13.06.2012
+
+John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  The Watchers  (9:25) 
+2.  Deep Space  (8:09) 
+3.  Aurora  (9:58) 
+4.  Sea Of Tranquility  (7:42) 
+5.  Far Centaurus  (10:49) 
+6.  The Edge  (8:47) 
+
+Послушать:Жанр: New Age, AmbientПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028799   (671839) от 01.07.2016
 
 VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
@@ -643,127 +768,6 @@ Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2CABE22813CF7A4ABC88DB1A5A9C6C2D2326FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511347   (667225) от 16.06.2012
-
-Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Closet (13:07)
-02. Pai Nai (01:44)
-03. Early Reptilian Memories (03:20)
-04. Monobrow (08:32)
-05. Half Life (06:55)
-06. Beluga (02:39)
-07. Harpie (06:24)
-08. Vegas Radiation (04:46)
-09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137737   (666771) от 27.05.2017
-
-VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Artenovum - Blue Sun (ambient Lounge mix) 05:33
-2. Pascheba - Nirvana 03:28
-3. Buddhatronic - World Of Grace (Mystic Voice mix) 04:54
-4. Artenovum - Francesca (Mystic Dream mix) 04:54(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427D6B2BDEA4C54E98C9A4F1B36BBA38E9365E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137485   (666770) от 27.05.2017
-
-Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gimme The Beat (3:05)
-02 - Dirt Rich (2:43)
-03 - Fight (3:27)
-04 - Unbroken (3:25)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137708   (666721) от 27.05.2017
-
-Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song To Kama (6:34)
-02. Sounds From India (Part Two) (0:53)
-03. Song To Artha (4:18)
-04. Samprayoguika (6:41)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70493478237333FFE48FCCA5B42B287B2D90957B
 ```
 
 https://mybot314.ru/tekegram_catalog/

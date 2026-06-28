@@ -1,3 +1,81 @@
+###  Публикация: 1041552   (581285) от 10.08.2016
+
+Проекты - VideoHive - Logo Reveal Pack 3in1: Fire - 16994274 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Reveal Pack 3in1: Fire - "горящий" в огне логотип. Используйте его в качестве мощного раскрывающего логотипа, или впечатляющей открывалки заглавия.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A4B961ABBC45C89C1DBD67A5A5FAC32ACFD440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811040   (580360) от 08.08.2014
+
+VideoHive - Hero Logo Maker - Cinematic Studios Opener - 3309987 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальная анимация логотипа или текста для кинематографического производства в “dip to black” стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037F9F53E4442A6D0DB2F03B02428136D5A526FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042120   (580267) от 11.08.2016
+
+Проекты - VideoHive - Cinematic 3D Logo Reveal - 7480409 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18FF1C430843A2FAA1ACB89CEDA522DAB88072D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042125   (580210) от 11.08.2016
 
 Проекты - VideoHive - Smoke Logo Reveal - 7556477 [AEP]
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7165E8945C17C71CC3DC5FED6D2AC76C4086823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043675   (570218) от 17.08.2016
-
-Проекты - VideoHive - Ink Logo - 12297882 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектной демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0490419B7E6BCBB69056D715C443EED25A54A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043678   (570211) от 17.08.2016
-
-Проекты - VideoHive - Construction Company Logo Buildup - 17088862 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации слогана или логотипа в деталях с 3D Башенными кранами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C5571CE0D1E32F438ADD7F3243800014E69EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234643   (568896) от 06.07.2018
-
-Проекты - VideoHive - Safe Unlock Logo Reveal - 19694325 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Safe Unlock Logo Reveal - это идеальный способ показать ваш логотип. Можно использовать для видео, связанного с банковским делом, услуги в сфере безопасности и т.п.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10948EBC8BB143818DC9446E2EC7362D49AFF753
 ```
 
 https://mybot314.ru/tekegram_catalog/

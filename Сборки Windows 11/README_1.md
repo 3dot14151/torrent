@@ -1,3 +1,90 @@
+###  Публикация: 1841377   (1047911) от 10.12.2025
+
+Windows 11 Pro/Ent by OneSmiLe 24H2 build 26100.7462 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_24h2_updated_nov_2025_x64_dvd_ff39a681
+Установлены обновления по 10.12.2025
+Использован лаунчер от Флиба.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEF007F1CF717607BDB0FBCB9078F7E8119DA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841245   (1047838) от 10.12.2025
+
+Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7462 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_11_business_editions_version_25h2_updated_nov_2025_x64_dvd_2dd8ca2b
+Установлены обновления по 09.12.2025
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD80091A4D2A189C670F69B19B9363B36E3D3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839558   (1046611) от 29.11.2025
+
+Windows 11 (v25h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: ru-ru_windows_11_consumer_editions_version_25h2_
+updated_nov_2025_x64_dvd_4ace2901.iso.
+Использован переработанный установщик от Windows 11 25h2 (SecureBoot и TPM 2.0 не требуется).
+Отключено несколько компонентов, задействован протокол SMB.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4013473E906C0DB00EF1ACCA27BD8CF8B19B573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839561   (1046610) от 29.11.2025
 
 Windows 11 (v25h2) x64 PRO by KulHunter v2 (esd) [En]
@@ -615,87 +702,6 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E79B9FFF843BDB9F8E54B23A8B2C60A0299F22F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824722   (136801) от 16.10.2025
-
-Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.6899 [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru
-Установлены обновления по 15.10.2025
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E177198CF5B9FC63CD0DAD6468AE6125374DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825205   (136752) от 17.10.2025
-
-Microsoft® Windows® 11 Professional VL x64 25H2 RU by OVGorskiy 10.2025
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136752.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новой версии 25H2 операционной системы Windows 11 Pro VL x64 от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", гаджеты для (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB0EE82C1165CAD929012525A121948E99D1AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691470   (123368) от 12.01.2024
-
-Windows 11 23H2 (22631.3007) x64 (3in1) by Brux [Ru]
-
->>След.
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка windows 11 выполнена на основе оригинальных образов microsoft Windows 11.22631.3007 Version 23H2 (January 2024 Update) (MSDN) и содержит три редакции ОС в одном образе. Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355C5CFE6C2FAA739192CE5B2F038562AEB60978
 ```
 
 https://mybot314.ru/tekegram_catalog/

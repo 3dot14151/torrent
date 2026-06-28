@@ -1,3 +1,32 @@
+###  Публикация: 1194256   (155946) от 25.12.2017
+
+Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (04:29)
+02. Standby Beauty (04:32)
+03. If Only Your Bed Could Cry (03:42)
+04. Crystal Clear Mud (05:55)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904B48E854C8E90664CAA76986AECFC4FCA21AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518394   (155913) от 19.12.2021
 
 VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37147A51A7F38BEA4DEA0439D5AAECFB50D14943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518895   (150853) от 22.12.2021
-
-VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doja Cat - Kiss Me More (feat. SZA)
-002. Walker Hayes - Fancy Like
-003. Drake - Way 2 Sexy
-004. The Kid Laroi - STAY(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 05:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDF835F455FB84FB0ED1D3A9404B2B239FD9170
 ```
 
 https://mybot314.ru/tekegram_catalog/

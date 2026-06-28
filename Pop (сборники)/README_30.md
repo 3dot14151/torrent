@@ -1,3 +1,119 @@
+###  Публикация: 1384027   (804044) от 19.05.2020
+
+VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doja Cat feat. Nicki Minaj - Say So
+002. KSHMR, Sak Noel feat. TxTHEWAY - Bruk It Down
+003. DaBro - Юность
+004. Little Big - Hypnodancer(   Читать дальше...   )Жанр: PopПродолжительность: 07:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E408C80A5BB999EBE6576195FC35A8F64AC8C74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118510   (803550) от 30.03.2017
+
+VA - Бомба Hits. Весенний (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evidelle - Ну Почему
+002. Dnce - Zoom
+003. Катя Лель - Придумала
+004. Elley Duhe - Immortal(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45C02B60F5D1AA94D2185A735B590DAA07B7F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120045   (803458) от 30.03.2017
+
+VA - Музыка солнца (2014) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анжелика Варум - Июль
+02. Алсу - Я только звук в мелодии
+03. Ани Лорак - Я буду солнцем
+04. Денис Майданов - Пролетая над нами(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F66CDC384CF229E0CA10BD00A507524F16D0964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120162   (803449) от 30.03.2017
+
+VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Loboda - Случайная  3:53
+02.  Макс Барских - Неверная  3:47
+03.  Полина Гагарина - Драмы больше нет  3:14
+04.  Lx24 и Мари Краймбрери - Через 10 лет  4:09(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384204   (802225) от 20.05.2020
 
 VA - Русский хит. Самые сливки дискотек 80-90х (2014) [MP3|320 Kbps] <Поп>
@@ -629,122 +745,6 @@ VA - Sound Color: Popular Dance Music (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4FED42445C1080010EE53F50F336ACDDF929E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507380   (798436) от 04.11.2021
-
-VA - Hymn For The Weekend (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798436.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kairo And Svniivan - Hymn For The Weekend
-002. Marina - Venus Fly Trap
-003. Hiatus Kaiyote - Get Sun
-004. Darius And Finlay - Last Flame(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2F13577E2E8F7F9281078E5459030CF9577642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010880   (797574) от 26.04.2016
-
-VA - Вспомним 90-2000 от Виталия 72 - 4 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жуки - Йогурты (remix)
-02. Света - Хватит, довольно
-03. FM Project - Амстердам
-04. Краски - Сегодня к маме я приехала домой(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC686719599C52BB14BBE13C613EB9912792A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199867   (797495) от 18.01.2018
-
-VA - German Top 100 Single Charts 19.01.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River (feat. Ed Sheeran)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5110B41EA195A75600BB4AFC852542230EBD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010969   (797221) от 26.04.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 30 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etolie Vipe - Save The World (Freeze Remix) (04:42)
-02. Pharao - There Is A Star (John Remix) (03:56)
-03. A La Carte - Doctor Doctor (Mahnovsky Remix) (05:42)
-04. Arabesque - In The Heart Of A Disco Night (Remix) (03:51)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913881EFE9C0E50F762DD3A6AC0C465E3FDBFB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

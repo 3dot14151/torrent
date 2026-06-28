@@ -1,3 +1,29 @@
+###  Публикация: 1088894   (954920) от 01.01.2017
+
+Disoriented (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра-головоломка от первого лица. Просто идите к двери.Тип издания: RepackРазработчик: BrickCreamЖанр: Logic (Casual)Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2CAB9B8986B8094752C57B3CD619B15BAF507E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089130   (953303) от 02.01.2017
 
 Pixel Puzzles Ultimate (2016) [En] (1.11.0.220) License PROPHET
@@ -645,32 +671,6 @@ Reigns (2016) [Ru/Multi] (1.25) License GOG [Collector's Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945DE5150E0BA3557FF2D5E5029AB277BD7D1EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121783   (799008) от 04.04.2017
-
-MahJong Suite (2017) [En] (14.0) License RadiXX11
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799008.jpg" />
-</div>
-
-
-###  Подробнее
-
-MahJong Suite - это высококачественная коллекция раскладок игр маджонг. У каждой игры есть миллионы возможных комбинаций раскладок, таким образом, игра все равно будет для Вас каждой раз новой независимо от того, сколько времени Вы уже играете. В игре предусмотрена подробная статистика на каждую сыгранную раскладку по самым различным параметрам.Тип издания: LicenseРазработчик: TreeCardGamesЖанр: Маджонг, ЛогическаяЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97E5067C47EAB332B410087B49A4BF4EBD730B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

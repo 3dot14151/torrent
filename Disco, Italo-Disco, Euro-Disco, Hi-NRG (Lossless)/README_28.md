@@ -1,3 +1,119 @@
+###  Публикация: 1754586   (40661) от 11.10.2024
+
+Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Schlager, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan (New) (3:05)
+02. Moskau (New) (4:15)
+03. Hadschi Halef Omar (New) (3:50)
+04. Loreley (New) (3:56)(   Читать дальше...   )Жанр: Disco, Schlager, PopПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A11A1578B23C769D3E9E2237212A91FE393F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756483   (39669) от 21.10.2024
+
+Peter Griffin - Step By Step (1981) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beware Of Love
+02. Fly, Home Is In The Sky
+03. Get It
+04. I've Lost My Way(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8D75DB455350D2FABD6D7A834F1EA5ED6DF272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756484   (39664) от 21.10.2024
+
+Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Reception
+02. Spiderman (Long Version)
+03. Hurricane
+04. I'll Be Your Fireman (Long Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3477393D8CBB29EB582F31A3B5A7F199424E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761795   (36498) от 22.11.2024
+
+Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mary’s Boy Child / Oh My Lord (5:11)
+02. When a Child Is Born (3:21)
+03. White Christmas (3:24)
+04. Feliz Navidad (2:23)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761878   (36476) от 22.11.2024
 
 Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
@@ -630,122 +746,6 @@ Mflex Sounds - Robot Eléctrico (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F759119009FE4BEF79EB0309841481FD6076418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800087   (16080) от 31.05.2025
-
-Joe Yellow - Greatest Hits & Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover To Lover (7'' Version) (4:20)
-02. Take My Heart (7'' Vocal Version) (3:56)
-03. I'm Your Lover (7'' Vocal Version) (3:51)
-04. Love At First (7'' Vocal Version) (3:29)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7BD76FFB7C86DFFC850C58542B49477859E42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802918   (14008) от 20.06.2025
-
-V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Astroventure
-02. Spacehawk - Star Chaser
-03. Italo Emotion - Back To Life (Primero Remix) 
-04. Kebu - Fourth Rendez-Vous(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805090   (12562) от 04.07.2025
-
-VA - Italo Disco Dance Party Collection Part 3 (2024) CDr, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlimkhanOV A. & Victoria Nordmann - Disco Night (Extended Version) (6:01)
-02. Magic System D.J. - Beautiful Night (5:02)
-03. Ancient Silence - Don't Let Me Down (3:59)
-04. Mancol feat. Anita Campagnolo - Look In My Eyes (5:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE5DCA4A78860FBA538B30D4D7486107A22BFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805088   (12552) от 04.07.2025
-
-VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Heroes - You're My Heart (Album Version) (5:50)
-02. Mr. Milkman - The Ghost (Extended Version) (6:23)
-03. Valerie Star - I Follow The Rainbow (Extended Vocal Star Mix) (6:34)
-04. AlimkhanOV A. - Rainy Night In Heaven (Radio Version) (3:46)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EBF49A875CC1625D945C22C06D8DEB1FE3C9FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

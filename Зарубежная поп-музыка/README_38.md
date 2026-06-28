@@ -1,3 +1,32 @@
+###  Публикация: 1297563   (603590) от 23.04.2019
+
+VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603590.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Barbie Young - Duppy Huppy (Happy Mix)
+002. Divina - Free 4 Love (Extended Dance Version)
+003. Alvin - Shocking Fever (Long Edit)
+004. Zippers - Buffalo Bill (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B76453423A31B8F08B80A5417BE671337DE13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547225   (603436) от 27.04.2022
 
 VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Vocal>
@@ -722,35 +751,6 @@ Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:955FC184652DC95D9260E8126D72021E738416FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915086   (595197) от 04.07.2015
-
-n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Chillwave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill All These Machines (04:27)
-02. Endless Night (03:46)
-03. Dreamer (03:28)
-04. Another Love (03:58)(   Читать дальше...   )Жанр: Indie Pop Folktronica, ChillwaveПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90803976D2464EF7E4782A6CCE9D5EE825F3731F
 ```
 
 https://mybot314.ru/tekegram_catalog/

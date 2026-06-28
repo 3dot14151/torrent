@@ -1,3 +1,32 @@
+###  Публикация: 1775902   (29376) от 29.01.2025
+
+VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vorbis|480 Kbps] <Electronic, Pop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinners - Working My Way Back To You Babe
+02. Real Thing - Can You Feel The Force
+03. Instant Funk - I Got My Mind Made Up
+04. Sugarhill Gang - Rapper's Delight(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C95E185476D1E4D10C64D9BE76B1430D74FEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775993   (29369) от 29.01.2025
 
 Secret Service - Aux Deux Magots (1987) [OGG Vorbis|480 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Mega Hits 2025 - Top Charts & Radio Songs 11.04.2025 (2025) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43AE8A79E9986AAA564D4ADE6963249D13F64C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791360   (21525) от 13.04.2025
-
-VA - 90s Greatest Hits (2007) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - Life
-02. Chyp-Notic - I Can't Get Enough
-03. Londonbeat - I've Been Thinking About You
-04. Bad Boys Blue - You're A Woman 98'(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Pop, EuropopПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252645A42F4946EC1649A2BEFA369826F555A388
 ```
 
 https://mybot314.ru/tekegram_catalog/

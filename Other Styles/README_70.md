@@ -1,3 +1,130 @@
+###  Публикация: 1028344   (690649) от 22.06.2016
+
+Paul Mauriat - L'avventura & Le Lac Majeur (1972) Remaster, 2016, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690649.jpg" />
+</div>
+
+
+###  Подробнее
+
+L'avventura
+01. Jesus Cristo
+02. Il Fait Beau, Il Fait Bon
+03. La Decadanse(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1584CEB4EE6BDF9BD710ED785758A38C098AEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506265   (690589) от 05.06.2012
+
+Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Age, Flute, Rock, Tribal, Blues, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wise Man 4:41
+02. Uncle Peyote 4:31
+03. Fighting without Fear 7:10
+04. Prayin for the Rain 5:19
+05. Big City Indian 5:14
+06. Thunderbird 5:27
+07. West North South East 6:28
+08. Follow Sitting Bull 5:42
+09. Sweet Illusion 4:02
+10. Fire Spirit (long version) 7:28(   Читать дальше...   )Жанр: Native American, New Age, Flute, Rock, Tribal, Blues, PopПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3CF860F936287B384D7B4802EA7D31263F447F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505416   (690583) от 05.06.2012
+
+Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Island
+02. The Seagull
+03. Song of a girl, who stand on the cliff
+04. Presentiment of a storm
+05. After the rain
+06. Traces on sand
+07. Dreams about the argo
+08. Lunar Path
+09. New LifeЖанр: Relax,New AgeПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288698   (690377) от 14.03.2019
+
+Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Red Dirt (02:20)
+2. Too Hot To Just Quit (03:29)
+3. Met My Match (02:35)
+4. The River & the Gum (04:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506158   (690278) от 05.06.2012
 
 George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
@@ -637,121 +764,6 @@ Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9409050F962C4D88283ECB1B48022195A66813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028479   (688688) от 23.06.2016
-
-Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Healing Sound of the Rain [00:30:07]
-02. Rain Song [00:08:00]
-03. The Sound of the Rain (with Thunder) [00:31:10]Жанр: New Age, NatureПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F415FC1A7FFD4B8EE59B25B49778DBCAA793E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028669   (688506) от 23.06.2016
-
-Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundtrack) (2015) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts of Stone (02:54)
-02. Go Back Whence You Came (01:45)
-03. You're... Immortal? (02:54)
-04. Evil's Soft First Touches (02:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028665   (688392) от 23.06.2016
-
-Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original Soundtrack) (2015) (Extended Edition) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - The Trail (02:50)
-02. Marcin Przybylowicz - Geralt of Rivia (02:22)
-03. Marcin Przybylowicz - Eredin, King of the Hunt (02:27)
-04. Mikolai Stroinski - Wake Up, Ciri (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289335   (688278) от 15.03.2019
-
-АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688278.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Час по часу
-2. Зародила меня матушка
-3. Эх, молодой
-4. Лежу я в больнице(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1442221   (1036880) от 24.01.2021
+
+Gabriella Quevedo - Acoustic Cover Songs, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Brick In The Wall (4:27)
+02. Back (3:44)
+03. Blackbird (2:30)
+04. Californication (5:56)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29679E3EB1DF0295465921166ADE858898B3DD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442225   (1036870) от 24.01.2021
+
+Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans Of Swing (5:24)
+02. That's Life (3:18)
+03. Wanted Dead Or Alive (5:02)
+04. Lay All Your Love On Me (4:48)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CACE22C23373E01D94FF0BC8A19A255B5CEF499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616678   (1036112) от 03.03.2023
+
+VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Era - Era
+02 - Enigma - The Roundabout
+03 - Deep Forest - Bohemian Ballet
+04 - Sacred Spirit - Legends(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743D78AF4985456382B4F16BEC15DDCF8DADA702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616672   (1036101) от 03.03.2023
 
 David Arkenstone - Celtic Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -658,94 +745,6 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619215   (1032497) от 18.03.2023
-
-VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo - Indigo Sunshine + As Above, So Below
-02. Dao Dezi - Hebrides
-03. Deep Forest - Madazulu
-04. Wes - Ken Mouka(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF19E3ECB09159F2569881BC0BDECC336ADC4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619964   (1032492) от 18.03.2023
-
-Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все песни были смикшированы заново и зазвучали по-новому, а в некоторых местах аранжировки обрели совсем иной характер.
-На издании присутствуют два бонус-трека, записанные Ричи и Кэндис в прошлом году - это новые акустические версии "Shadow of The Moon" и "Spirit Of The Sea".01. Shadow of the Moon (25th Anniversary New Mix)
-02. The Clock Ticks On (25th Anniversary New Mix)
-03. Be Mine Tonight (25th Anniversary New Mix)
-04. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C979B485CF82F614EFC6E90A1FD22D9B6B9DBD52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447543   (1031654) от 14.02.2021
-
-VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Brunetti - Clear Nights (01:56)
-02. Adriano Pupillo - Arpeggio in B Major (02:12)
-03. Alessandro Martire - L'ultimo desiderio (03:05)
-04. Adriano Pupillo - Sostenuto in C Major (01:55)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

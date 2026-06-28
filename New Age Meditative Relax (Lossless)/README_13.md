@@ -1,3 +1,90 @@
+###  Публикация: 1402348   (701706) от 14.08.2020
+
+VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calming Music Sanctuary - Relieving Stressful Feelings (03:27)
+02. Meditation Music Zone - Spriritual Rest (03:39)
+03. Beautiful Magical Music Collection - Funny Mood (03:31)
+04. Japanese Zen Shakuhachi - Welcome to Ancient China (03:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6836328A4593F649DE0C8B36848E42129EC04EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132572   (701115) от 09.05.2017
+
+Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Works I (3:18)
+02. Ancient Person Of My Heart (5:52)
+03. O'Ecclesia (3:35)
+04. Interlude I (1:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132495   (700848) от 09.05.2017
+
+D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svoboda 5:51
+02. The Mountain Song (Pritouritze Planinata) 6:54
+03. Optaki 4:54
+04. Sebastien's Song 3:29(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132580   (700846) от 09.05.2017
 
 Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -664,97 +751,6 @@ Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029389   (680258) от 27.06.2016
-
-Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under the Moonlight    09:48
-02.  Lovers Night    15:45
-03.  Letting Go    12:43
-04.  Coming Back Home    10:19Жанр: New Age, Meditative, RelaxПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290052   (680232) от 19.03.2019
-
-Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. f l o w e r (3:54)
- 02/12. Walking In The Forest / 숲을 걷다 (3:07)
- 03/12. f r a m e d (Piano Ver.) (3:53)
- 04/12. Autumn Finds Winter (4:02)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508108   (676057) от 11.06.2012
-
-VA - Вечерняя Коллекция (Звуки природы) (2010) [FLAC|Lossless]<Музыка для медитации и релаксации>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peaceful Widerness
-02. Mountain Moods
-03. Mysterious Rainforest
-04. Symphony Of Whales
-05. Fantastic Sailboat Voyage
-06. Dolphins Delight
-07. Loonscape
-08. Subarctic SoundЖанр: Музыка для медитации и релаксацииПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

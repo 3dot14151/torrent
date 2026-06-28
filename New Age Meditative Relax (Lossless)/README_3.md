@@ -1,3 +1,90 @@
+###  Публикация: 1093851   (932102) от 16.01.2017
+
+Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds blows over the hill [6:30]
+02. Floating lotus [5:29]
+03. Daichi [6:10]
+04. Silence [6:13](   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 03:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986657   (929076) от 15.02.2016
+
+Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
+02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
+03. Waah Yantee  11:04
+04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365305   (929006) от 08.03.2020
+
+Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (4:07)
+ 02. Hello (4:09)
+ 03. Stitches (4:04)
+ 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096171   (920882) от 23.01.2017
 
 Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
@@ -656,94 +743,6 @@ VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292382   (907002) от 07.02.2011
-
-Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cornelius + Cretu - совместная работа Peter Cornelius и Michael Cretu.
-Michael Cretu в представлениях не нуждается, а Peter Cornelius - австрийский музыкант, певец и композитор, участвовавший в создании второго и третьего альбомов Enigma.01. Nur Die Hoffnung Nicht
-02. Nichts Ist Vollkommen, Nicht Mal Das Gluck
-03. Rettungsringe Sterben Aus
-04. Alcatraz(   Читать дальше...   )Жанр: Downtempo, EnigmaticПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368449   (905644) от 22.03.2020
-
-Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beyond Infinity (10:06)
-02.Green Planet (10:04)
-03.Milky Way (10:11)
-04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 44058   (904665) от 22.03.2020
-
-Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethnicolor (11:38)
-02. Diva (7:31)
-03. Zoolookologie (Remix) (3:43)
-04. Woolloomooloo (3:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
 ```
 
 https://mybot314.ru/tekegram_catalog/

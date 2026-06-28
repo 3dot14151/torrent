@@ -1,3 +1,32 @@
+###  Публикация: 1757207   (39174) от 26.10.2024
+
+VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halloween Jazz Vibes - Halloween Jazz [01:16]
+02. Maisy Kay - I Put a Spell On You [03:22]
+03. Trick or Treat!, Spooky Halloween, Halloween Sounds!, Spooky Halloween Sounds - Midnight Witch Swing [03:17]
+04. Prairie Ramblers - Ghost in the Graveyard [02:47](   Читать дальше...   )Жанр: JazzПродолжительность: 03:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6380355C0FBEA92CCAEF88DBBCDDDE0720D2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758066   (38716) от 31.10.2024
 
 VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805984   (12032) от 09.07.2025
-
-VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Bell 100% Blues - Elevator to Heaven (9:00)
-02. D-Man, Manuel Grimaldi - Ain't Enough Whiskey (8:34)
-03. Billy Branch & The Sons of Blues, Carl Weathersby - As The Years Go Passing By (7:42)
-04. Gene Deer - Midnight Healing (7:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03127438A6AE4A13BF9EEE34A9308759B2BE57AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

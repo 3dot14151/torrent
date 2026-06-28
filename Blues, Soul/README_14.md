@@ -1,3 +1,32 @@
+###  Публикация: 904721   (653543) от 04.06.2015
+
+Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinin' Moon (3:00)
+02. Fine Little Mama (2:50)
+03. Big Legs, Tight Skirt (3:36)
+04. Don't Be So Mean (2:35)(   Читать дальше...   )Жанр: Acoustic Delta BluesПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CB189F137087276A4B5192E83B307CDAD304C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904717   (653542) от 04.06.2015
 
 The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern Electric Blues>
@@ -717,35 +746,6 @@ Nico Smoljan & Shakedancers - Nico Smoljan & Shakedancers (2015) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABA4557A2B8FD2CFD53DF99AA3B0D3927A87D6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906477   (643586) от 09.06.2015
-
-Left Lane Cruiser - Dirty Spliff Blues (2015) [MP3|320 кб/с]<Blues Rock, Punk Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tres Borrachos
-02. Elephant Stomp
-03. Whitebread n' Beans
-04. Tangled up in Bush(   Читать дальше...   )Жанр: Blues Rock, Punk BluesПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D71883A33F1868FB0F3FB24A3B44F12AA03CD25
 ```
 
 https://mybot314.ru/tekegram_catalog/

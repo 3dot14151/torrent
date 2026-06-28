@@ -1,3 +1,204 @@
+###  Публикация: 1360006   (961920) от 14.02.2020
+
+VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Perfect Duet (Ed Sheeran & Beyoncé)
+02. Benji & Fede – Ogni volta
+03. Dan + Shay – Tequila
+04. Bruno Mars – Just the Way You Are(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359986   (961881) от 14.02.2020
+
+VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dava - Ранила (Amice Remix) (4:36)
+2.Veber - Я Буду Кричать (4:04)
+3.Bahh Tee feat. HammAli & Navai - Жить, Не Думая О Тебе (3:55)
+4.Anivar feat. Adamyan - Руку Держи (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007C25FEF577B36CF81E3A15F1F46D3D7AE5A5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360225   (961853) от 14.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights 3:22
+02. SAINt JHN - Roses (Imanbek Remix) 2:56
+03. Zivert - Credo 3:04
+04. AronChupa & Little Sis Nora - Hole In The Roof 2:50(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B2B368A9B43F950F9F3AC6A39BD1B187D96C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747649   (961449) от 20.01.2014
+
+VA - The Official UK Top 40 Singles Chart (19-01-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот раз BBC очень поздно опубликовало свой традиционный UK Singles Chart . В 23.05 по Москве появился очередной официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Pharrell Williams - Happy (3:53)
+02. Pitbull Feat Ke$ha - Timber (3:24)
+03. Avicii - Hey Brother (4:14)
+04. Jason Derulo - Trumpets (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB208371828AAE09321F2321F91624099FAA33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978943   (961060) от 25.01.2016
+
+VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, Pop, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roman Flugel - Wilkie (Original Mix)
+002. Rex The Dog - Musik Hypnotises (Original Mix)
+003. Rayko - Get Up
+004. NTEIBINT - A Baby For My Bass(   Читать дальше...   )Жанр: Funky House, Nu Disco, Pop, Indie DanceПродолжительность: 10:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B318C26DF8031AD3930C44BA6B3BE3673D647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253400   (960986) от 20.01.2014
+
+VA - Музыка любви - 5CD (2008) [MP3|320 kbps] <Other, Romantic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Other, RomanticПродолжительность: 05:49:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360276   (960294) от 15.02.2020
+
+VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A$AP Ferg - Value (2:47)
+2.AJR - Bang! (2:50)
+3.Anivar feat. Adamyan - Руку Держи (3:57)
+4.Anne-Marie - Birthday (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979580   (959868) от 26.01.2016
 
 Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-Disco, Dance>
@@ -547,209 +748,6 @@ VA - Listen Life: Neo Classical Collection (2020) [MP3|320 Kbps] <Neo Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC4EF96C48194BC8385371775F6118A3BB029845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088908   (953739) от 02.01.2017
-
-VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abc - Poison Arrow (Jazz Remix) 6:55
-002. Alphaville - Sounds Like A Melody (Special Long Version) 7:43
-003. Cock Robin - The Promise You Made (Extended Version) 6:34
-004. Cyndi Lauper - Girls Just Want To Have Fun (Extended Version) 6:03(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 14:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FA5336CA1CE2DA86893410BFE5C7CD9008F3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088809   (953593) от 02.01.2017
-
-VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шансон, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Несчастный Случай - Песня без названия 4:24
-002. Катетер - Люда 3:32
-003. Ленинград - Геленджик 3:12
-004. Рабфак - Новая песня о правде 3:13(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 09:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088842   (953490) от 02.01.2017
-
-VA - Новогодние песни (1945-2016) [MP3|256-320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Loud - Santa Claus is comin' to town 4:31
-002. 3 Рубля & MC - Новогодняя (Radmir K Euroвance remix) 4:56
-003. 23-45 feat. 5ivesta Family - Новый год 2:56
-004. 140 Ударов В Минуту - С новым годом 3:41(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 72:14:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA3AA800E1FAE8133B761A882423FD55812970F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089220   (953183) от 02.01.2017
-
-VA - DFM: Итоговый D-Chart Top50 (2016) [MP3|320 Kbps] <House, Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla's Dreams - Sub Pielea Mea (Midi Culture Remix) 5:08
-02. KSHMR & Tigerlily - Invisible Children (Extended Mix) 3:45
-03. LP - Lost On You (Swanky Tunes & Going Deeper Extended Remix) 4:36
-04. Calvin Harris - My Way 3:39(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 03:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AB44C4D7B281E797F2F6ACC9DBFF29CFD5911A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981289   (953081) от 31.01.2016
-
-VA - Carnival 2016 (Best of Dance, House, Electro & EDM) (2016) [MP3|320 кб/с] <Dance, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Doomchit Doomchit (Radio Edit) 02:48
-02. Teknova - The Riddle 2K16 (Radio Edit) 02:45
-03. Mr X Project - Let's Run Away (Stephan F Remix Edit) 02:59
-04. The Klaim - Candy Girl (Radio Edit) (Feat. Federica) 03:20(   Читать дальше...   )Жанр: Dance, Electro House, Progressive HouseПродолжительность: 02:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47319A86C4B5ED97A5E4FB03B59E2110C5F71060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980605   (952809) от 31.01.2016
-
-VA - Турбо Модные Хиты В Зимний Вечер (2016) [MP3|225-256 кб/с] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952809.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miriam Bryant — Serendipity
-002. Hannah Montana & Miley Cyrus — Rockin Around the Christmas Tree
-003. Паола — Девочки Такие Девочки
-004. Эдуард Хиль — Зима(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 08:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44435967D2786D1AE2C0FB497EB490BBB67F8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980502   (952781) от 31.01.2016
-
-VA - Billboard Hot 100 Singles Chart 23.01.2016 (2016) [MP3|320 кб/с] <Pop, Dance, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Sorry
-02. Adele - Hello
-03. Justin Bieber - Love Yourself
-04. Drake - Hotline Bling(   Читать дальше...   )Жанр: Pop, Dance, Hip-Hop, RnBПродолжительность: 06:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C18471A5DAD110E4AB0D2C3A69C737919E801A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

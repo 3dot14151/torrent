@@ -1,3 +1,83 @@
+###  Публикация: 1160173   (477836) от 23.08.2017
+
+Проекты - VideoHive - Soccer Logo - 20281690 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавный проект для демонстрации логотипа. Можно так же использовать для вступительной заставки к видео связанного с футболом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823D62F9C44A2E9179EBB7DA60652D79745B2A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822866   (477398) от 19.09.2014
+
+VideoHive - Particles Logo Revealer - 8858855 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477398.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoHive - Particles Logo Revealer проект для создания логотипа
+
+сентябрь 2014 годаФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F2E6C1C29A3F7ADB81852964C0B99A56F067ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057039   (476782) от 27.09.2016
+
+Проекты - VideoHive - Quick Corporate Smoke Logo Reveal - 14621153 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации быстрого, корпоративного логотипа с эффектами дыма.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47699B8D59801B7B9555803EBB9F4EE754AA3698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160438   (475617) от 24.08.2017
 
 Проекты - VideoHive - My Balloon My Logo - 11006133 [AEP]
@@ -595,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C997576EA453B7F892FC70B2E54ECCF1D102CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825012   (462475) от 26.09.2014
-
-VideoHive - Classy Logo Reveal V5 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представление вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E188DE7AD8C3D141F40D116F844267A617A2C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059617   (461552) от 04.10.2016
-
-Проекты - VideoHive - Xtreme Glitch - 833206 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте мощное заявление с этой острой демонстрацией логотипа, слогана или текстовых надписей. Шаблон имеет множество потенциальных применений.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FB5B59C3E61033EEB7B0E24686185F992F128A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059609   (461550) от 04.10.2016
-
-Проекты - VideoHive - Logo Shadow Ident - 3216597 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8821CAE5E5A5468DC38FA5C3EE8943444A374E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1510076   (792202) от 15.11.2021
+
+VA - Lovely Autumn Chill #3 (2021) [AAC|~311 Kbps] <Chill Out, Trip-Hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - Night Glow (Original Mix) (4:59)
+02. Weathertunes - Natural High (Original Mix) (4:12)
+03. Twentyeight - Stars (Bodean's Sunset Ashram Version) (5:32)
+04. Dreamhunter - Bring the Light (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Trip-Hop, LoungeПродолжительность: 01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2EE4902CF1F9F9B66D6B531EA72DDC8F720473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510073   (792201) от 15.11.2021
+
+VA - Lovely Autumn Chill (2017) [AAC|~318 Kbps] <Chill Out, Trip-Hop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ThC Brothers - Staircase (5:50)
+02. Marc Hartman - Emission of Love (5:16)
+03. Deadly Ride - Forces (4:40)
+04. Alexander Tarasov - Sadness (5:12)(   Читать дальше...   )Жанр: Chill Out, Trip-Hop, LoungeПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DF44B8229CED1BB1F1EC9E96E13205236796FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509951   (792200) от 15.11.2021
+
+VA - Coffee Bar Lounge, Vol. 26 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twentyeight - Enjoy Your Rest (3:38)
+02. Tapelapse - Closing Time (1:55)
+03. Marc Hartman - I'm Burning (Original Mix) (5:01)
+04. Bodean - Innocent Morning (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD215A0831DE8DFB493F8E7F947ED5709954DA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510000   (792197) от 15.11.2021
+
+Ёлка - Без обид (2021) [AAC|~308 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Космос (3:07)
+02. Моя звезда (3:42)
+03. Верь или не верь (3:32)
+04. Маленькие люди (3:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264505771B1B5046CCB35264A3543B987262829E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510031   (792146) от 15.11.2021
+
+Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) [AAC|~333 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты меня не забудешь (2:50)
+02. Иди танцуй (2:52)
+03. Океан (3:28)
+04. Холостяк (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA2358F7CE028F54FCD1427443E462655C7812A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509988   (792135) от 15.11.2021
+
+Al Bano & Romina Power - Original Album Classics (2019) [AAC|~344 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Sharazan (4:26)
+1.02. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
+1.03. It's Forever (2:57)
+1.04. Magic Oh Magic (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 04:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011DABDA2EFFD8184FF2CE63FF9622355ACDB318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201510   (791984) от 25.01.2018
 
 Обет молчания / Acts of Vengeance (2017) BDRip [720p] ATV
@@ -538,171 +712,6 @@ VA - Study With Relaxing Jazz (2021) [AAC|~334 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B28ED8A57CBA560C919C95E98103C1B5B8829424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510391   (791462) от 16.11.2021
-
-VA - Mediterraneo 4 by Billy Esteban (2021) [AAC|~331 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe De Anatolia, Bob Zopp - Barceloneta Beach (4:23)
-02. ThroDef, Michalis Koumbios, Thomas Konstantinou - Kos (4:34)
-03. Cafe De Anatolia, Billy Esteban, Alex Mihalakis - Halkidiki (6:38)
-04. Cafe De Anatolia, Bob Zopp - Gothic Quarter Street Music (5:50)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398311366EBA45320AC57B02028C84F4CCF96CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510393   (791460) от 16.11.2021
-
-VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
-02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
-03. Brass, Alessio Ventura, Dario Benedetti - Ordinary World (Cover) (6:12)
-04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513BE017AB8601E6F115A62B1AEBD8336465F49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510295   (791459) от 16.11.2021
-
-Оружейный барон / Lord of War (2005) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители братьев Орловых, старшего Юрия и младшего Виталия, покинули Украину и обосновались в Америке, на Брайтон-Бич, где открыли маленький ресторанчик. Дети же не рвались идти по родительским стопам. Юрий, раздумывая, чем заниматься, пришел к выводу: самое выгодное — торговать оружием. Потому что в мире, переполненном агрессией, оружие никогда не бывает лишним. (   Читать дальше...   )Производство: Франция, Германия, США / Entertainment Manufacturing Company, VIP 3 Medienfonds, Ascendant Pictures, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, драма, криминалРежиссер: Эндрю НикколАктеры: Николас Кейдж, Бриджет Мойнэан, Джаред Лето, Шейк Тухманян, Жан-Пьерр Ншанян, Джаред Бурк, Эрик Уйс, Дэвид Шамбрис, Стюарт Морган, Джаспер ЛенцПеревод: Дублированный, двухголосый профессиональный, авторский одноголосыйСубтитры: русские, английскиеПродолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9172CFF0043C3D9292CDA14FD7682D3BBA0C39B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510454   (791454) от 16.11.2021
-
-Fancy - Locomotion (2021) [AAC|~336 Kbps] <Pop, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Voice In The Dark (4:00)
-02. Die For You (3:14)
-03. Fools Cry (3:16)
-04. Pretty Woman (2:53)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC25FDBCF28E80B5BC660C80E301682926F5F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201799   (791437) от 26.01.2018
-
-Чудо-Юдо  (2017) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791437.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некотором царстве, в некотором государстве жил-был Царь Еремей с тремя сыновьями. Был он занят целыми днями важнейшим государственным делом — диктовал мемуары о своих несуществующих подвигах. И вот однажды, средь бела дня обнаружилось на границе Царства чудище драконьей породы, а проще говоря, Чудо-Юдо. И послал Царь сыновей чудище это победить и славу царского (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, фэнтезиРежиссер: Артем ЛукичевАктеры: Антон Макарский, Ирина Медведева, Наталия Медведева, Александр Пожаров, Людмила Артемьева, Федор Добронравов, Иван Добронравов, Диомид ВиноградовПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8756AC70CD56D9F3E9DF8B5CBFC3CA6981ECEAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510238   (791324) от 16.11.2021
-
-Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: фэнтези, боевик, комедия, приключения, фантастикаРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВПеревод: Дублированный, профессиональный многоголосыйСубтитры: русские, украинские, английскиеПродолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B3B9C99F5E97CE6E18CBC66ED3DD787EFB9F00
 ```
 
 https://mybot314.ru/tekegram_catalog/

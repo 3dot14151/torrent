@@ -1,3 +1,55 @@
+###  Публикация: 1133030   (696601) от 11.05.2017
+
+Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Debian с радостью сообщает о восьмом обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.  Выпуск включает (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4F979C83AF536A9B7480B2849CEF4FB45A8B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896602   (693934) от 09.05.2015
+
+JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_693934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.79.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6876920247E2206B9D82A6356D5BA2BC37DB95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403197   (691900) от 19.08.2020
 
 Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопасность] 5xDVD + ova [amd64]
@@ -652,60 +704,6 @@ KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908314   (633336) от 14.06.2015
-
-Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен очередной релиз французского дистрибутива на основе текущей версии Debian 8 "Jessie" с DE Xfce 4.12. Отметим, что ранее дистрибутив базировался на текущих версиях Xubuntu.
-
-Рабочее окружение включает в себя по умолчанию Conky, Smtube, Kodi/XBMC Media Center, VLC, GIMP, Clementine, CoverGloobus, RadioTray, Slingscold, Skippy-xd, Kazam, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143575   (633012) от 19.06.2017
-
-Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633012.jpg" />
-</div>
-
-
-###  Подробнее
-
-После более двух лет разработки состоялся релиз Debian GNU/Linux 9.0 (Stretch), доступный для десяти официально поддерживаемых архитектур, среди которых: Intel IA-32/x86 (i686), Intel EM64T / x86-64 (amd64), ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (ppc64el) и IBM System z (s390x). Релиз посвящён Яну Мердоку, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7951E4973E67CDD36C441EC2A3F29772F484D47E
 ```
 
 https://mybot314.ru/tekegram_catalog/

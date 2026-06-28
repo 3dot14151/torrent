@@ -1,3 +1,119 @@
+###  Публикация: 1200894   (793960) от 23.01.2018
+
+Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandre Desplat - The Shape of Water (03:44)
+02. Renee Fleming - You'll Never Know (04:40)
+03. Alexandre Desplat - The Creature (01:48)
+04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC86A91D3D6EC9A2258455AF7C8CA6A502C86ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201085   (793954) от 23.01.2018
+
+VA - Quiet Nights Of Quiet Stars (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jo Stafford - Quiet Nights of Quiet Stars (3:16)
+02. Vic Damone - It's Impossible (4:32)
+03. Frank DeVol - The Tender Trap (3:41)
+04. Margaret Whiting - I Only Have Eyes for You (3:40)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, VocalПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886C4DBE4EABA0FF502CFBA80FF42035D80F0BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200898   (793899) от 23.01.2018
+
+Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandre Desplat - The Shape of Water (03:44)
+02. Renee Fleming - You'll Never Know (04:40)
+03. Alexandre Desplat - The Creature (01:48)
+04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199918   (793892) от 23.01.2018
+
+Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Король фей
+02. Амстердам
+03. Мексика
+04. Бороды(   Читать дальше...   )Жанр: Pub Folk, Celtic Punk, Folk RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012450   (793746) от 01.05.2016
 
 Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contemporary Guitar Instrumental>
@@ -629,122 +745,6 @@ Cliff Martinez - The Knick / Больница Никербокер: Season 1,2 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D938E6B25DB78FAB73216483A878FDDA058ED348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122637   (793188) от 06.04.2017
-
-Percy Faith - The Real... Percy Faith And His Orchestra (2016) 3CD [FLAC|Lossless|tracks + .cue] <Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Blue on Blue
-2. Anyone Who Had a Heart
-3. Spanish Harlem(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 02:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE510117F92AEF7D27D94588A5DCA2C8B1CA645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274529   (792989) от 07.01.2019
-
-Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792989.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mirage (8:38)
-2. Morin Huur (6:18)
-3. La Foret (10:18)
-4. Manganu (8:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57804793C46FC70E9F3191FED4777BEA8695102B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201009   (792778) от 24.01.2018
-
-Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Message In A Bottle  (2:47)
- 02/10. As The Sun Rises (4:12)
- 03/10. Legend Of The Sea (4:33)
- 04/10. Dancing Waves (4:09)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274187   (792250) от 08.01.2019
-
-Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of the East (5:48)
- 02. Racing Against the Sunset (4:53)
- 03. The Approaching Night (6:40)
- 04. Darkness Falls (4:42)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1860844   (1062283) от 23.03.2026
+
+Johnny Mathis - Faithfully (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062283.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Faithfully
+A2 Tonight
+A3 Nobody Knows (How Much I Love You)
+A4 One Starry Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921F9A4FFDDF1B10E39B00194DBC387663823425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860837   (1062282) от 23.03.2026
+
+Barry Manilow - Manilow Magic. The Best Of Barry Manilow (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062282.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mandy
+A2 New York City Rhythm
+A3 Looks Like We Made It
+A4 Can't Smile Without You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC1A5FBA65CEA6FF5AB1F631F0F85DF9AC65F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860348   (1061627) от 20.03.2026
+
+Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Hawaiian, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061627.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Blue Hawaii
+A2 Drifting And Dreaming
+A3 King's Serenade (Imi Au Ia Oe)
+A4 Song Of The Islands (Na Lei O Hawaii)(   Читать дальше...   )Жанр: Folk, Hawaiian, InstrumentalПродолжительность: 00:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4C23BFADA349D59E5D93DDF05945BB9B7DF7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859981   (1061595) от 18.03.2026
+
+Peggy Lee - I'm A Woman (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061595.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Alley Cat Song
+A2 Mama's Gone, Goodbye
+A3 I'm Walkin'
+A4 Come Rain Or Come Shine(   Читать дальше...   )Жанр: Jazz, Pop, BluesПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20C9B04859688007F5FDAABF159410BB70C1B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859888   (1061388) от 18.03.2026
+
+Roger Miller - The One And Only Roger (1965) Reissue 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061388.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It Happened Just That Way
+A2 I Know Who It Is (And I'm Gonna Tell On Him)
+A3 But I Love You More
+A4 A Part Of Me(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE9B7023C793FA598D6A26185EBFB45C57BFF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859897   (1061347) от 19.03.2026
+
+Elvenking - Studio Albums (12 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elvenking — метал-группа, основанная в 1997 году в коммуне Сачиле (Италия).2001 - Heathenreel
+2004 - Wyrd
+2006 - The Winter Wake
+2007 - The ScytheЖанр: Power/Folk MetalПродолжительность: 12:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8094F33705392B5E05BE0E93B3BD5234BFA2FD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859689   (1061229) от 17.03.2026
+
+Dinah Kaye With Tubby Sykes And The Power-House 7 - The Roaring 20's (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Dixieland, Ragtime>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061229.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Charleston
+A2 Somebody Stole My Gal
+A3 Dinah
+A4 Tiger Rag(   Читать дальше...   )Жанр: Jazz, Dixieland, RagtimeПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B79CB17B87EE2E098614337C012A622E3AB7C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859602   (1061228) от 17.03.2026
 
 Tool - Studio Albums (7 releases) (1991-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
@@ -539,209 +742,6 @@ B1 Suite In D Major(   Читать дальше...   )Жанр: Classical, Baro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2A9B1B0E2162B8C826E3AD03B733157CB27741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854951   (1057602) от 20.02.2026
-
-Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rotting Christ - греческая метал-группа, созданная в Афинах в 1987 году. Является одной из самых известных метал-групп Греции.1991 - Passage To Arcturo (EP)
-1993 - Thy Mighty Contract
-1994 - Non Serviam
-1996 - Triarchy Of The Lost LoversЖанр: Melodic Black Metal, Gothic MetalПродолжительность: 15:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CAA7F95FFEECD128FC2BFBD08B1654AC361708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854505   (1057272) от 18.02.2026
-
-VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and other [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057272.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Samantha Sang (with The Bee Gees) - Emotions
-A2 Deniece Williams - Free
-A3 Billy Joel - I Love You Just The Way You Are
-A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854364   (1057177) от 17.02.2026
-
-Callisto - Studio Albums (5 releases) (2002-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Sludge/Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Callisto — пост-метал группа из города Турку, Финляндия, основана в 2001 году.2002 - Ordeal of the Century (EP)
-2004 - True Nature Unfolds
-2006 - Noir
-2009 - ProvidenceЖанр: Sludge/Post-MetalПродолжительность: 04:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5208F15A5932C9CC53243CBC88847569B4ACD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854154   (1057126) от 16.02.2026
-
-Spiritual Beggars - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spiritual Beggars — шведская стоунер-метал-группа из Хальмстада, основанная Майклом Эмоттом, известным по работе с Arch Enemy, Carcass и Carnage. Группа находится под сильным влиянием хард-рока 70-х и включает в свою музыку элементы психоделии.1994 - Spiritual Beggars
-1996 - Another Way to Shine
-1998 - Mantra III
-2000 - Ad Astra(   Читать дальше...   )Жанр: Stoner Metal, Hard RockПродолжительность: 08:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972DAFDFDF928A69567A63DD856E723F05545731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854144   (1057125) от 16.02.2026
-
-Music For Pleasure - Hot Hits 9 (1971) Cover versions of chart songs from 1971 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Sound-Alike,  Pop Rock, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057125.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Theme From Shaft
-A2 Morning Has Broken
-A3 I'd Like To Teach The World To Sing (In Perfect Harmony)
-A4 Sleepy Shores(   Читать дальше...   )Жанр: Sound-Alike,  Pop Rock, SoulПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461FB68A2AC46D39C3EC800C31D0F264E112D983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854168   (1057114) от 16.02.2026
-
-Carl Belew - Carl Belew (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057114.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Wish You Love
-A2 What's The Matter With Me
-A3 A Wasted Love Affair
-A4 I Know But Tell Me No(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C791071D64528095042888568383B74BC4180EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854181   (1057113) от 16.02.2026
-
-VA - Duets Country Style (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057113.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 George Jones, Brenda Carter - Milwaukee, Here I Come
-A2 Don Gibson, Dottie West - Sweet Dreams
-A3 Johnny Wright, Jack Anglin - Don't Let The Stars Get In Your Eyes
-A4 Connie Smith, Dallas Frazier - The Laying On Of Hands(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEA3F83873A7725D4CE049C6D9B6696A1186D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

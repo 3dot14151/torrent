@@ -1,3 +1,38 @@
+###  Публикация: 529677   (564925) от 01.08.2012
+
+Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 35 be burbuliuku
+02. Ispildyk mano norus
+03. Olialia pupytes
+04. Svajoniu krautuvele
+05. Fight for your right
+06. Meile akla
+07. Sacharos
+08. Buk salia
+09. Eikim kartu
+10. Musu fiesta(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40547345E0327E296443516AB1C011AF718D292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235111   (564072) от 09.07.2018
 
 VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
@@ -716,35 +751,6 @@ Madonna - Madame X (2019) Deluxe [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAAD0D70E6934C65BFC5DEAEFEC9F7E47AEBA718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308608   (553779) от 15.06.2019
-
-VA - Ballerstyle - Mallorca Hits 2019 (Best of Mallorcastyle Schlager für die Discofox XXL Party) (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Robin - DJ auf Entziehungskur
-002. DJ Mallorca - Helikopter 117 (Mach' den Hub Hub Hub)
-003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
-004. Isi Glück - Das Leben ist ne Party (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94989DE02296D860219243ADB4F0ACF39F8E33AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

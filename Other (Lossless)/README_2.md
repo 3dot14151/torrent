@@ -1,3 +1,32 @@
+###  Публикация: 1285613   (714825) от 01.03.2019
+
+Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, Roots Reggae>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Brown in Town (04:28)
+02. Mr. Brown Dub (04:11)
+03. Trendsetter (04:18)
+04. Trendsetting Dub (04:17)(   Читать дальше...   )Жанр: Dub, Roots ReggaeПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1E758CF8FAE5E5A3A493688965088F17847B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894230   (708949) от 01.05.2015
 
 VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance, Rock, Pop-Rock>
@@ -813,32 +842,6 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522638   (612832) от 18.07.2012
-
-VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood Bowl Orchestra - John Dunbar Theme {Жанр: Classical, Pop, Rock, Stage & ScreenФормат: BoxSet 2CDПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

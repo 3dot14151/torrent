@@ -1,3 +1,143 @@
+###  Публикация: 603839   (996765) от 16.01.2013
+
+VA-Шевели попой (2013) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лена Катина (ex. t.A.T.u) - White Christmas (01:51)
+02. Sebastian Ingrosso & Tommy Trash - Reload (Dfm Mix) (02:05)
+03. The Wanted - Chasing The Sun (02:19)
+04. Fish Man - One Pound Fish (Dfm Mix) (02:21)
+05. DJ Smash and DJ Vengerov - Only Forwad (Bobina Radio Mix (02:22)
+06. Azary - Озарю (02:29)
+07. Drumsound and Bassline Smith feat. Tom Cane - Through The Night (02:37)
+08. Lenka - Everything At Once (02:39)
+09. Ирсон Кудикова - Выстрел глазами (02:41)
+10. Таня Терешина - Этим Утром (02:41)(   Читать дальше...   )Жанр: PopПродолжительность: 20:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41709DEB5CDC73F2ADFC856403E1D77B82E774A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604143   (996742) от 16.01.2013
+
+VA-Cупер новая сотка хитов Dfm (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akon feat. Wiz Khalifa - Dirty Work
+02. Madeon - The City
+03. Lykke Li - I Follow Rivers
+04. Sara Oks - Dirty Girl
+05. Noelia - My Everything
+06. Loreen - Euphoria (Евровидение 2012 Швеция)
+07. Livin R & Pink Noisy feat. Marilena Animado - Secret Sin!
+08. Livelectric Feat. Leo Samuele - Wild Out (Radio Edit)
+09. Gromee Feat Tommy Gunn & Ali Tennant - You Make Me Say (De-Liver Remix Edit)
+10. Fidel Wicked - Rock The Disco (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BCB9F41C79B3CE34FEDDD21B87A870B766774A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603595   (996658) от 16.01.2013
+
+VA - Горячая 20 (22 Альбома) (1999-2012) [MP3|320 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иракли - Иракли - Осень (ремикс) (03:10)
+02. Анна Седюкова - Анна Седюкова - Что я наделала (03:21)
+03. Ёлка - Ёлка - Хочу (03:26)
+04. Леонид Агутин & Tomas N'evergreen - Леонид Агутин & Tomas N'evergreen - Ай яй яй (03:29)
+05. Новые Самоцветы - Новые Самоцветы - Помнишь Модерн Токинг (03:42)
+06. Анжелика Агурбаш - Анжелика Агурбаш - До звезды (03:05)
+07. USB & Сергей Жуков - USB & Сергей Жуков - Скажи, зачем (03:49)
+08. Юлия Савичева feat. DJ Feel - Юлия Савичева feat. DJ Feel - Я с тобой (03:39)
+09. Тимур Родригез - Тимур Родригез - Я верю в твою любовь (02:50)
+10. МакSим - МакSим - Это же я (03:03)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C288A75F564FD8A5447F4CB5A2018B54EE5618D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602753   (996624) от 16.01.2013
+
+VA-Golden Romance Collection (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996624.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 03:58:11
+1. Within Temptation (feat. Keith Caputo) - What Have You Done (5:13)
+2. Savage - Don't Cry Tonight (extended) (6:51)
+3. Timbaland (feat. Katy Perry) - If We Hever Meet Again (4:52)
+4. DJ BoBo - Secrets Of Love (3:18)
+5. Adele - Someone Like You (4:47)
+6. Schiller (feat. Heppner) - I Feel You
+7. Adele - Set Fire To The Rain
+8. Morandi - Colors(   Читать дальше...   )Жанр: PopПродолжительность: 06:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBF2B48AEC9A112CB1AD67FA8370C9C9AB30C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604023   (996493) от 17.01.2013
 
 VA-Убойный Русский Хит (2013) [MP3|256 кб/с]<Pop>
@@ -749,128 +889,6 @@ VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7930278525E9595B49EEBE9FAEC50D3634FC50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610333   (988292) от 31.01.2013
-
-VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard Hot 100.
-Существует и «братский» хит-парад альбомов — UK Albums Chart (найдете по ссылке в дополнительной информации).
-Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FAC037C3835666E3E6787F9B5D57D97A3EF071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970210   (987150) от 02.01.2016
-
-VA - Back in the U.S.S.R. (По волнам Советской эстрады) (2015) [MP3|320 кб/с] <Эстрада, Ретро>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Корнелюк — Город которого нет
-002. Михаил Боярский — Зеленоглазое такси
-003. Владимир Маркин — Колокола
-004. Маша Распутина — Кружит музыка(   Читать дальше...   )Жанр: Эстрада, РетроПродолжительность: 06:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81CB5F78E45759730688E8FADC9672492C82383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873020   (985231) от 03.01.2016
-
-VA - Pioneer Studio 33,5 (2015) 6 сборников [MP3|320 кб/с]<Dance, Disco, Italo Disco, Trance, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1. Pioneer Studio 33,5 - Music Infection (2015)
-2. Pioneer Studio 33,5 - Disco CCCP 2 (2015)
-3. Pioneer Studio 33,5 - Conveniently, Anywhere! (2015)(   Читать дальше...   )Жанр: Dance, Disco, Italo Disco, Trance, House & DanceПродолжительность: 10:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED4536C1441C8E776E4ACAC5EF5AD2E7ED86C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611231   (984191) от 03.02.2013
-
-VA - The All Time Greatest Movie Songs (4CD) (2010) [MP3|256 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984191.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD11.Savage Garden – The Animal Song (The Other Sister)
- 2.Boyzone – Picture Of You (Bean : The Movie)
- 3.Jim Carrey – Cuban Pete (The Mask)
- 4.Buena Vista Social Club – Candela (Buena Vista Social Club)
- 5.Hot Chocolate – You Sexy Thing (The Full Monty)
- 6.Bob Dylan – All Along The Watchtower (American Beauty)
- 7.Stealer's Wheel – Stuck In The Middle With You (Reservoir Dogs)
- 8.Presidents Of The USA – Video Killed The Radio Star (The Wedding Singer)
- 9.Isley Brothers – It's Your Thing (Out Of Sight)
- 10.Aretha Franklin – Think (The Blues Brothers)(   Читать дальше...   )Жанр: popПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC05324E8D1D84A0099DA169BAD03A1709DE2ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

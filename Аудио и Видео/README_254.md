@@ -1,3 +1,177 @@
+###  Публикация: 1428114   (180832) от 01.12.2020
+
+VA - Pop Vocal Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - A Tu Lado (Original Mix) (4:06)
+02. Florzinho, Ma'deevah - Take Me Higher (Original Mix) (3:32)
+03. Man In A Room, Sanura - Thief of Time (Original Mix) (4:36)
+04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5122005915D52B0DE0C30BF02346DB725A058D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428410   (180195) от 02.12.2020
+
+Mirko Hirsch - Missing Pieces: Return to Neon (Special Edition) (2020) [AAC|~347 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Neon (4:33)
+02. Pandora's Box (Remix) (5:02)
+03. Heart on Fire (4:34)
+04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD3F1E7A056E06B2E0AC8CFF63E6D2360A9A9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428518   (180123) от 02.12.2020
+
+VA - Cinderella, vol. 3 (50 Lovely Lounge Cookies) (2019) [AAC|~329 Kbps] <Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightgroovaz - Mesmerized (Original Mix) (4:29)
+02. Bossasonic - Better Never (Original Mix) (3:56)
+03. Jazzamor - Dreamer (Original Mix) (6:00)
+04. The K2 Project - Drinks at Sunset (Original Mix) (4:48)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC3E07C2AA4201391D1489F5807279F4B77DBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428497   (180114) от 02.12.2020
+
+VA - Cinderella, vol. 2 (50 Lovely Lounge Cookies) (2019) [AAC|~313 Kbps] <Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Café - Sundae Dream (Original Mix) (4:31)
+02. Yves St. Pierre - Only Presence (Original Mix) (2:53)
+03. Flashbaxx - So Close to Midnight (Original Mix) (5:23)
+04. James Butler - Montmartre Impressions (Original Mix) (2:04)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7DA9EB7FB95EF50DAD74E8F29D9839046B649B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428345   (180087) от 02.12.2020
+
+VA - Modern Blues (2020) [AAC|~313 Kbps] <Rock, Blues>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Keys - Lonely Boy (3:14)
+02. Juan Karlos - Jenny (5:29)
+03. VINTAGE TROUBLE - Run Like The River (3:40)
+04. Grace Potter And The Nocturnals - Paris (Ooh La La) (3:15)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9571C670ADF7D2F98B908D0327C173ED4A12ED33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428344   (180073) от 02.12.2020
+
+VA - Blues Masters (2020) [AAC|~310 Kbps] <Rock, Blues>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Fortunate Son (2:20)
+02. S.G. Goodman - The Way I Talk (3:38)
+03. Tom Petty - Runnin' Down A Dream (4:22)
+04. Nathaniel Rateliff & The Night Sweats - I Need Never Get Old (4:14)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB15BD81F6F81D560D86B7FB573B656F582429B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428530   (180062) от 02.12.2020
 
 VA - Cinderella, vol. 4 (50 Lovely Lounge Cookies) (2019) [AAC|~324 Kbps] <Lounge, Chillout>
@@ -571,177 +745,6 @@ Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2671CDFB6D6FE39CC28BC638C2368BA9704591F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429381   (176760) от 06.12.2020
-
-Ани Лорак - Неизданное (2020) [AAC|~254 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бегущая по волнам (2:08)
-02. Бывшая (1:28)
-03. Дождь для нас (3:18)
-04. Мышка (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1EE542C70A6ECAF62C4DF2E8095DCED6EFFEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429567   (176664) от 06.12.2020
-
-Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (3:05)
-02. Don't Start Now (3:03)
-03. Cool (3:30)
-04. Physical (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9115F8EA47DE9EBE55C017470BDF0978B6D56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429571   (176605) от 06.12.2020
-
-Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 Kbps] <Electro, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (Joe Goddard Remix)Жанр: Electro, PopПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1981D63829B85B67B26C17F5E2478A33F65167F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429623   (176052) от 07.12.2020
-
-Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delco (4:36)
-02. The Shadow of God's Hand (3:54)
-03. Life in Remission (4:26)
-04. Shame (4:02)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D5EC5FFAF7DA96C4D6582EF6087B84DF2B6234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429619   (176046) от 07.12.2020
-
-Stvore - One (2020) [AAC|~344 Kbps] <Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zamri (3:36)
-02. Znak (4:39)
-03. Podnimaysya (3:52)
-04. Zatmeniye (4:39)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D71379A135753FFE87CD0D680C4567F23B41BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429824   (176009) от 07.12.2020
-
-Leæther Strip - Æppreciation II (2018) [AAC|~351 Kbps] <ebm, industrial, dark electro>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Shave (4:18)
-02. Beat My Guest (2:29)
-03. Tainted Love (3:26)
-04. Man in the Man (3:49)(   Читать дальше...   )Жанр: ebm, industrial, dark electroПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78A270AA371B6A083178C5E7A4CFD84748B4618
 ```
 
 https://mybot314.ru/tekegram_catalog/

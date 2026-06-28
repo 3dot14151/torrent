@@ -1,3 +1,119 @@
+###  Публикация: 961110   (303364) от 30.11.2015
+
+Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Age,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's First Smile (6:11)
+ 02. A Time Remembered (4:18)
+ 03. Sundial Dreams (4:48)
+ 04. Le Jardin (4:54)(   Читать дальше...   )Жанр: New Age,PianoПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF0C2682D439E2CEB9121B384367A71C035614B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333407   (303280) от 25.10.2019
+
+Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Electronic, New Wave>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Was Our House (From "Breathing") (02:01)
+02. Where Did You Go (04:05)
+03. Breathing (02:50)
+04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE3A68A9B8DB1D88ACD8892FBF5965A90F3BD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961021   (303247) от 30.11.2015
+
+VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Di Sarl - El Pollito
+02. Tania Con Orquesta - Yuyo Verde
+03. Rosita Quiroga - Apologia Tanguera
+04. Alfredo Di Angelis - El Choclo(   Читать дальше...   )Жанр: TangoПродолжительность: 02:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF296D69DEB2D27BF92E468FFC17A0FAEE33941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960352   (303228) от 30.11.2015
+
+VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jeff Healey Band/Roadhouse Blues
+02. Bob Seger/Blue Monday
+03. The Jeff Healey Band/I'm Tore Down
+04. Otis Redding/These Arms of Mine(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4998A896658F6519A8E85F2AD2CCD946B88EAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261583   (303128) от 11.11.2018
 
 VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -627,122 +743,6 @@ Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:823980506B846EA0982F31A5C9E0FCB8A7ADBD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423560   (299056) от 13.11.2020
-
-Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hugo (2001) Italian Version [FLAC|Lossless|image + .cue] <Musical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il tempo delle cattedrali (3:20)
-02. I clandestini (3:32)
-03. Zingara (5:22)
-04. Bella (4:36)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333646   (298941) от 27.10.2019
-
-Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby for You (6:04)
-02. Dreamland (6:03)
-03. Cradle Song (4:28)
-04. In a Silent Place (5:55)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6073EF9C6422A229E5416AC40CF62FDFC2061C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961636   (298919) от 02.12.2015
-
-Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Lands (feat. Juliana & Chris Conway)
-02. Return of the King (feat. Juliana)
-03. Merlyn and the Dragons
-04. The Quest Begins(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0358E3FB3A9DF7EF06D001CD0E2133D5FD3A5AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333631   (298743) от 27.10.2019
-
-VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Spa Music - Sleeping Waves (5:51)
-2.Karushanti, Deep Sleep - Tao of Sleep (6:04)
-3.Musica Relajante - Two Flames (6:00)
-4.Vi-Starrs, Namaste - Echoes from the Wreck (8:27)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

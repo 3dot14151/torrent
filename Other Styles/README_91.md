@@ -1,3 +1,116 @@
+###  Публикация: 357764   (582664) от 05.07.2011
+
+Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 05:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041510   (582423) от 09.08.2016
+
+Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally, Sun - 4:04
+02. Let The Children Frolic - 2:04
+03. Acoustic Painting - 4:02
+04. Young King David - 3:32(   Читать дальше...   )Жанр: Contemporary Jazz, Instrumental GuitarПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8BD8F26E77C8E03BF52637F40D951F3A6D6175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041521   (582244) от 09.08.2016
+
+Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Task Force X (04:53)
+02. Arkham Asylum (03:24)
+03. I'm Going To Figure This Out (01:42)
+04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041523   (582178) от 09.08.2016
+
+Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Task Force X (04:53)
+02. Arkham Asylum (03:24)
+03. I'm Going To Figure This Out (01:42)
+04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919904   (581847) от 20.07.2015
 
 Yiruma & Friends - Atmosfera (2015) [FLAC|Lossless|WEB-DL]<New-Age, Instrumental>
@@ -626,127 +739,6 @@ Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921611   (573592) от 26.07.2015
-
-Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Parameshwara Mantra (Deep in Love) - 14:03
-2. Sarveshaam Mantra - 6:37
-3. Ganapati Mantra (Strong My Roots) - 7:20
-4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920759   (573573) от 26.07.2015
-
-Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Andreas Main Theme (1:42)
-02. Natalie's Rescue (5:17)
-03. Caltech (2:06)
-04. Divorce Papers (3:28)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527922   (573300) от 28.07.2012
-
-X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Folk, Trans-Global Mix>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome To Crossing Cultures
-2. Dreams of Happiness
-3. Sufi Mali
-4. Baganda / Dance Of Life
-5. Temptations
-6. Sudanese Dance
-7. Waterfalls
-8. One World One People
-9. Larissa
-10. Free Your Mind(   Читать дальше...   )Жанр: New Age, Ethnic, Folk, Trans-Global MixПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171A0C7A8B4E93EE8A94CAA344ECFA7210C3078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303446   (572750) от 21.05.2019
-
-Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Faith
-2. Conscience
-3. WordЖанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE38AEB34C5FB197F2665D5E2B402EACC2097AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

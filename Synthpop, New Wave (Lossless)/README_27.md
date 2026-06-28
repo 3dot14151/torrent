@@ -1,3 +1,119 @@
+###  Публикация: 1700587   (117029) от 17.02.2024
+
+Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memorabilia (Single Version / Remastered 2023) [00:04:49]
+02. A Man Could Get Lost (7" Single Version / Remastered 2023) [00:03:17]
+03. Persuasion (2023 Edit / Remastered 2023) [00:03:35]
+04. Memorabilia (Extended Version) [00:07:46](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E0DAE620079A2DB3151E3562E54223612DAACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700650   (116997) от 17.02.2024
+
+Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Us Die (04:03)
+02. Suck Your Love (04:20)
+03. Follow Me (03:57)
+04. Break Me Down (04:10)(   Читать дальше...   )Жанр: Electronic, Synth-pop, RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A44D8248C7AFE8D899A60E726B11312FBF1B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700623   (116889) от 18.02.2024
+
+Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Krautrock, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologue (00:01:32)
+02 - Scary Memories (00:02:21)
+03 - Atonal Floating (00:01:02)
+04 - Full Of Life (00:01:57)(   Читать дальше...   )Жанр: Krautrock, SynthpopПродолжительность: 01:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915C4351E49614E3CDF9FD0BBE50738C0EEC0835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700888   (116491) от 20.02.2024
+
+Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Power Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living on the Borderline (04:33)
+02. Count the Days (04:08)
+03. Love Will Find a Way (03:21)
+04. Never Say No Again (04:16)(   Читать дальше...   )Жанр: New Wave, Power PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701628   (116352) от 21.02.2024
 
 Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progressive Pop>
@@ -629,122 +745,6 @@ Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711692   (112428) от 31.03.2024
-
-Laserdance - Mission Hyperdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kozmoz Intro
-02. Refit Your Mind
-03. Predators From Space
-04. Mission Hyperdrive(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0297309D47EBB9CFCED167C0F495F2A97FF9D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711995   (112266) от 01.04.2024
-
-Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Retrowave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nights at Sunset Beach (00:04:55)
-02 - Risky Business (00:04:44)
-03 - Midnight Glow (00:04:35)
-04 - La Contessa (00:02:35)(   Читать дальше...   )Жанр: Jazz, Retrowave, SynthpopПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA990D0466B7345BF86A390020B8F771905376ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713388   (111903) от 06.04.2024
-
-VA - Pure Synthwave, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ends 84 & Power Rob - Thunder (3:39)
-02. LAU - Stunning (Droid Bishop Remix) (3:31)
-03. Zenith Volt - Supercomputer (4:58)
-04. Midnight Fighters & Maru Pardo Saguier - Running Up That Hill (4:17)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CA1EC940F6D59CA8CCAE8E076F6028A05117E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713395   (111899) от 06.04.2024
-
-VA - Pure Synthwave, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massive Z & Rogue VHS - Floating Point (4:29)
-02. Kidburn - Insomnia (4:32)
-03. Tenebran - Synthetic Lovers (3:18)
-04. SelloRekt / LA Dreams - Automation (2:36)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC2B5E1D4C834E7583CE7467D7273602F467B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

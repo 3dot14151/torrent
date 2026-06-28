@@ -1,3 +1,32 @@
+###  Публикация: 739745   (143847) от 29.12.2013
+
+Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergolese (2013) [FLAC 2.0|24/88.2|WEB-DL]<Avant-Garde Jazz, Classical Crossover>
+
+>>Классика
+>>Классика (HD Audio)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ogne pena cchiù spietata (5:58)
+02. Amen / Fac Ut Portem (11:20)
+03. Sinfonia for violoncello (10:03)
+04. Chi disse ca la femmena (4:43)(   Читать дальше...   )Жанр: Avant-Garde Jazz, Classical CrossoverПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435521   (143787) от 28.12.2020
 
 Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Contemporary Classical>
@@ -764,32 +793,6 @@ Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C42F9C948D5B70B50778E99AFAF48D29C4F85E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596594   (131408) от 30.12.2012
-
-Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Romantic Period, Recital>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, RecitalПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D913DAAA53CCD2E5A79F4750266D8AB96B5F2B36
 ```
 
 https://mybot314.ru/tekegram_catalog/

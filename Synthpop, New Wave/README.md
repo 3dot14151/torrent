@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1877919   (1074230) от 23.06.2026
+
+VA - Summer In Space Vol. 9 (2026) 3CD [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synthesis - Distant Memories (7:33)
+02. RawBotic - Galaxy Escape (5:11)
+03. Moondance - Visions (5:52)
+04. Spacehawk - Return To Crystal Planet (5:07)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB4219E5137E4564AD145D1D890B068AE60FBEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874772   (1072128) от 
 
 Hubert Kah - Tensongs (1986) 40th Anniversary, 2026, Soundcolours [MP3|320 Kbps] <Synthpop, New Wave>
@@ -715,35 +744,6 @@ VA - Space Odyssey - Trip Four: Journey To The Sun (2018) [OGG Vorbis|480 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E74172415EBC8C7DD20CAC85B584531CAEF55690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457303   (1024626) от 25.03.2021
-
-Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Telemark [00:05:56]
-02 - Chevrolée [00:05:50]
-03 - Orbit Anthem [00:05:32]
-04 - Europa Supersaw [00:05:57](   Читать дальше...   )Жанр: Nu Disco, SynthpopПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B481CE72AB9DC951E2F0D7B5598B7989A0A78E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 925946   (533415) от 10.08.2015
+
+Vicki Sue Robinson - Half And Half (1978) Remastered /2011, Sony/ [FLAC|tracks +.cue]<Disco, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская актриса театра и кино (род.31.05.1954 в Нью-Йорке - ум.27.04.2000), а в период диско-эры - талантливая певица. Она дочь театрального актёра Bill Robinson и фолковой певицы Jolly Robinson. Её наивысший успех - песня "Turn The Beat Around" (1976). До конца 70-х выпустила 4 альбома (потом выходили только синглы и переиздания). Понравится любителям (   Читать дальше...   )01. Feels So Good It Must Be Wrong (5:32)
+02. Jealousy (5:19)
+03. Freeway Song (5:08)
+04. Don't Try To Win Me Back Again (4:25)(   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7EC2D378E8038650B6F389FE262B5A6819CE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239932   (533077) от 08.08.2018
+
+Cerrone - Cerrone by Bob Sinclar (2001) Partially Mixed [FLAC|Lossless|tracks + .cue] <70s, Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/21. Love in C Minor (4:25)
+ 02/21. Major Sea (1:14)
+ 03/21. Love in C Minor (outro) (3:06)
+ 04/21. Revelacion (2:59)(   Читать дальше...   )Жанр: 70s, Disco, HouseПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C578870FA80C1DE227A3068A29C8811EC63A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558736   (528600) от 22.06.2022
+
+VA - Disco Top 50 (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop, Club>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Cheatham - Get Down Saturday Night (4:02)
+02. Lipps Inc. - Funkytown (Single Version) (3:55)
+03. Gloria Gaynor - I Will Survive (Original 7'' Version) (3:19)
+04. Bee Gees - Stayin Alive (4:46)(   Читать дальше...   )Жанр: Disco, Pop, ClubПродолжительность: 03:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92B98EB373401D3177CA47016726FB51671C819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156100   (527604) от 07.08.2017
+
+D. White - One Wish (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fоllоw Mе
+02. Оnе Wіsh
+03. Wаlkіng
+04. Оnе Dау(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4848C5DC41A767A6D729DB28BD558491ECE6BEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156060   (527599) от 07.08.2017
 
 Ken Laszlo - Disco collection (2002) [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -679,140 +795,6 @@ VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542075   (499053) от 02.09.2012
-
-VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Status Quo - In The Army Now [06:17]
-02. Fine Young Cannibals - She Drives Me Crazy [07:06]
-03. Nik Kershaw - The Riddle [05:11]
-04. Sandra - Little Girl [05:11]
-05. Maxi Priest - Wild World [06:10]
-06. Roxette - Dangerous [06:26]
-07. Cock Robin - The Promise You Made [06:39]
-08. The Stranglers - Midnight Summer Dream [10:37]
-09. Duran Duran - Rio [06:42]
-10. Tears For Fears - Shout [08:02](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381505   (498069) от 29.08.2011
-
-Joy - Enjoy (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch
-02. Love Is All Around
-03. Valerie
-04. Far Away
-05. Sunshine Boogie
-06. 10.000 Angels
-07. Obsession
-08. Shine
-09. Back To The 80's
-10. Heaven Must Be Missing An Angel Tonight(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381565   (498065) от 29.08.2011
-
-F.R. David - Reference 80 (2011) [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words (Original Unreleased Full Mix)
-02. Sahara Night
-03. Pick Up The Phone (Original)
-04. Don't Go
-05. I Need You (Original 7")
-06. Music
-07. Dream Away
-08. This Time I Have To Win
-09. Take Me Back
-10. Sahara Night (Club)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318065   (496588) от 05.08.2019
-
-Eddy Huntington - Greatest Hits & Remixes (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U.S.S.R. (7' Version) [3:26]
- 02. Up & Down (7' Version) [3:31]
- 03. Meet My Friend (7' Version) [3:33]
- 04. May Day (7' Version) [3:31](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BE05FB0F3AF8F0F49C07AA26107868D877E217
 ```
 
 https://mybot314.ru/tekegram_catalog/

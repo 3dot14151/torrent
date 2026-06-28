@@ -1,3 +1,119 @@
+###  Публикация: 1065426   (418584) от 23.10.2016
+
+Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motion Picture Soundtrack) 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Sorcerer's Secret (02:38)
+02. The Hands Dealt (02:57)
+03. A Long Strange Trip (02:29)
+04. The Eyes Have It (00:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA85F395227F64A1CE16591D078F66F0171343BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947670   (417967) от 17.10.2015
+
+Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering
+02. New Morning
+03. My Secret
+04. Over the Fields(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C508E49CF2331B7668B3D9382775A7132EAE785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947456   (417867) от 17.10.2015
+
+Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+.cue]<Rock, Blues Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Recruit [01:32]
+02. Tracks And Lines [03:01]
+03. Realization [02:41]
+04. Kristen And Jim [03:40](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A847B5198B971615E705045411051B472D50F3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947575   (417815) от 17.10.2015
+
+VA - Autumn Piano Bar Music Emotional Piano Bar Music Collection Liquid and Sensual Music Relaxing Piano Songs for Dinner Party (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Piano Music Oasis - Autumn Piano Bar
+02. Piano Lounge Festival - Piano Lounge Ambient
+03. Piano Bar Music Oasis - Sentimental Journey
+04. Brunch Piano Music Zone - Restaurant Music(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A938A342182109ECB7FD900D687EC679155BA445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250970   (417766) от 01.10.2018
 
 Buddha Lounge Ensemble - Renditions Of Led Zeppelin (2008) [MP3|320 Kbps] <Electronic, Chillout, Lounge>
@@ -634,122 +750,6 @@ Johan Onvlee - Relaxation With Guitar (1998) [FLAC|Lossless|tracks + .cue] <Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F1BD0CC548E8C055A90AF37A168989125B665B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251921   (410963) от 04.10.2018
-
-VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willie Nelson - A Song for You
-02. Angela Hacker - I Can't Make You Love Me
-03. Buck Owens - When I Need You
-04. Tamra Rosanes - Always On My Mind(   Читать дальше...   )Жанр: Country, Pop, FolkПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E5E5ADFF64474DED1CF10156E6BEE3AD373E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252310   (410835) от 04.10.2018
-
-Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditation (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Brahma Journey (Loopable) (Original Mix)	20:00
-02.	Open Chakra (Original Mix)	7:20
-03.	Om Sleep (Original Mix)	7:00
-04.	Natural Vibrations (Original Mix)	8:20(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F28B4AE6F29210E2B148B448C19A38729B72BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168308   (410611) от 23.09.2017
-
-Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - True Love's Kiss (Performed by Amy Adams and James Marsden)
-02 - Happy Working Song (Performed by Amy Adams)
-03 - That's How You Know (Performed by Amy Adams)
-04 - So Close (Performed by Jon McLaughlin)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BB59D4F3AF89E9D565EA2A59C88D022716683F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168045   (410610) от 23.09.2017
-
-Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opening
-02 - Change
-03 - Permission to Go to Paris
-04 - To the Airport(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDCE0A65650204C8EBF39329F19C5A98170A80B
 ```
 
 https://mybot314.ru/tekegram_catalog/

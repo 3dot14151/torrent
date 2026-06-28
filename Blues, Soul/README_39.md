@@ -1,3 +1,32 @@
+###  Публикация: 1698689   (118263) от 10.02.2024
+
+The Mighty Howlers - Back On Track (2024) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Or Love (04:31)
+ 02. Love Me Babe (04:22)
+ 03. Gotta Keep Running (04:54)
+ 04. Can't Do No More (04:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A459E3F859811E05E7CA2C4D7DE6811BAECAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721378   (110134) от 06.05.2024
 
 Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
@@ -755,35 +784,6 @@ Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76821348E50281B41765096F505BD89D4A66C494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723730   (56347) от 16.05.2024
-
-Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pusher (7:08)
-02. Crossroads (5:35)
-03. Hoochie Coochie Man (6:43)
-04. Oh Well (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1C9986E7CCFAE6042EA1E3FBB20D6E1B7A2DF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

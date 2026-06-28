@@ -1,3 +1,148 @@
+###  Публикация: 1671173   (171362) от 24.10.2023
+
+MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help
+02. Anxiety
+03. Midnight Dance
+04. Miracle(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E043F7A3966505D2E6B5B189900B39E03091E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671518   (171173) от 25.10.2023
+
+VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171173.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aoiii & Afrikasia - W Love, Afrika [04:12]
+002. Relaxing Lo Fi - Mood For Study Sessions [02:13]
+003. Cloudchord & Big Gigantic - Keep On Movin' [03:07]
+004. Alecs Delarge - Jazz Biscuits [02:51](   Читать дальше...   )Жанр: Lounge, Downtempo, Lo FiПродолжительность: 05:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A59FF72D3A6D357EAC9F91E08E918FACC8B0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826522   (170952) от 19.10.2025
+
+Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gone
+ 02 - Inside
+ 03 - Again
+ 04 - Siempre Contigo(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C1882BE7AE98FBAA80779188AFAB2BF9A65609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344311   (170545) от 10.12.2019
+
+VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yinon Yahel - Not Good For Me
+002. Giben Gless - Random (Original Mix)
+003. Mike Candys - Brand New Day
+004. Bassienda - All I Want (Original Mix)(   Читать дальше...   )Жанр: Dance HouseПродолжительность: 13:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344315   (170428) от 10.12.2019
+
+VA - Disco House Party (2019) [MP3|320 Kbps] <Disco House, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scotch - Penguin Invasion
+002. Modern Boots - You're My Night, You're My Day
+003. Michael Gray - 24 7 People
+004. Shay Jones - When Love Calls(   Читать дальше...   )Жанр: Disco House, Funky HouseПродолжительность: 12:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD81EED97BFAE3E8718DB07BB3F7A15644340E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344314   (170328) от 10.12.2019
 
 VA - Reverse Echoes: Ambient Music (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -600,151 +745,6 @@ VA - Digital Madness: Retrowave Music (2019) [MP3|320 Kbps] <Synthwave, Retrowav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7A3F5F6BE74D8135B7ACF35075C206716ABCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826495   (167359) от 19.10.2025
-
-VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanco & AYA - Ma Tnsani (Yalla Habibi) (Samuel Prince Remix) (4:25)
-02. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)
-03. Inna, R3HAB - I'll Be Waiting (2:03)
-04. Hurts, Purple Disco Machine - Wonderful Life 25 (Original Mix) (2:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C9FA4C41993327F6E8E2303CDDDBB96C2CF210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345222   (167350) от 14.12.2019
-
-VA - Sweet Green Dreams: Natural Relaxed Mix (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167350.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afterlife Feat. Cathy Battistessa - Speck Of Gold
-002. For The First Time - Jules Calmer
-003. Madhukar - When Love Rules
-004. Cream Lounge - Balearica Del Mar(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA003FC77448C120292047AA2313D5FAC6F2ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345224   (167249) от 14.12.2019
-
-VA - House Garden Music: Edm Extended Mix (2019) [MP3|320 Kbps] <House, Electro, Edm>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167249.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nevermore - Sleep (Original Mix)
-002. Silkwolf - Mothertown
-003. Moshic - Cabalana
-004. Funk Manifesto - Light Of Day(   Читать дальше...   )Жанр: House, Electro, EdmПродолжительность: 10:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3621286C1BF5E1C314DCA41F064BB953D9D45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345452   (166586) от 15.12.2019
-
-VA - Record Super Chart 617 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tones and I - Dance Monkey (DJ Noiz Remix) (4:00)
-2.SAINt JHN - Roses (Imanbek Remix) (3:58)
-3.Meduza feat. Becky Hill & GOODBOYS - Lose Control (2:48)
-4.Carla Morrison - Disfruto (3:57)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708F4F57FB3916E4365857D53C3E99BD66E9965C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431913   (166275) от 15.12.2020
-
-VA - EDC Fundamental Wave (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эклектичный альбом «EDC Fundamental Wave» -это настоящая смесь акустической синтетики, охватывающая широкий спектр разнообразных звуков, затрагивающая всю палитру оттенков между техно и синт прогрессивом, не переходя явно в эти жанры. Звучит очень свежо и экспериментально.001. Monk & Keys - Ritual
-002. Jaden Raxel - Words Of Zeus
-003. Dj D Redd - Fly Head
-004. Adronity - Burnin' Inside(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 11:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3B69F304ED416926DDF0F737DB0F3BD0D108D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

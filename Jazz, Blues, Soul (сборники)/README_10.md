@@ -1,3 +1,32 @@
+###  Публикация: 1021861   (730941) от 31.05.2016
+
+VA - Total Eclipce: Sweet Sound Jazz (2016) [MP3|320 кб/с] <Swng, Smoth Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Peterson - Tea For Two
+02. Sister Paris - Dream Chaser - Ambient Passion Mix
+03. CoolCut - Please Come Home - Snip & Slap Mix
+04. Lester Young - A Foggy Day(   Читать дальше...   )Жанр: Swng, Smoth Jazz, BluesПродолжительность: 04:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A38B36EE4C70F0C1C36FDF3DABB4D8C0C41D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127679   (730701) от 22.04.2017
 
 VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -713,35 +742,6 @@ VA - Fleeting Moment: Dream Blues Compilation (2017) [MP3|320 Kbps] <Rock Blues,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A285FBBBCAA9E6F22E8D39D5241C107102D6BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133150   (696783) от 11.05.2017
-
-Roy Buchanan - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Evil (live)
-02. Too Many Drivers
-03. Black Autumn
-04. That Did It(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153AEA7DC18F3F4A434E1AA4297B702A6B7B0285
 ```
 
 https://mybot314.ru/tekegram_catalog/

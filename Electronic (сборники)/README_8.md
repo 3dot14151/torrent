@@ -1,3 +1,61 @@
+###  Публикация: 1460156   (1022795) от 04.04.2021
+
+VA - Record Super Chart 03.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+02. Tiesto - The Business (2:44)
+03. Eneli, Monoir - 3 to 1 (3:39)
+04. Slava Marlow - ТЫ ГОРИШЬ КАК ОГОНЬ (2:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E96E397893173C89CDB1B37383B2C3F061E312C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460133   (1022771) от 04.04.2021
+
+VA - Top 100 DJs (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Derulo, Adam Levine - Lifestyle (David Guetta Slap House Mix)
+002. Dimitri Vegas & Like Mike, DVBBS, Roy Woods - Too Much
+003. Martin Garrix, Tove Lo - Pressure (feat. Tove Lo)
+004. Armin van Buuren - Turn The World Into A Dancefloor (ASOT 1000 Anthem)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 05:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA6D05EEA7894DE8596AABA44F6B858721522B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460570   (1022617) от 05.04.2021
 
 VA - Gravity Grave: Psy Trance Set (2021) [MP3|320 Kbps] <Psychedelic Trance>
@@ -687,64 +745,6 @@ VA - Night Rider 4 (2021) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76354828AB89AC5183169D0AC9C3FDAD9DFACB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462525   (1021041) от 15.04.2021
-
-VA - Immersion: Psy Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник психоделического транса "Immersion" порадует наличием в нём действительно актуальных и коммерчески «раскрученных» работ – именно такое звучание привлекает слушателей, интересной компиляцией, небанальными и продуманными поворотами сюжета, общим интригующим настроением, поддерживаемым на протяжении всего лонгплея и не позволяющим отвлекаться на что-то (   Читать дальше...   )001. Doctor Spook - Spiral Trax Psychedelic Trance
-002. Life Extension - The Invaders Pt.2
-003. The Concept Nemesis - Survival
-004. Champa - Mozamboogy(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 13:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A69CA31EBDF7A9EA4175E8060AB3DC7F9A43134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462636   (1020978) от 15.04.2021
-
-VA - Deep House Relax 1 (2021) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020978.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ZOYA, Anagramma - In My Mind (Anagramma Remix) (5:22)
-002. Andain, Dapa Deep - Beautiful Things (Dapa Deep Remix) (5:26)
-003. Imany, Filatov, Karas - Don’t Be So Shy (Filatov & Karas Remix) (3:10)
-004. LVD, Martin Stark - In the Air Tonight (Far out Mix) (4:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F44ABB8BE5187254B416F12D52090D4B604F274
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 977568   (965486) от 21.01.2016
+
+Glenn Gould - Bach - The Goldberg Variations (1955) 2015, Sony [FLAC 2.0|44/24|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goldberg Variations, BWV 988: Aria (1:52)
+02. Goldberg Variations, BWV 988: Variation 1 a 1 Clav. (0:45)
+03. Goldberg Variations, BWV 988: Variation 2 a 1 Clav. (0:38)
+04. Goldberg Variations, BWV 988: Variation 3 a 1 Clav. Canone all' Unisuono (0:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E05249F9E17BF005CEE9B8CC9F3F7C31769E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 169700   (965439) от 25.01.2010
 
 Вильгельм Рихард Вагнер - (1813-1883) [MP3|256 kbps]<Classic>
@@ -724,35 +753,6 @@ Mozart - Julia Fischer, Gordan Nikolić, Netherlands Chamber Orchestra, Yakov Kr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA41E9FA530200E58D15B601536D02659238909A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362230   (948117) от 24.02.2020
-
-Craig Armstrong - Sun On You (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun On You (1:34)
-02. If You Should Fall (3:34)
-03. Restart (3:16)
-04. Marelle (3:20)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8B27EB17C740C54604133438DB96B7E50008F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

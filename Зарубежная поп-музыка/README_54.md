@@ -1,3 +1,32 @@
+###  Публикация: 1169899   (401430) от 29.09.2017
+
+Shania Twain - Now (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' With My Eyes Closed
+02. Home Now
+03. Light Of My Life
+04. Poor Me(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CCB96982A7D1E19B76CC4F50C007C9901B1D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169903   (401227) от 29.09.2017
 
 Michael Jackson - Scream (2017) Compilation [MP3|320 Kbps] <Pop>
@@ -746,35 +775,6 @@ Chips - Chips (1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E14F84B5A9616C084152AC5B64447226FB9ADE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326765   (383492) от 21.09.2019
-
-Струни серця - Найбільше в світі диво (2019) [MP3|320 kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тобі, Україно (03:32)
-02. Студентська молодь (03:10)
-03. Донька України (03:28)
-04. Над землею тумани (03:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EAADCDB76014985754358E9838ACD27BD362444
 ```
 
 https://mybot314.ru/tekegram_catalog/

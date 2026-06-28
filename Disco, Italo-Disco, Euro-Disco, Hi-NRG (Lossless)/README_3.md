@@ -1,3 +1,117 @@
+###  Публикация: 1472719   (1014144) от 26.05.2021
+
+Lian Ross & Fancy - Summer Wine (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Wine
+02. Summer Wine (Short Mix)
+03. Summer Wine (Extended Mix)Жанр: Euro-DiscoПродолжительность: 00:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0A522CDCB269257E07CC4F73D4A1219B681413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473502   (1013681) от 29.05.2021
+
+Fancy - I'm Still A Fool (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Still A Fool
+02. I’m Still A Fool (Extended)
+03. Lovers (Split Mirrors Remix)Жанр: Euro-DiscoПродолжительность: 00:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122D1245142113F51A8CA35F589749456CA66DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481563   (1008075) от 04.07.2021
+
+Modern Talking - Collection (1985-2011) 109 CD [FLAC|Lossless|image + .cue] <EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Talking - немецкий англоязычный музыкальный дуэт, исполнявший танцевальную музыку в стиле диско и состоявший из Томаса Андерса и Дитера Болена. В конце своего существования дуэт развился в до сих пор коммерчески самую успешную немецкую поп-формацию. Образован в 1984 г.Список альбомов:
+1985.The First Album
+1985.Let's Talk About Love (The 2nd Album)
+1986.Ready For Romance (The 3rd Album)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 03:12:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D6ACCD42235592DC8174DB7E337305117915E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482267   (1007768) от 07.07.2021
+
+Brass Construction - Attitudes (1982) Remaster, 2010,  Think! Records [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Can You See The Light 5:18
+2 Funtimes 4:51
+3 Attitude 6:43
+4 Do That Thang 5:31(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5DB8C25A14088BA5EE0CBA440CC6B34FF84127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350056   (1003689) от 04.01.2020
 
 Modern Talking - Back For Gold: The New Versions (2017) [FLAC|Lossless|image + .cue] <Eurodance, Euro-Disco>
@@ -640,119 +754,6 @@ Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357487   (973078) от 04.02.2020
-
-London Boys - Playlist: The Best of London Boys (2016) Compilation [FLAC|Lossless|WEB-DL|tracks] <EuroDisco, EuroPop, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem (4:18)
- 02. London Nights (4:02)
- 03. Harlem Desire (3:46)
- 04. My Love (3:05)(   Читать дальше...   )Жанр: EuroDisco, EuroPop, 80sПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2298AEC7F5D5BADC4C1DBEA288F06F5AF0EEBC5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975605   (971932) от 15.01.2016
-
-Dimitri From Paris - Night Dubbin' (2009) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Winans - Let My People Go (dub version) (6:38)
-02. Third World - One More Time (dub) (6:24)
-03. Wuf Ticket - The Key (dub) (8:34)
-04. Lenny White - My Turn to Love You (dub) (6:38)(   Читать дальше...   )Жанр: Dub, DiscoПродолжительность: 03:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617710   (971737) от 12.02.2013
-
-C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975992   (970760) от 16.01.2016
-
-VA - Disco Fever (2001) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC & The Sunshine Band - That's The Way I Like It (3:05)
-02. Donna Summer - I Feel Love (Full Length Version) (5:52)
-03. Fatback Band, The - (Are You Ready) Do The Bus Stop (3:16)
-04. Detroit Emeralds - Feel The Need In Me (3:41)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D5BE0C29198F391EE54D2C1007019BE863E55C
 ```
 
 https://mybot314.ru/tekegram_catalog/

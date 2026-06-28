@@ -1,3 +1,32 @@
+###  Публикация: 1602952   (1045855) от 08.01.2023
+
+Foreigner - 4 (1981) Reissue, 2011, Atlantic [OGG Vorbis|480 Kbps] <Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Life 03:51
+02. Juke Box Hero 04:21
+03. Break It Up 04:13
+04. Waiting For A Girl Like You 04:52(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29440213B071B153392DC8B6A4FF9C08268811C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603191   (1045830) от 08.01.2023
 
 Nightwish - From Wishes To Eternity - Live (2001) [OGG Vorbis|550 Kbps] <Rock, Symphonic Metal>
@@ -716,35 +745,6 @@ Green Day - Nimrod (1997) 25th Anniversary Edition, 2023, Reprise Records [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ABA435A2B3A7AE10B6326A38F43BE4DBFDFAF19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608252   (1043737) от 29.01.2023
-
-Deep Purple - Live On The BBC (2004) [OGG Vorbis|500 Kbps] <Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Highway Star
-03. Strange Kind Of Woman
-04. Maybe I'm A Leo(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E338960D9A54B41CD598E3DB8616934B6408E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

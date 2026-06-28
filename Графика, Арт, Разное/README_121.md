@@ -1,3 +1,55 @@
+###  Публикация: 1261868   (301164) от 12.11.2018
+
+Обои - Desktop Wallpapers Full HD. Part (318) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3160277822779BE8DCCCE6627563D4BABF5DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261869   (301095) от 12.11.2018
+
+Обои - Desktop Wallpapers Full HD. Part (320) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557EAD4CB418E14E995BB70C5CA639DE73D5D80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261885   (301093) от 12.11.2018
 
 Обои - Desktop Wallpapers Full HD. Part (332) [JPG]
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B6BEAA3266840456BE498014875329A9F6F01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961625   (298718) от 02.12.2015
-
-Обои - Creative Art HD Wallpapers Mix 10 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативные обои. Выпуск 10Формат: JPGРазрешение файлов: 1920x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A0EC34FE869F31617C1CBF74B664BE15E53155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961657   (298711) от 02.12.2015
-
-Обои - Best Wallpapers Mixed 185 2560x1600 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на разные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F298B455B030E177B1675FB1EEA52DDD3807564
 ```
 
 https://mybot314.ru/tekegram_catalog/

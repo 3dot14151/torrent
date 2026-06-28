@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1878331   (1074515) от 
+
+Die Antwoord - Zama Zama (2026) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stiek Uit
+02.What Do They Know?
+03.Tigers Don’t Cry
+04.Brutal(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3202378479406097117DDB2736A14E02F300784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865961   (1065910) от 
 
 Conway The Machine - G.O.A.T. (2026) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -717,35 +746,6 @@ P Money - Money Over Everyone 3 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Grime>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:846ABED00A317388379A3E14617991FAC45D83E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367586   (913891) от 17.03.2020
-
-Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (feat. Panther Modern)
-02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
-03. Da Godz Mus B Krazy
-04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

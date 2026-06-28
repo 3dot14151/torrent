@@ -1,3 +1,29 @@
+###  Публикация: 1304424   (565124) от 25.05.2019
+
+Звуковые библиотеки - Epic Stock Media - Modulated Movement [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modulated Movement - эта коллекция включает в себя динамичные, уникальные звуки движения и переходов от Tradecraft, включая морфы, свист,  переходы, броски снарядов, звуки механических движений. Моделируйте движение в вашем следующем звуковом пейзаже с помощью этой коллекции.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EAA1AB9555D1BB814CF57B21FF4CDF0DFE4E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304427   (563277) от 26.05.2019
 
 Boom Library - TRANSPORTATION [WAV]
@@ -649,36 +675,6 @@ Berlin Orchestra Inspire базируется на серии Berlin Series, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040396A26E4830B1E3417BB10BA757852ACA04F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532818   (533877) от 09.08.2012
-
-Groove Monkee - MIDI Drum Loops[MIDI|EXE][ISO][английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Groove Monkee - MIDI Drum Loops - обширная коллекция профессиональных барабанных и перкуссионных петель в формате MIDI.
-
-- Производитель: Groove Monkee
-- Год выпуска: 26.07.2012
-- Формат: MIDI, EXEНазвание программы: Groove Monkee - MIDI Drum LoopsЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

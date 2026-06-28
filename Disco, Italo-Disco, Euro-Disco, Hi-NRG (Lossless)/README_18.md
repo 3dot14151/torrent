@@ -1,3 +1,119 @@
+###  Публикация: 1171616   (393947) от 07.10.2017
+
+Lili & Susie - The Sisters (1990) [FLAC|Lossless|image + .cue] <Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyfriend
+02. Can't Let You Go
+03. Can You Keep A Secret?
+04. Evelyn [0:04:02.08](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDCE5A0DAE60E29BB5EFD5EACA5CADEFC8FADC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067593   (386987) от 29.10.2016
+
+Cerrone - Red Lips (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy (feat. James Hart) [03:38]
+02. Move Me (feat. Brendan Reilly) [03:36]
+03. Illuminate Me (feat. Sam Gray) [03:16]
+04. Ain’t No Party (Like Monday Night) (feat. Kiezsa) [04:10](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFDD5C866718FD2A5D76A31EC8931B41F148543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067281   (386976) от 29.10.2016
+
+Gazebo - Lunatic (2013) Compilation, 2CD [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like Chopin (Extended Version) 7:42
+02. Lunatic (Extended Version) 6:24
+03. Telephone Mama (Extended Version) 5:45
+04. Trotsky Burger (Extended Version) 5:31(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A55755698C45378E0420513F4553084385A38A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414481   (385498) от 08.10.2020
+
+VA - Italo Disco - The Lost Legends Vol. 31 (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurice Yesterday – Come On (06:19)
+02. Pascalin – How Did You Come Into My Life (05:59)
+03. Claudio – Crazy In The Night (08:30)
+04. Susanne – Give Me Love (05:42)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666800FC2F39CEF27262181195A33B723CB71BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 250314   (384333) от 26.10.2010
 
 A La Carte - Greatest Hits (2004) [FLAC|Lossless]<Disco>
@@ -638,122 +754,6 @@ Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419189   (342041) от 27.10.2020
-
-Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To Neon (4:33)
-02. Pandora's Box 2020 (5:02)
-03. Heart On Fire (4:35)
-04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABBCF08DFD469BF9CD2E7D730CC5E5FE1ED8EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419512   (339982) от 28.10.2020
-
-Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Age (12'' Version) (6:47)
-02. Like Puppets (12'' Version) (5:26)
-03. Plastic Age (Male Vocal Mix) (8:00)
-04. Like Puppets (7'' Version) (3:49)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3D52F15A6ED092F678DC03F33128AF7FD29752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419514   (339980) от 28.10.2020
-
-Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il giudizio (4:15)
-02. Beata (3:50)
-03. Sfere di Qi (3:58)
-04. Non ricordi (5:08)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4E880B25D90300F7625CAC5CA1596A58842267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419441   (339708) от 28.10.2020
-
-Earth, Wind & Fire - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339708.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Earth Wind And Fire and The Emotions - Boogie Wonderland (4:50)
-02. Let's Groove (5:33)
-03. Shining Star (2:50)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 03:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0442B744D41625B9481C4B0FE9AD1A19FC70DD83
 ```
 
 https://mybot314.ru/tekegram_catalog/

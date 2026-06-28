@@ -1,3 +1,36 @@
+###  Публикация: 603655   (996922) от 15.01.2013
+
+Antonio Lucio Vivaldi-New Discoveries Modo Antiquo Federico Maria Sardelli (2008-2012)[FLAC|Lossless]<Chamber, Vocal>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996922.jpg" />
+</div>
+
+
+###  Подробнее
+
+В библиотеке Государственного Университета Турина хранятся редкие музыкальные коллекции, среди прочих манускриптов содержащие более 450 работ Вивальди, многие из которых подписаны композитором. Некоторое из них никогда не записывались, и были специально отобраны и исполнены для этого диска.
+(   Читать дальше...   )01. Concerto in re minore 'Il Gran Mogol', RV 431a - 1. Allegro non molto [03:22]
+02. Concerto in re minore 'Il Gran Mogol', RV 431a - 2. Larghetto [01:55]
+03. Concerto in re minore 'Il Gran Mogol', RV 431a - 3. Allegro [02:07]
+04. L'inganno trionfante in amore, RV 721 - Act II, Scena X, Aria 'Son nel mar d'aspiri tormenti' [03:33]
+05. L'inganno trionfante in amore, RV 721 - Act II, Scena II, Aria 'S'odo quel rio che mormora' [05:01]
+06. Concerto in la maggiore RV 817 - 1. Allegro [03:51]
+07. Concerto in la (   Читать дальше...   )Жанр: Chamber, VocalПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D990C9FA48968D75B43A0A908588EC714C5A370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599846   (996829) от 15.01.2013
 
 Муслим Магомаев - Арии из опер Муслим Магомаев (2002) [MP3|320 кб/с]<Classical>
@@ -841,35 +874,6 @@ Piano Sonate No.28 in A major, op.101
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4165DFC6155DA9234ED7C98F004CFDE12A36A74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972320   (981803) от 06.01.2016
-
-Beck - Symphonies op.4 Nos.1-3 (Michael Schneider &La Stagione Frankfurt Orchestra) (2006) [FLAC|Lossless] <Classical, Orchestral, Symphonic, Classical Period, Opera, Symphony, Overture>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony in D major Op. 4/1 (Callen 19)
-01. Allegro maestoso (06:22)
-02. Andante (04:44)
-03. Minuetto I, II (03:08)(   Читать дальше...   )Жанр: Classical, Orchestral, Symphonic, Classical Period, Opera, Symphony, OvertureПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EC286BB709412D5261404E1F33550D0494026B
 ```
 
 https://mybot314.ru/tekegram_catalog/

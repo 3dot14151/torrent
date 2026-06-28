@@ -1,3 +1,32 @@
+###  Публикация: 1551769   (588992) от 18.05.2022
+
+VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - Bowie Classix (Mixed By Lucien Vrolijk)
+02. Elton John & Alessandro Safina - Your Song (DMC Extended 2020) (Remixed By Lucien Vrolijk)
+03. Rick Astley - Never Gonna Give You Up (DMC Bass Remix) (Remixed By Lucien Vrolijk)
+04. Various - 3 Decades Of Popmusic (Part 3) (Mixed By Arjan Van Der Paauw)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:18:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB1863BCF0EDAC6397E9A2E9AF0DC02CCB17FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551780   (588915) от 18.05.2022
 
 VA - DMC Dancing Divas (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Electro House, Soul, Dance-pop>
@@ -720,35 +749,6 @@ Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554232   (575776) от 31.05.2022
-
-Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Good Morning
-03. Strange Animal
-04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
 ```
 
 https://mybot314.ru/tekegram_catalog/

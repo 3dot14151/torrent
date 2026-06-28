@@ -1,3 +1,162 @@
+###  Публикация: 1860156   (1061775) от 19.03.2026
+
+Люсьенн Феликс | Элементарная математика в современном изложении (1979) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теоретико-множественные концепции, пронизывающие всю книгу Люсьенн Феликс, имеют в наши дни фундаментальное значение не только для теоретической математики, но и для многих физических, технических, биологических и иных научных дисциплин. Эти концепции используются не только при построении вершин науки и ее основ, но также и в педагогическом процессе. Вопросы перестройки (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2091955A632FAA27E01E6FE9E670555F44804C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860180   (1061767) от 19.03.2026
+
+И.Р. Шафаревич | Основы алгебраической геометрии (1988) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 1. Алгебраические многообразия в проективном пространстве
+Посвящена систематическому изложению основ алгебраической геометрии. Дает общее представление об этой области и основу для чтения более специальной литературы. Изложение иллюстрировано большим числом примеров и приложений. Соответствует первой части первого издания книги (1972 г.).
+Внесепы изменения, цель (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4199F1D5658B3896B69602AE15C5B9555EDB336C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860162   (1061765) от 19.03.2026
+
+Ф. Гриффитс, Дж. Харрис | Принципы алгебраической геометрии (1982) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальная монография, написанная известными американскими учеными, содержит основы современной алгебраической геометрии, ее связи с другими отраслями математики, а также необходимый подготовительный аппарат. С присущим Ф. Гриффитсу мастерством вскрываются принципиальные идеи этой науки, которая в последнее время находит многие важные применения. Монография (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4B67EF5F012E4EB04091CD7DEAE3B64B01F25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859843   (1061350) от 18.03.2026
+
+Люсьенн Феликс | Элементарная математика в современном изложении (1967) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга облегчает переход от традиционных элементарных понятий к более современному пониманию математики. Сделана попытка построить стройную логическую систему основ математических знаний, по новому изложить традиционный школьный курс математики. Используются теоретико-множественные концепции и аксиоматический метод. Книга предназначена, в первую очередь, для преподавателей, (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DA103898E2BE8F286B0FF131C5B9933A886E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859661   (1061245) от 17.03.2026
+
+Л. Хёрмандер | Анализ линейных дифференциальных операторов с частными производными [4книги] (1986 - 1988) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 1: Теория распределений и анализ Фурье.
+Первый том фундаментальной монографии крупного шведского математика, знакомого советским читателям по переводам его книг и статей, посвящен теории распределения и анализу Фурье и дает систематическое изложение современного состояния в данной области.Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DACBC8C65758AF2361394C13E490A17B06DD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859237   (1061056) от 15.03.2026
+
+В.Н. Писаренко, А.Г. Погорелов | Планирование кинетических исследований (1969) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена изучению механизма и кинетики сложной химической реакции с помощью методов планирования эксперимента. Показано, что использование методов планирования эксперимента позволяет значительно сократить объем экспериментальной работы и повышает точность и надежность исследований, что подкрепляется практическими примерами. Эти методы полезны исследовательским (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249DDB8B920DE238EE8A1292C5870B0FCADEA77B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859055   (1060906) от 14.03.2026
 
 В.Ю. Арьков | Анализ рядов динамики в электронных таблицах. Учебное пособие (2020) [PDF]
@@ -518,165 +677,6 @@ The integration of microgrids with solar generation enhances energy efficiency, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850614   (1054484) от 29.01.2026
-
-Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Elements (Mini Encyclopedias) (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054484.jpg" />
-</div>
-
-
-###  Подробнее
-
-The periodic table provides the most convenient way of organising chemical elements by specific icons, and is widely used in chemistry and physics as a quick and easy resource for scientists and students. It provides an easy visual reference of the periodic law, which says that when elements are arranged in order of their atomic numbers, an approximate recurrence (   Читать дальше...   )Жанр: Children's Chemistry Books, General Chemistry, History & Philosophy of ScienceЯзык: АнглийскийИздательство: Amber BooksФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59491A37A3F63C6A9E429221CF9B21BB9C785D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850617   (1054483) от 29.01.2026
-
-Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications: Quantum Communication in Physics and Biology (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054483.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book investigates various aspects of information fields, not only theoretical, but with an additional emphasis on its applications. This book aims to provide a universal framework for understanding tempo-spatial information storage and communication in both quantum physical and biological regimes. This book is divided into two main parts: Part 1: this section (   Читать дальше...   )Жанр: ФизикаЯзык: АнглийскийИздательство: Springer-Verlag GmbHФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3884584BA317B9FC01D8B08BAD57C4DEB6724B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850622   (1054482) от 29.01.2026
-
-Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Edition. 13th Edition [2 книги] (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seeds/Backman/Wegryn’s “Foundations of Astronomy,” 15th Edition, is known for its up-to-date content, clear explanations and student-friendly approach, helping you answer two key questions: "What are we?" and "How do we know?" The first question asks how we fit into the universe's history, tracing atoms in your body back to the Big Bang and stars. (   Читать дальше...   )Жанр: Astronomy & AstrophysicsЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7518781D1BCE97B94C0A1EC6E15326E359BE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850107   (1054292) от 26.01.2026
-
-Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054292.jpg" />
-</div>
-
-
-###  Подробнее
-
-This unique book gives a manageable introduction to functional analysis and a thorough treatment of real analysis. Authored as a graduate textbook in analysis, the book could be used for a course in real analysis based on the Lebesgue theory of integration and/or a course on functional analysis.
-The author uses basic topological ideas to unify the presentation of (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Chapman and Hall/CRCФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850265   (1054144) от 27.01.2026
-
-Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850268   (1054143) от 27.01.2026
-
-Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054143.jpg" />
-</div>
-
-
-###  Подробнее
-
-The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
-
-In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

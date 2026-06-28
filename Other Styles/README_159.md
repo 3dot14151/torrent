@@ -1,3 +1,119 @@
+###  Публикация: 1650832   (194852) от 03.08.2023
+
+VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
+2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
+3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
+4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652215   (194563) от 10.08.2023
+
+VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Димитриевич - Мама, я жулика люблю
+02. А. Димитриевич - Что-то грустно мне
+03. А. Димитриевич - В этой жизни умирать не ново
+04. А. Димитриевич - В Париж он бельше не вернется(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ECF87EBB191F662F31922CFFDCA38A00E92C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655059   (193920) от 24.08.2023
+
+VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mystic - Soul of the Universe (5:26)
+02. Mikhail Catan - Solace (6:24)
+03. Gumale - Scenery (7:11)
+04. Ali Termos - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F8506D7B2AD693180ADB2778A61988272525B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654919   (193913) от 24.08.2023
+
+VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atman (US) - Namekia (6:49)
+02. Mikhail Catan - Away (7:23)
+03. Tamer ElDerini - Fagr (5:42)
+04. Michael Simon - Canzul (6:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828014   (193752) от 23.10.2025
 
 Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
@@ -625,122 +741,6 @@ Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E583AC922663CEB8771458702EB4A95E10CD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660793   (188742) от 14.09.2023
-
-VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotica - Adult Smooth Jazz (3:15)
-02. Saxophone - Erotic Slow Emotions (3:33)
-03. Slow Sex Music - Taste My Lips (3:32)
-04. Erotica - Crying Guitar (4:58)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB862E95747568141240AA09369D386B93F92E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202959   (187895) от 17.09.2023
-
-Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moscow, 1953
-02. Beria's Plan
-03. First On The Scene
-04. We Cry For You(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590719   (187816) от 16.11.2022
-
-Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternenwind [00:06:00]
-02. Home Is Where You Are [00:04:23]
-03. Searchlight [00:04:26]
-04. Scarborough Fair [00:03:42](   Читать дальше...   )Жанр: Celtic, Gothic, Fantasy Folk RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291D0A623B04312C592DC494C13750788B906F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590974   (187537) от 17.11.2022
-
-Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babylon (04:05)
-02. Penelope Graves (06:17)
-03. Gambit of Night (Extended) (03:53)
-04. Come Take a Trip in My Airship (04:05)(   Читать дальше...   )Жанр: Progressive Rock, Cinematic RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1445318   (1033799) от 05.02.2021
+
+Frank Butler - Wheelin' And Dealin' (1978) 1987, Break Time [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheelin' and Dealin' [6:25]
+02. I Got It Bad/Tenderly [8:17]
+03. Four [7:34]
+04. Secret Love [5:43](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28994D1B1BB0A90FEF883DCB6BD276E83BFCAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445278   (1033796) от 05.02.2021
+
+Eddie Condon - 1938 - 1940 (1994) Classics [FLAC|Lossless|image + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diane [3:06]
+02. Serenade to a Shylock [4:35]
+03. Sunday [3:03]
+04. California, Here I Come [3:04](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974982349FEEF9A52DBE9780B430F9869DCBC4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445317   (1033795) от 05.02.2021
 
 Elmo Hope Ensemble - Sounds From Rikers Island (1963) 2003, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F6BEA1462206204FB8C37AEC1425E058440A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446944   (1032343) от 11.02.2021
-
-Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mezzerola Blues [3:09]
-02. Drum Face [3:16]
-03. Blues des annees 20 [3:41]
-04. Really the Blues [4:51](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4816D3D5C52300A4439A3EF2A343705BBEA02D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446939   (1032337) от 11.02.2021
-
-Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Be So Nice to Come Home To [2:18]
-02. Lonesome Road [2:27]
-03. They Didn't Believe Me [2:22]
-04. By Myself [1:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30EE391CBEC70FC7E1CCD7F246ECB063D5EF0D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

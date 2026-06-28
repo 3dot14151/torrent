@@ -1,3 +1,123 @@
+###  Публикация: 251459   (377693) от 29.10.2010
+
+The Rolling Stones - Ladies & Gentlemen, the Rolling Stones (1974/2010) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_377693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blu-ray издание легендарного концертного фильма 1974 г. Роллинг Стоунз "Ladies and Gentelmen... The Rolling Stones". Фильм запечатлил лучшие моменты четырех концертов в Техасе в рамках тура Exile on Main Street 1972 г. Видео почищено и реставрировано, звук ремастирован, DTS-HD MA звучит просто великолепно.
+Бонусом на диске представлены прежде не издававшиеся репетиционные материалы швейцарского турне и интервью с Джеггером 20101. Brown Sugar 
+2. Bitch 
+3. Gimme Shelter 
+4. Dead Flowers 
+5. Happy 
+6. Tumbling Dice 
+7. Love in Vain 
+8. Sweet Virginia 
+9. You Can’t Always Get What You Want 
+10. All Down the Line (   Читать дальше...   )Жанр: RockПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79919576DB3DBF5EFBAAC7FB73D30A30AAE25CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175760   (375706) от 19.10.2017
+
+Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фееричное шоу вечно молодой, энергичной и эпатажной королевы поп-музыки - Madonna. "Rebel Heart Tour" - десятый концертный тур американской певицы в поддержку её тринадцатого студийного альбома Rebel Heart, вышедшего 6 марта 2015 года. Данный тур собрал более $169,800,000. Премьера шоу состоялась 9 декабря 2016 года на кабельном канале SHOWTIME.Производство: США, Live Nation Global Touring, Live Nation, York StudiosЖанр: Документальный, МузыкаРежиссер: Натан Риссман, Дэнни ТуллАктеры: Мадонна, Кевин Антунес, Купоно Алоу ...Субтитры: ОтсутствуютПродолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395AD3EF8EF41338BD2AD49C1B09AA3CFCCBCB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068902   (375566) от 03.11.2016
+
+Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный концерт великого Карлоса Сантаны..01. Soul sacrifice
+02. Jingo
+03. Evil ways
+04. Everybody's everything(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E8BC9648328B9DE492A0075DD071AAC85D93C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949360   (374350) от 24.10.2015
+
+Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metallica в спортивном комплексе “Олимпийский”. Сыграли для москвичей много нового. Так, прежде ещё ни разу в Белокаменной не исполнялись песни “Ride The Lightning”, “King Nothing”, The Unforgiven”, “Frayed ends of naity”, “Lords Of Summer” и “Whiskey in the Jar”.Американцы отыграли 18 песен, из которых три - “на бис” (среди них, конечно, и “Nothing Else Matters”).Концерт (   Читать дальше...   )01.The Ecstasy of Gold
+02. Fuel
+03. For Whom the Bell Tolls
+04. Battery(   Читать дальше...   )Жанр: Heavy Metal, Trash MetalПродолжительность: 02.20.02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED2478C4AD9F69515D3A5DF87C4BCF0D825F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175996   (373919) от 20.10.2017
 
 Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
@@ -624,127 +744,6 @@ Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4261CEF32D59ACAE6B536BAD9015BA460D927A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723963   (352296) от 19.11.2013
-
-Eric Clapton's: Crossroads Guitar Festival (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears In Heaven
-02. Spider Jiving
-03. Lay Down Sally
-04. Time Is Tight(   Читать дальше...   )Производство: США / Parallel 28 EquipeЖанр: Blues, Rock, Country, BluegrassРежиссер: Мартин АткинсПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:16:34 + 02:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4864943EDE88AAAA0E143BB697160FC1C290C2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577603   (352091) от 21.11.2012
-
-Roger Waters -The Wall Show ( London O2 Arena 5/02/2011 )(Pink Floyd Reunite) (2011) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здравствующие члены Pink Floyd воссоединились  в Лондоне на сцене  02 Арена  5/02/2011 и 5/11/2011 во время Wall тура Роджера Вотерса.
- Это второй раз, после распада группы, когда  Ник Мэйсон, Дэвид Гилмор и Вотерс играли вместе  Вотерс и Гилмор вместе исполнили "Comfortably Numb", вызвав безумный восторг слушателей, и в финале "Outside the Wall". Гилмор появился с Ником Мэйсоном, который играл на тамбурине.
-Альбом "Стена"исполняется полностью, плюс две песни не в оригинальном  виде -"What Shall We Do Now?" and "The Last Few Bricks" - которые исполнялись на концерте во время The Wall Тура в 1980 - 1981Жанр: RockРежиссер: Roger WatersАктеры: Roger Waters, David Gilmour, Nick   Mason...Перевод: ОтсутствуетПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656677   (351739) от 05.11.2014
-
-Hugh Laurie: Let Them Talk. A Celebration of New Orleans Blues (2011) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это дополнительный материал к альбому "Let Them Talk", где рассказывается о песнях, которые звучат в альбоме, и людях, эти песни создавших, о том, какую роль в жизни любого блюзмена играет Новый Орлеан, о тех, кто исполняет блюз в наши дни, о любви автора к музыке в целом (и их непростых отношениях) и блюзу в частности.01."Swanee River" (Foster/Charles) Hugh Laurie
-02."Baby What Do You Want Me to Do" / "You Got Me Running" (Jimmy Read) Miss Lovell White & The Austin Blues Society Band
-03."You Don't Know My Mind" (Williams/Gray/Liston) Hugh Laurie
-04."You Don't Know Me" (Walker/Arnold) Lady on Guitar(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F146D009C17D6359925D3B8F44E4D83C2D87BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579114   (350081) от 22.11.2012
-
-U.D.O. - Live in Sofia (2012) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rev-Raptor
-02. Dominator
-03. Thunderball
-04. Leatherhead
-05. Independence Day
-06. Screaming For A Love-Bite
-07. Heart Of Gold
-08. Vendetta
-09. Princess Of The Dawn
-10. I Give As Good As I Get(   Читать дальше...   )Жанр: Heavy MetalРежиссер: AFM RecordsПеревод: ОтсутствуетПродолжительность: 02:25:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

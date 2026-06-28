@@ -1,3 +1,29 @@
+###  Публикация: 1079478   (293285) от 04.12.2016
+
+Звуковые библиотеки - Music Maker Jam - Soundpools Pack 3 [OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник Music Maker Jam - Soundpools Pack 3 собрал в себя все новинки уходящего года из Music Maker Jam, а именно - 46 стилей (как платных, так и бесплатных), которые содержат 10901 звучание различных инструментов высокого качества. Стили подходят для установки не только в Music Maker Jam, но и в более профессиональные версии программы (Magix Music Maker Premium/Live (   Читать дальше...   )Формат: OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89226A60CEAC751514140EF932362BEC76DBF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 733411   (286789) от 12.12.2013
 
 AudioJungle Pack NEXT [WAV, MP3]
@@ -688,37 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6071E1DFD1E68E1CCCB2F86223DA09904607B6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494106   (249285) от 09.05.2012
-
-Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека ударных - Analogue Drums - BuckShot (KONTAKT/EXS24/WAV Samples - 24 bit, 44.1 kHz, stereo) - Винтажная ударная установка 1970s Gretsch Stop-Sign Maple с тарелками фирм Zildjian и Sabian. Установка записывалась в большом, старом деревянном театре, это позволило получить более плотное и широкое звучание. Как обычно при записи использовалось только лучшее оборудование, включая микрофоны Neumann, винтажные предусилители Neve 1064. а также компрессоры DBX 160 "VU".
-Этот продукт требует полной версии Kontakt 4 и выше.
-Дата выпуска: 30.04.2012
-Формат: KONTAKT/EXS24
-Релиз-группа: KRock
-Качество: 24 bit, 44.1 kHz, stereoНазвание программы: Analogue Drums - BuckShotЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

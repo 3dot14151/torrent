@@ -1,3 +1,234 @@
+###  Публикация: 1177957   (355490) от 28.10.2017
+
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355490.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 91100   (355091) от 01.11.2015
+
+AC/DC - Live At Donington (1991) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПеревод: ОригинальныйПродолжительность: 01.57.55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577882   (354767) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
+2. Zeppelin Media Moment
+3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577993   (354760) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying
+05. For Your Life
+06. Trampled Under Foot
+07. Nobody's Fault But Mine
+08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255918   (354389) от 08.11.2010
+
+Юрий Антонов - От печали до радости... (2005) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354389.jpg" />
+</div>
+
+
+###  Подробнее
+
+18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329376   (354308) от 04.10.2019
+
+Popa Chubby - Wild (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт американского блюзмена Popa Chubby (настоящее имя - Ted Horovitz), прошедшего 27 марта 2004 года в Le Plan, La Fnac Evry, Meridien Hotel, France.01. Intro
+02. Un-American Blues
+03. I Can't See The Light Of Day
+04. Top Ten Reasons Why I Can't Sleep At Night(   Читать дальше...   )Производство: США,DixiefrogЖанр: БлюзПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826B06B9767560504BF20387E3F59B19A1F58B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178581   (353693) от 29.10.2017
+
+Anthrax - Chile On Hell 2013 (2014) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Anthrax В Teatro Caupolican (Сантьяго, Чили) 10 мая 2013 года. Выпущен на DVD/Blu-Ray 16 сентября 2014.01. Among The Living
+02. Caught In A Mosh
+03. I Am The Law
+04. Chile On Hell(   Читать дальше...   )Производство: Megaforce Records (USA)Жанр: Thrash Metal/Heavy MetalПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB627656308B7C283F9B52D90F022C79504352B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178642   (353316) от 29.10.2017
+
+Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный альбом  Megadeth, посвященный двадцатилетию их четвёртого студийного альбома Rust In Peace 1990 года. Записан в Hollywood Palladium (Hollywood, California) 31 марта 2010 года и выпущен 7 сентября того же года01. Holy Wars...The Punishment Due
+02. Hangar 18
+03. Take No Prisoners
+04. Five Magics(   Читать дальше...   )Производство: Shout! Factory (USA)Жанр: Thrash Metal/Heavy MetalРежиссер: Kerry AsmussenПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4261CEF32D59ACAE6B536BAD9015BA460D927A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178680   (353297) от 29.10.2017
 
 Iron Maiden - Maiden England '88 (2013) DVD9
@@ -502,226 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D87CCF653811394BC718AB17D4EBB27338E625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578153   (347605) от 22.09.2022
-
-Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Accept на Rock Hard фестивале 5 июня 2022 года в Германии01. Zombie Apocalypse
-02. Symphony of Pain
-03. Living for Tonite
-04. Restless and Wild(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0CD784865A2500B33D1FCAA0D92225CFEB0DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725021   (347464) от 21.11.2013
-
-Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-RockРежиссер: Nick WickhamАктеры: Joe Cocker (vocals), Nick Milo (keyboards), Jack Bruno (drums), Gene Black (guitar), Oneida James-Rebeccu (bass), Herman Jackson (Hammond B3), Norberto Fimpel (sax, percussion), Nichelle Tillman, Laura Jane Jones (background vocals)Перевод: ОтсутствуетПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E556B7E210737DD49AFCEA1D16B4AC3E6889723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418658   (346683) от 25.10.2020
-
-Квартирник НТВ у Маргулиса. Хибла Герзмава. Классика и Джаз (24.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346683.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцене «Квартирника» — атмосферный концерт народной артистки России, оперной дивы Хиблы Герзмава. Ее называют золотым сопрано России, она — уникальное явление на отечественной оперной сцене и одна из самых востребованных российских певиц в мире. Хибла выступала в Мариинском театре в Петербурге, в Бунка Кайкан в Токио, в Шатле и Шанз-Элизе в Париже, в театре Коммунале (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF12B4849ED8749E4F2D80E53C1800D5DEF08C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418792   (346437) от 25.10.2020
-
-Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346437.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Live from the Forum MCMXCVIII" - это концертный альбом и концертный фильм группы The Eagles. Это запись одного из концертов в Инглвуде, штат Калифорния, которые проходили в течение трех ночей в сентябре 2018 года. Это первый релиз с участием новых участников группы Дикона Фрея и Винса Гилла, а также Дона Хенли, Джо Уолша и Тимоти Б. Шмита. Дикон, сын бывшего (   Читать дальше...   )01. Introduction
-02. Seven Bridges Road
-03. Joe Walsh: "How Ya Doin?"
-04. Take It Easy(   Читать дальше...   )Производство: СШАЖанр: Classic RockРежиссер: Nick WickhamПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8B7EC64AB05501F9D8BAE0D198AB531FBC1603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578562   (345694) от 23.09.2022
-
-Всероссийский Выпускной Бал (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345694.jpg" />
-</div>
-
-
-###  Подробнее
-
-МУЗ-ТВ представляет выпускной вечер на главной сцене страны - Всероссийский выпускной бал в Кремле 2022!0:00:00 - Приветствие ведущих
-0:00:58 - JONY - Комета
-0:04:12 - JONY - Титры
-0:08:28 - ANNA ASTI - Феникс(   Читать дальше...   )Производство: Телеканал "Муз-ТВ"Жанр: PopЯзык озвучки: РусскийПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E1974DE30566B83250DC89B1ECFBF793A44615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578525   (345434) от 24.11.2012
-
-Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE82A60FF7A664BDFA49A6E07DF6926AAA88A61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329470   (345255) от 08.10.2019
-
-Сборник клипов - Old School Hits от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345255.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы нулевых. Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old School Hits 1 — Intro
-01. Sugababes — Push The Button
-02. Justin Timberlake & Clipse — Like I Love You
-03. Alesha Dixon — The Boy Does Nothing(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FB6FD20774D6C39DE25388537DABAAF8036BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073585   (344945) от 16.11.2016
-
-Евгений Гинзбург - Волшебный фонарь (1976) DVBRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344945.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Волшебный фонарь» - вокальная и музыкальная феерия «по мотивам изобретения братьев Люмьер» самого великого кинематографа как такового! Это замечательный музыкальный фильм-пародия на известные зарубежные кинофильмы, поставленный Евгением Гинзбургом в 1976 году. И это мюзикл с песнями и танцами, которые исполняют лучшие артисты своего времени, любимые телезрителями (   Читать дальше...   )Производство: СССР, ТО ЭкранЖанр: Мюзикл, комедия, короткометражныйРежиссер: Евгений ГинзбургАктеры: Людмила Гурченко, Спартак Мишулин, Николай Караченцов, Юрий Волынцев, Евгений Моргунов, Наталья Крачковская, Эммануил Виторган, Вячеслав Богачёв (I), Геннадий Хазанов, Вахтанг Кикабидзе, Тамара Квасова, Валентин Махотин, Валентин Никулин, Светлана Орлова, Любовь Полищук, Алла Пугачёва, Наталья Селезнёва, Валентина ШарыкинаПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD309746600BF31A7E8FC8241917ADC79435215
 ```
 
 https://mybot314.ru/tekegram_catalog/

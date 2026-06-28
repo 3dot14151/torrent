@@ -1,3 +1,83 @@
+###  Публикация: 943483   (446644) от 04.10.2015
+
+Проекты - VideoHive - Advance 3D Extrudes II (Animated Stroke) Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AC88BE76E50407A8F9BD111E5D3F39236CA424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827326   (446553) от 03.10.2014
+
+VideoHive - Particle Logo Reveal - 8989477 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет всем.
+Я представляю мой новый проект Particle Logo Reveal.
+Надеюсь, он вам понравится и будет полезен. (Автор)Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA54FF58E09E3FE1EA5587D9B70CF366D4C53D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061821   (445989) от 11.10.2016
+
+Проекты - VideoHive - Shiny Circle Logo Reveal - 294611 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7353A7A46A05CD6DB9CD35B18388D706CBAFCC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163765   (445733) от 07.09.2017
 
 Проекты - VideoHive - Modern Reveal - 20414212 [AEP]
@@ -593,85 +673,6 @@ VideoHive - Stylish Logo Pack - 9093969 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8676D8C6A81F08830536D46C9A5F4CA3E8234252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065347   (420826) от 22.10.2016
-
-Проекты - Motion Array - Flat Logo - 16395 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для динамичной и современной демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D1271B7F7538FB7C620110B6946932468A5926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947270   (420171) от 16.10.2015
-
-Проекты - VideoHive - Flame Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DB865ECB2DD81F4FFFDECCC1659A372FC66DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251118   (419527) от 30.09.2018
-
-Проекты - VideoHive - Vintage Logos Pack - 7373793 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vintage logos Pack - этот шаблон имеет забавную анимацию со старинным эффектом для демонстрации логотипа или бренда. Проект содержит три разных шаблона для представления логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4988323D866A158C08FD42524C452006EC40CBEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 981198   (951462) от 01.02.2016
+
+VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris & Simo - Avon
+02. Tim Shaft - Unstoppable
+03. Luke Carpenter - Breaking Away (Feat. Jonny Rose)
+04. Robyn The Bank - Collide (Mars2Mars Remix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CA2C4199544EDE453BD5D0085A3CCBA9F581A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362200   (950996) от 22.02.2020
+
+VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Carl Carlton - I'll Wait Here (Black Coffee Mix) 3:16
+02.Love Cascade - Six O┤nine (Universe & Dreams Mix) 4:20
+03.Godiva Street - What the Curate Really Did (Deep Love Mix) 3:32
+04.Cool Rhythms - The Force Beat (Maracuja Deep Mix) 3:21(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089271   (950760) от 04.01.2017
+
+VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro S - Just My Beat 07:53
+02. Sandro S, Mr Few - Walking On Hands 07:37
+03. Klaudio Greco - Italians Do It Better 05:50
+04. Sandro S - Reset Hall (Ozen Nouse) 07:33(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF1242F61C1BFB26E6398D7DA4DE9E41B744EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089327   (950712) от 04.01.2017
+
+VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Maestro - Under A Palm Tree [00:06:24]
+02. Mama Maestro - Baby (Original mix) [00:06:20]
+03. Rousing House - Story House Piano [00:05:50]
+04. Big Bunny - Super Boom (Original mix) [00:05:09](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089468   (950700) от 04.01.2017
+
+VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arent & Raxell - Damborola  [6:28]
+02. TimeMoment - Cosmo  [5:51]
+03. SHaRk - Summer Feelings  [5:46]
+04. Grim Mass - In Blizzard  [4:30](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171720   (950358) от 07.02.2010
+
+VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House / Vocal House / Disco House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090245   (947690) от 06.01.2017
 
 VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
@@ -565,180 +736,6 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092776   (937417) от 13.01.2017
-
-Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will Fast & Major Lover - First Life (6:11)
-02.  Will Fast & Major Lover - I'll Be Back (5:24)
-03.  Touch Me  (4:43)
-04.  You & I  (4:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFD971B053E7DDF3A3440B65B844E8129A98E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092890   (937411) от 13.01.2017
-
-VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alkalino - Distant Future [6:42]
-02. Ritmo Du Vela - It's Good [6:00]
-03. Dany Cohiba - Just Be Real [6:24]
-04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093056   (937328) от 13.01.2017
-
-VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice Output - Fastest
-02. Xenias - Banana
-03. Ulric Hopz - Provoi
-04. Xort Base - Useful(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364434   (936406) от 03.03.2020
-
-VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936406.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Electro Jack - Stadium 4:11
-2. Edgar Blaime - Legazy 4:11
-3. Dustin Phillow - Amount 4:11
-4. Duna Shain - Sculpt 4:11(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093331   (934026) от 15.01.2017
-
-VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daleri ft Vice - Somebody Told Me (En Route)  3:06
-02.  Tom Fall - Irok (Radio Edit)  3:14
-03.  Julian Jordan - Pilot  2:33
-04.  Sunstars - Crysis  2:50(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA55AE6F6A3E2BF9D9A6B7082C561DC4B0948DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093701   (934024) от 15.01.2017
-
-VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mortimer Snerd III – Crazy Fox (Miggs & Mortimer ReTouch) 06:50
-02. TrackHead Steve – U 4Get About Me (Steve Miggedy Maestro ReTouch) 07:27
-03. Michele Laws – Saditty (Miggedy’s Jackin ReTouch) 06:35
-04. Tink Thomas – Breathe (Tink Thomas Mix) 08:56(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
 ```
 
 https://mybot314.ru/tekegram_catalog/

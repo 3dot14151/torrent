@@ -1,3 +1,32 @@
+###  Публикация: 1002064   (848696) от 31.03.2016
+
+Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gaitas  3:37
+02.  Zangarilleja  1:59
+03.  "A del arrebol luciente" (Juan Hidalgo)  3:36
+04.  Fandango  2:53(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDB5015A2F400A127C891FFD98855B86F0B6A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002195   (848686) от 31.03.2016
 
 Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -713,35 +742,6 @@ Simone Kermes - Love (2016) [FLAC|Lossless|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BB0B88248F2B7784F887B9BED780B70FC3598F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500928   (839823) от 07.10.2021
-
-VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glorious Symphony Orchestra - Symphony in E flat major, No 5, Op 82: I (31:46)
-02. Tatjana Franova - Etude in C sharp minor, Op 2: I (04:13)
-03. Great Baltic Symphony Orchestra - The Symphony's Song, Op. 57: I (17:13)
-04. Kaunas Symphony Orchestra - Da Requiem, Op 20: I (18:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

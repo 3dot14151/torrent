@@ -1,3 +1,148 @@
+###  Публикация: 1218399   (723215) от 09.04.2018
+
+VA - History Of Female Vocal (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond feat. Zoe Johnston - My Own Hymn (Original Mix)
+002. Susana - The Promise (Original Mix)
+003. Gabriel & Dresden feat. Jan Burton - Waiting For Winter (Extended Mix)
+004. C-Systems - Heat (Trance Arts Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 11:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BD778AC78A8DE69D29485D3B6BAFB697E50778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400089   (723065) от 03.08.2020
+
+VA - Runing Hardcore: Hardstyle Sound Mix (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. D-Sturb - Rebirth Festival
+002. Rejection - Around You
+003. Scarphase - Ik Leef Voor Hardcore
+004. Seventhrun - Siren(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Core, ElectroПродолжительность: 08:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE3D7344B8B8B101D4365F5F657974253D97D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400094   (723059) от 03.08.2020
+
+VA - Vocal Club House: Original DJ Mastermix (2020) [MP3|320 Kbps] <Vocal House, House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723059.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miskape - Heavenly Creatures
+002. Dave Replay - House Of Cards
+003. Chris Burke - Crash And Burn
+004. Groove Junkies - Good Love(   Читать дальше...   )Жанр: Vocal House, House, Club, DanceПродолжительность: 06:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8692077F66894DAD9C19D522F0194345F227BF06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400081   (723047) от 03.08.2020
+
+VA - Beautiful Club Tech House (2020) [MP3|320 Kbps] <Tech House, Electro, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723047.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dance Spirit - Famous Last Words
+002. Danzr Music - Flow
+003. Bessie Boer - Snow Nose
+004. Kuestenklatsch - This Time(   Читать дальше...   )Жанр: Tech House, Electro, Deep HouseПродолжительность: 10:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCFF62FE9A0415AE2AA836BCF9C0C92F4AEF625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400077   (722954) от 03.08.2020
+
+VA - Beatport Techno: Electro Sound Pack #141 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722954.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Cozzo - Detachment
+002. Blockform - Acid Rain
+003. Twins Project - Blast
+004. Jumkins - Angel(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D13EAC0868A4CC1B30A698A501961BCA38F7B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285224   (722683) от 25.02.2019
 
 VA - Trap Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass, Electronica>
@@ -609,151 +754,6 @@ VA - Melodic Therapy (2019) [MP3|320 Kbps] <Melodic Techno, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD8C74A1AF3BDB09D827A578A0C6DE3A045934A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531753   (718714) от 17.02.2022
-
-Digital Infinity - Digital Infinity (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiance (4:39)
-02. Dreams (5:49)
-03. Black Sky (4:57)
-04. Scars (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 02:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9F42E5916DB4846E87F62C58A55F8C5C23139B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129878   (718702) от 30.04.2017
-
-VA - Deluxe Drum And Bass (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718702.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3D Stas - Heroine Beat (Original Mix)
-002. 9TRANE - Heard Me (Strong4Life Remix)
-003. Junkie XL - Heart Of Darkness
-004. DJ Red - Bad Hombres (Richard Wette VIP Remix)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 08:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CF0C23ECE73DE9524E1BCA19E3A83C1F0D4343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129907   (718612) от 30.04.2017
-
-VA - Record Super Chart #484 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Nash - Know My Love  4:23
-02.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
-03.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
-04.  Martin Garrix feat. Brooks - Byte  4:45(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB12A2F2282132D8A8935123915B982950C700E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024363   (718259) от 08.06.2016
-
-VA - Neuro House Version Driver (2016) [MP3|264-320 кб/с] <Electronic, House, Progressive, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom And Collins - Obsessed (Vijay And Sofia Remix) 05:42
-02. Zir Rool - Belii (Original Mix) 07:31
-03. Vic Flairs - Algebraic Expression (Original Mix) 09:18
-04. WeRWolvz - When I See You (Original Mix) 04:45(   Читать дальше...   )Жанр: Electronic, House, Progressive, FunkyПродолжительность: 08:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE875299283CF27F083115061F1B518466C2E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024404   (718162) от 08.06.2016
-
-VA - Lounge - The Art of Relaxation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Old Town Blues
-02. Don Gorda Project - Stay on Course
-03. Bananaquit - Hold Me Up
-04. Don Gorda Project - Hand in Hand(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6BFE1E8BAE84440D45F7E2762FF9C8260498B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

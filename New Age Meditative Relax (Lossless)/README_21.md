@@ -1,3 +1,90 @@
+###  Публикация: 1253057   (385447) от 08.10.2018
+
+Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Perfect Silence (6:44)
+ 2. Behind the Veil (6:16)
+ 3. Eternal Journey (8:11)
+ 4. Always and Forever (6:19)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED39D546628565D7ADC423A93766599A11082CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252981   (385347) от 08.10.2018
+
+Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Management (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kokoro No Tsubasa
+02. Kagayaki No Naka De
+03. Resilience
+04. Courage(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF0744CFAB5B72C909E1FBD43991399690CE494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174543   (385325) от 15.10.2017
+
+Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beneath an Autumn Moon 10.20
+2. Whispers in the Trees 8.56
+3. To Dance with Falling Leaves 10.44
+4. Between Two Worlds 10.32(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7438BE386621625A59994911D554B6EC6BF1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174635   (385250) от 15.10.2017
 
 Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ambient>
@@ -655,93 +742,6 @@ Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F784F6AFCD605F418801F66E1E61ABCEDBE2494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950892   (363658) от 29.10.2015
-
-Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minaret
-02. Ariv El Pos
-03. Caravana
-04. Carima(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951018   (363653) от 29.10.2015
-
-Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyberspace 4:31
-02. Lost Paradise 8:50
-03. Beyond The Ocean Waves 5:53
-04. Inside The Heart Of Universe 4:43(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951361   (363067) от 29.10.2015
-
-Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage To Paradise
-02. The High Road
-03. Almeria
-04. Cabriolet(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
 ```
 
 https://mybot314.ru/tekegram_catalog/

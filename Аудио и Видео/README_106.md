@@ -1,3 +1,174 @@
+###  Публикация: 1283974   (730873) от 19.02.2019
+
+Обратные дороги / Back Roads (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Алтмайер с трудом воспитывает своих младших сестёр после ужасного происшествия: их отец застрелен, а мать находится в тюрьме, обвинённая в убийстве мужа. Харли заводит роман с Калли Мерсер, замужней матерью двоих детей, но его жизнь окончательно усложняется, когда он становится главным подозреваемым в убийстве.Производство: США / Samuel Goldwin, Hyde Park Int.Жанр: Триллер, ДрамаРежиссер: Алекс ПеттиферАктеры: Джульетт Льюис, Дженнифер Моррисон, Никола Пельтц, Алекс Петтифер, Даника Ярош, Роберт Патрик, Том Эверетт Скотт, Роберт Лонгстрит, Кьяра Аурелия, Скай ЭлобарПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (FOCS), Английские (SDH)Продолжительность: 01:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ABFFFDCE238C5CBE5B12685C8C3D31C047C32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021542   (730809) от 31.05.2016
+
+Masafumi Takada - Evil Within (2014) [AAC|WEB-DL|256 Kbps]<Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Clair De Lune
+02 - Code 3: En Route
+03 - One Eight Four: On-Scene
+04 - Crude Contraption(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5DA859ED29AAB5D76779E031AF53B081A14668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530015   (730778) от 09.02.2022
+
+VA - Erotic Moments (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Biosnakes - Drop Me a Line (5:51)
+02. Wohltat - Crop Circles (5:41)
+03. Zadar - Contemplating (6:01)
+04. Pique Dame - Souvenir de Bordeaux (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D98F3FCC32825EC068933DBC58E370628B24D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529904   (730775) от 09.02.2022
+
+Enigma - Le Roi est mort, vive le Roi! (1996) [AAC|~320 Kbps] <Electronic, Downtempo, Experimental>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Roi est mort, vive le Roi! (1:58)
+02. Morphing Thru Time (5:48)
+03. Third of Its Kind (0:19)
+04. Beyond the Invisible (5:00)(   Читать дальше...   )Жанр: Electronic, Downtempo, ExperimentalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2518CCCFFA6978CC63110F60427847EEE7EE6C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529905   (730773) от 09.02.2022
+
+Enigma - The Screen Behind the Mirror (2000) [AAC|~317 Kbps] <Electronic, New Age, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gate (2:04)
+02. Push the Limits (6:27)
+03. Gravity of Love (3:59)
+04. Smell of Desire (4:57)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376B9113309A80D1979F34F4D19412236653E1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529895   (730772) от 09.02.2022
+
+Cafe De Anatolia, Stephane Salerno, Jack Essek - Ethno World 2 (2020) [AAC|~313 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Essek, Stéphane Salerno - Yanarim (7:06)
+02. Jack Essek, Stéphane Salerno - Reshetka (7:34)
+03. Jack Essek, Stéphane Salerno - Sajanna (7:34)
+04. Jack Essek, Stéphane Salerno - Nizami (9:05)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC66C9864F42D21EF7B8666FA86048F47B22A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529884   (730764) от 09.02.2022
 
 Vysotsky - Vysotsky Sings His Favorites (1982) [AAC|~321 Kbps] <Pop, Chanson, Ballad>
@@ -531,171 +702,6 @@ VA - Oriental India Chill Lounge - Mystic Buddha Ethnic Cafe Moods (2019) [AAC|~
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8654C81D64A6B1FD3CA9D43D8A577622D13A8D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530546   (729021) от 11.02.2022
-
-VA - Urban Grooves (Urban Funk Breaks Dub Hip Hop Beats) (2022) [AAC|~311 Kbps] <Jazz, Nu Jazz, Funk, Electronic, Broken Beat, Dub>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTJ XPerience, Anduze - Infiltrator (5:26)
-02. DOUT.D - Mathematic (2:28)
-03. Vito Lalinga (Vi Mode inc project) - Get It (4:34)
-04. Anduze - How To Love A Good Man (3:33)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Funk, Electronic, Broken Beat, DubПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BAA83A29490794DC3B31342E50592D0C5E55B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530373   (729019) от 11.02.2022
-
-VA - Latin Flavors, Vol. 1 (Latin Chill Music) (2013) [AAC|~349 Kbps] <Lounge, Chill Out, Bossa Nova>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo de la Rosa - Camino Del Sol (3:38)
-02. Scat - Que Vengo (4:25)
-03. La Estación Del Mar - Qué Bonito (3:59)
-04. Florito - Nambuco (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745EAE1D6B2C6883FBD2168FA4ACDB6F2A94EA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607768   (728562) от 11.02.2022
-
-Грязная кампания за честные выборы / The Campaign (2012) BDRip [576p] iPad [Theatrical Cut]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два конкурирующих политика Кэм Брэди и Марти Хаггинс, пытаются победить на выборах, чтобы представлять свой небольшой штат Северная Каролина в Палате представителей США. Каждый при этом использует свои методы для достижения наилучшего результата.Производство: США / Everyman Pictures, Gary Sanchez ProductionsЖанр: Комедия , Политическая сатираРежиссер: Джей РоучАктеры: Уилл Феррелл, Зак Галифианакис, Джейсон Судейкис, Сара Бэйкер, Дилан МакДермотт, Кэтрин ЛаНаса, Брайан Кокс, Джон Литгоу, Дэн Эйкройд, Скотт А. МартинПеревод: Многоголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F1C3168D73226ADB64300F60EC97E22F856CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284459   (728529) от 21.02.2019
-
-Оверлорд / Overlord (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне высадки союзников в Нормандии отряд американских десантников проникают в оккупированный немцами посёлок, чтобы разрушить их радиомачту. Лазутчикам предстоит столкнуться не только с военными, но и с жуткими последствиями нацистских экспериментов.Производство: США, КанадаЖанр: Ужасы, фантастика, боевик, военныйРежиссер: Джулиус ЭйвериАктеры: Джован Адепо, Уайатт Рассел, Матильда Олливье, Йохан Филип Асбек, Джон Магаро, Йен де Кестекер, Джейкоб Андерсон, Доминик Эпплуайт, Джанни Тофер, Джо КуиннПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108814405B1C52ED5F5DDD2FEE3706459F73D2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022033   (728465) от 02.06.2016
-
-Arthur Beatrice - Keeping the Peace (2016) [AAC|256 Kbps]<Alternative Pop, Indie Pop, Indie Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Life
-02. Healing
-03. Who Returned
-04. All I Ask(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B466E5A8D860F80DE02CCCC3ADFFE733A9A6F943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128279   (728098) от 24.04.2017
-
-Ла-Ла Ленд / La La Land (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история любви старлетки, которая между прослушиваниями подает кофе состоявшимся кинозвездам, и фанатичного джазового музыканта, вынужденного подрабатывать в заштатных барах. Но пришедший к влюбленным успех начинает подтачивать их отношения.Производство: США, ГонконгЖанр: Мюзикл, драма, мелодрама, комедия, музыкаРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Эмма Стоун, Джон Ледженд, Дж.К. Симмонс, Розмари ДеУитт, Финн Уиттрок, Калли Эрнандес, Соноя Мидзуно, Джессика Рот, Том Эверетт СкоттПеревод: Дублированный (iTunes)Субтитры: Русские , Русские, АнглийскиеПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B99E18EFF1E6853ABA4159A3697403E962D223
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1136470   (674489) от 22.05.2017
+
+Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neva Left (5:07)
+02. Moment I Feared (feat. Rick Rock) (2:27)
+03. Bacc In Da Dayz (feat. Big Tray Deee) (3:49)
+04. Promise You This (2:51)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071218B731360372EBD2F62DB606AFF880C06EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030420   (674153) от 30.06.2016
 
 Kevin Gates - Islah (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
@@ -717,35 +746,6 @@ All Times. Rap Melodies  (2002) [MP3|320 кб/с]<HipHop/Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F81738EEBD842A142F201EE615CD6335C1D56528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596136   (173830) от 08.12.2022
-
-Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intrx.0000
-02. My Suicide
-03. The Walking Dead
-04. Lxuder(   Читать дальше...   )Жанр: Trap, Hardcore Hip-HopПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F9FCDD58DDC485AC25A26DD95FAE14C1714187
 ```
 
 https://mybot314.ru/tekegram_catalog/

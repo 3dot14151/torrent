@@ -1,3 +1,32 @@
+###  Публикация: 1571049   (438192) от 19.08.2022
+
+Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Heat Of The Night	5:20
+02. On The Tray (Seven Years)	3:45
+03. Little Girl	3:11
+04. You And I	6:44(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFB3AD000826BA8145134B30FAF8DE49FF37AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945008   (437897) от 08.10.2015
 
 Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
@@ -716,35 +745,6 @@ Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FEC1D7487AA50727313AD41BD4EA2CC7A026034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571643   (429749) от 23.08.2022
-
-Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R U Feeling Me	3:42
-02. Once In A Lifetime	3:52
-03. In A Hearbeat	3:37
-04. The Night Is Still Young	3:20(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458BD2D7DDF131FD71A3455621792659DC723F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

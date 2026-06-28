@@ -1,3 +1,136 @@
+###  Публикация: 1821660   (63855) от 03.10.2025
+
+Максим Лабонн, Артем Груздев | Графовые нейронные сети на Python (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Графовые нейронные сети стали одной из самых интересных архитектур в глубоком обучении. Технологические компании теперь пытаются применить их повсюду: в системах рекомендаций еды, видео и поиска романтических партнеров, для выявления фейковых новостей, проектирования микросхем и 3D-реконструкции.
+
+Прочитав книгу, вы научитесь создавать собственные графовые наборы (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Артем ГруздевИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D28857C05B49D09F651DD3D0E10E1FD0DE9A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705971   (63430) от 10.03.2024
+
+Jonathon Simpson | How JavaScript Works (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга начинается с практического введения в основы, а затем переходит к техническим основам JavaScript, подробно описывая все, что вам нужно знать, включая переменные, хранение памяти, функции, классы, типы, карты, множества и API. После того как вы полностью освоите эти ключевые темы, автор покажет вам, как применить их на практике, продемонстрировав, как они используются (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC8E1A06E649A6E0623565B5326F10A36670EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705976   (63328) от 11.03.2024
+
+Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начиная с обзора концепций наблюдаемости, эта книга научит вас инструментировать код и отслеживать системы на практике с помощью стандартных протоколов и библиотек Grafana. По мере продвижения вы создадите бесплатный облачный экземпляр Grafana и развернете демонстрационное приложение на кластере Kubernetes, чтобы углубиться в реализацию стека LGTM. Вы узнаете, как (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5BF64BD1A82E1196FFDD854C0C3A16D806143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705980   (63326) от 11.03.2024
+
+Noel Rappin | Modern CSS with Tailwind (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tailwind CSS — это новый интересный CSS-фреймворк, который позволяет создавать дизайн сайта, комбинируя простые классы для создания сложных эффектов. С помощью Tailwind вы можете стилизовать текст, перемещать элементы на странице, создавать сложные макеты страниц и адаптировать дизайн для устройств от телефона до широкоэкранного монитора. Из этой книги вы узнаете, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Pragmatic BookshelfФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5054ECA88F63F8E13A19449AF29C621C5250D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708761   (62174) от 22.03.2024
+
+Хабиб Изадха Рашид Бехзадидуст | Решение трудных и увлекательных задач на Python (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель данной книги – укрепить навыки логического рассуждения и развить творческое мышление, представив и решив 90 не самых простых задач на Python. Задачи изложены доходчиво и сжато, снабжены алгоритмами и комментариями, что помогает читателям следить за процессом их решения и понимать его суть.
+Издание предназначено читателям с базовыми знаниями языка Python, которые (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Н. КиселевИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D351406D8D76BDCFFFD13CB21CC46B98AC6BDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710481   (61685) от 27.03.2024
 
 Джейк Вандер Плас | Python для сложных задач. Наука о данных. 2-е издание (2024) [PDF]
@@ -557,139 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2620E2C04DE0CE157281A455C00DCB3649B62266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736935   (49968) от 15.07.2024
-
-Е. Ю. Хрусталева | «1С:Предприятие.Элемент». Возможности встроенного языка (2023) [PDF, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга адресована специалистам, разрабатывающим прикладные решения на платформе «1С:Предприятие 8». Она содержит сжатое описание особенностей нового языка разработки, который используется в технологии «1С:Предприятие.Элемент». Основная цель издания – помочь максимально быстро начать разработку на новом языке, овладев новыми возможностями, подходами и не упустив (   Читать дальше...   )Жанр: 1С:Предприятие, программирование 1С, продукты 1СИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737119   (49956) от 15.07.2024
-
-Nimish Sanghi | Deep Reinforcement Learning with Python: RLHF for Chatbots and Large Language Models. Second edition (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gain a theoretical understanding to the most popular libraries in deep reinforcement learning (deep RL). This new edition focuses on the latest advances in deep RL using a learn-by-coding approach, allowing readers to assimilate and replicate the latest research in this field.
-New agent environments ranging from games, and robotics to finance are explained to help (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Apress Media LLCФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737446   (49737) от 17.07.2024
-
-Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using SwiftUI, Swift 5.5 and Xcode 13 (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49737.jpg" />
-</div>
-
-
-###  Подробнее
-
-The goal of this book is to teach the skills necessary to build iOS 15 applications using SwiftUI, Xcode 13 and the Swift 5.5 programming language.
-Beginning with the basics, this book provides an outline of the steps necessary to set up an iOS development environment together with an introduction to the use of Swift Playgrounds to learn and experiment with Swift. (   Читать дальше...   )Жанр: Программирование, язык программирования Swift, программирование для AppleЯзык: АнглийскийИздательство: Payload MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738185   (49287) от 21.07.2024
-
-T. Edet | Database Fundamentals (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49287.jpg" />
-</div>
-
-
-###  Подробнее
-
-In "Database Fundamentals: Strategies for Efficient Access to Information and Enhanced Decision Making," you’ll explore the historical evolution of databases, understand their critical importance in decision-making, and gain an in-depth understanding of various database models including hierarchical, network, relational, and object-oriented models. The (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CompreQuest BooksФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738195   (49280) от 21.07.2024
-
-S.L. Nita, M.J. Mihailescu | Cryptography and Cryptanalysis in Java. Second edition (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cryptography and Cryptanalysis in Java: Creating and Programming Advanced Algorithms with Java SE 21 LTS and Jakarta EE 11.
-Here is your in-depth guide to cryptography and cryptanalysis in Java. This book includes challenging cryptographic solutions that are implemented in Java 21 and Jakarta EE 11. It provides a robust introduction to Java 21's new features and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2657BB6B0AED36C5A1D06E542405BD6E804A44DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

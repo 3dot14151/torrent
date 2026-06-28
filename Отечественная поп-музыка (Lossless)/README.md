@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1877018   (1074304) от 23.06.2026
+
+нексюша - Осторожно, постмодерн (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, indie>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074304.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Современное искусство 2:01
+2. Страшно и больно 2:46
+3. Лето18 2:57
+4. Первое свидание 2:12(   Читать дальше...   )Жанр: Pop, indieПродолжительность: 00:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7FF8B05739B783DC6CC254DF778B95EB2E67D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877024   (1074302) от 23.06.2026
+
+нексюша - Осторожно, постмодерн II (2026) [FLAC|Lossless|WEB-DL|tracks] <Indie pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074302.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Биография 2:18
+2. Общительная 2:51
+3. ОМСК 2:48
+4. П+П 1:27(   Читать дальше...   )Жанр: Indie popПродолжительность: 00:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB49E45774F2290B597D3328FD717AA1FA446D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869180   (1068448) от 08.05.2026
 
 VA - Музыка Победы (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -683,64 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D6A08DBF845082FF578FA6404B7A1921FC5727B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453077   (1027209) от 09.03.2021
-
-Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Али Ули (feat. S3RL) [02:58]
-02 - Анапа (feat. DK) [03:45]
-03 - Герда [02:49]
-04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453896   (1026597) от 13.03.2021
-
-Балаган Лимитед - Поговорки (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Обнимашки [00:03:30]
-02 - Чё те надо (Version 2019) [00:03:29]
-03 - На восходе [00:03:06]
-04 - Ветер унеси (Solo Version) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4B39DAF3C0799B9D10D9FB97B9D7CECFD4D0E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

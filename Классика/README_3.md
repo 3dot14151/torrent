@@ -1,3 +1,32 @@
+###  Публикация: 972320   (981803) от 06.01.2016
+
+Beck - Symphonies op.4 Nos.1-3 (Michael Schneider &La Stagione Frankfurt Orchestra) (2006) [FLAC|Lossless] <Classical, Orchestral, Symphonic, Classical Period, Opera, Symphony, Overture>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony in D major Op. 4/1 (Callen 19)
+01. Allegro maestoso (06:22)
+02. Andante (04:44)
+03. Minuetto I, II (03:08)(   Читать дальше...   )Жанр: Classical, Orchestral, Symphonic, Classical Period, Opera, Symphony, OvertureПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EC286BB709412D5261404E1F33550D0494026B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972033   (981719) от 06.01.2016
 
 Mozart - Requiem (Frans Bruggen & Orchestra of the Eighteen Century) (2009) [FLAC|Lossless] <Classical, Classical Period, Choral, Concerto, Requiem>
@@ -774,35 +803,6 @@ VA - Gluck: Orfeo ed Euridice - Orpheo - Highlights Of The Versions For Vienna (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAB867F2E4C2D3272555BA090150D30A4EB19AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977568   (965486) от 21.01.2016
-
-Glenn Gould - Bach - The Goldberg Variations (1955) 2015, Sony [FLAC 2.0|44/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goldberg Variations, BWV 988: Aria (1:52)
-02. Goldberg Variations, BWV 988: Variation 1 a 1 Clav. (0:45)
-03. Goldberg Variations, BWV 988: Variation 2 a 1 Clav. (0:38)
-04. Goldberg Variations, BWV 988: Variation 3 a 1 Clav. Canone all' Unisuono (0:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E05249F9E17BF005CEE9B8CC9F3F7C31769E70
 ```
 
 https://mybot314.ru/tekegram_catalog/

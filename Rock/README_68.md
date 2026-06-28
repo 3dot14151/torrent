@@ -1,3 +1,61 @@
+###  Публикация: 1580473   (330802) от 01.10.2022
+
+Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 2021, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Now
+02. 	Unbelievable
+03. 	You're So Beautiful
+04.	Everyday(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEA0780C209445396D56E9CFC404E372C40D1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956515   (330213) от 14.11.2015
+
+Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 кб/с]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стоп, мафия! feat. Сергей Михалок (02:46)
+02. Гооол! (03:59)
+03. Невеста (03:28)
+04. Молдавский хардкор (04:09)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF8FE3893658DFFE9225E0D0F5D40C4BA0B75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580741   (329984) от 02.10.2022
 
 Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -694,64 +752,6 @@ Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417747   (319321) от 04.11.2020
-
-Deep Purple - In Rock (1970) Self-made Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Speed King (04:23)
-02-Bloodsucker (04:16)
-03-Child In Time (10:22)
-04-Flight Of The Rat (07:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71329E3D8A89D7A6A4370B78A8A4A1677EA81266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959193   (319129) от 23.11.2015
-
-Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Back Home
-02. Wheels Ain`t Coming Down
-03. You`ll Never Walk Alone
-04. Moma Were All Crazy Now(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

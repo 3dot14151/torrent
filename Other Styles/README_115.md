@@ -1,3 +1,119 @@
+###  Публикация: 943914   (444762) от 05.10.2015
+
+Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulbound
+02. Reflections
+03. Awakening
+04. Mystic Forest(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7B9B9DA590FC76F2B83E23D5EC4AF516C8623B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322412   (444570) от 31.08.2019
+
+Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444570.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A New Beginning (4:06)
+2.When Morning Comes (3:04)
+3.Deep Waters (3:24)
+4.Sweet Surrender (3:00)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283902C9A962F62FF389241D0E5E313A0DF5FC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061944   (444452) от 12.10.2016
+
+Geoff Hall - Understanding the Signs (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Run [00:04:33]
+02. To Go Alone [00:03:44]
+03. Understanding the Signs [00:02:19]
+04. Toward a Perfect Moment [00:04:54](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3734AF58969444D149F3E7086DEDC3A71F1129E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164036   (443674) от 08.09.2017
+
+Ennio Morricone - Le Meilleur de Ennio Morricone (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Classical, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Califfa 02:37
+02. Cinema Paradiso : Toto et Alfredo 01:42
+03. Le Bon, la Brute et le Truand : L'Extase de l'Or 03:23
+04. Il etait une fois la Revolution 04:37(   Читать дальше...   )Жанр: Soundtrack, Classical, InstrumentalПродолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FB1B903845563C44BC96B931B4A48BB9B5ECF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409177   (442854) от 18.09.2020
 
 Sergey Eybog - Бесконечное Лето (Original Game Soundtrack) (2013) [MP3|320 Kbps] <Soundtrack, OST>
@@ -644,128 +760,6 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554754   (436250) от 01.10.2012
-
-Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sidewalk Cafe
-02. Amazonas
-03. Fantasia
-04. In Balance
-05. Time To Remember
-06. Dragon Fly
-07. Morning Breeze
-08. Merlin
-09. Anak
-10. Inspired(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410426   (436080) от 21.09.2020
-
-VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kurt Tepperwein - Dreaming Guitar (Long Version) (09:59)
-02. SanSouci - Silence (09:58)
-03. Antiphon - The Great Attractor (09:52)
-04. B-Less - Inner Journey (09:52)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 04:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B782E63589E489AA02C6C82583C31B3D63E9F424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943982   (435851) от 09.10.2015
-
-Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, Irish Folk Rock, Celtic Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vagabondtown
-02. Enisgo
-03. Red Back Sheep
-04. Moon on the Highway(   Читать дальше...   )Жанр: Alternative, Irish Folk Rock, Celtic RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E516B82FA41A5A1FF822563946B5AD15806C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944369   (435686) от 09.10.2015
-
-Armik - La Vida (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Nuevo Flamenco, New Age, Spanish Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Vida (4:42)
-02. Nueva Luz (4:20)
-03. Guitarra del Amor (4:32)
-04. Unforgettable (4:27)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco, New Age, Spanish GuitarПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F12B8FE323B475DD07C0E16AB0C926DB101470
 ```
 
 https://mybot314.ru/tekegram_catalog/

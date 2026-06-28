@@ -1,3 +1,230 @@
+###  Публикация: 540103   (504390) от 28.08.2012
+
+VA - Лучшие Рок - Дуэты (vol.2) (2012) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Power Metal, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doro Feat. Onkel Tom Angelripper - Merry Metal Xmas
+ 02. Slash - Crucify The Dead (feat. Ozzy Osbourne)
+ 03. Serj Tankian - Goodbye - Gate 21 - Featuring The FCC And Tom Morello
+ 04. Scorpions feat. Amandine Bourgeois - Still Loving You - Je t'aime encore
+ 05. Doro& Krypteria - Victoria
+ 06. Gamma Ray (feat. Michael Kiske and Hansi Kürsch) - Land Of The Free
+ 07. Linkin Park - Enjoy The Silence (Feat. Depeche Mode)
+ 08. Lordi (feat. Udo Dirkschneider) - They Only Come Out At Night
+ 09. U.D.O.&Ария - Штиль
+ 10. Halford (feat. Bruce Dickinson) - The One You Love To HateЖанр: Hard Rock, Heavy Metal, Power Metal, InstrumentalПродолжительность: 03:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1796776FBB038403CE262B251AE394A2CDA66AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540094   (504387) от 28.08.2012
+
+VA - Русский рок - Баллады (vol. 2) (2012) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ''Михей и Джуманджи'' и С. Галанин - Мы дети большого города
+ 02. Сергей Маврин - Утоли мои печали
+ 03. Гран-КуражЪ - Дождь
+ 04. F.P.G. - Легенда
+ 05. Ольви - Осенняя песня
+ 06. Deform - Торжество жертвы
+ 07. Артефакт - Сердце ночи
+ 08. ЛегЕндА - Забудь про свет
+ 09. Маленькие Трагедии - Эммануэль
+ 10. Райский Ад - СтеныЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC92BB977E03599E62C0205F097DC7DD2CCFA6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540085   (504279) от 28.08.2012
+
+VA - Лучшие Русские Рок - Дуэты (2012) [MP3|295-320 кб/с]<Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Евгения Рыбакова - Ты Для Меня (feat. Кукрыниксы)
+ 02. Би-2 - Блюз (Feat Настя Полева)
+ 03. Борис Гребенщиков И Александр Васильев - Песня Звездочетa
+ 04. Кипелов & Серьга - Чужой
+ 05. СЛОТ и Артур Беркут - Улица Роз
+ 06. Смысловые галлюцинации & Чичерина - Этот мир
+ 07. БИ-2 feat. Чичерина, feat. Симфонический оркестр МВД России - Падает снег (Новый год)
+ 08. Серьга и Константин Кинчев - Любовь
+ 09. Кукрыниксы и Хелависа - Падение
+ 10. Алиса & Агата Кристи, Аквариум, Алиса, Борзыкин, Бутусов, ДДТ, КиШ, Крематорий,(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EB8043B3D28863472823BB8A5A41EC5DFB3CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316754   (504228) от 28.07.2019
+
+VA - The Official UK Top 40 Singles Chart 26.07.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Shawn Mendes & Camila Cabello - Senorita (3:11)
+2. Ed Sheeran feat. Khalid - Beautiful People (3:17)
+3.Ed Sheeran;Justin Bieber - I Don't Care (3:39)
+4.Ed Sheeran, PnB Rock, Chance the Rapper - Cross Me (3:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734EDC7DD48DB8F53F759A709CC6841EDFB2B05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316825   (504053) от 28.07.2019
+
+VA - Top 100 Drum & Bass Vol.2 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Soulful D&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504053.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raybee Feat. Maya - Money Back (Original Mix)
+002. Enei Feat. Anastasia - Limits  (Original Mix)
+003. Mizo - Mechanical Paw (Original Mix)
+004. Onebyone Feat. Dj Satellite & Karina - Za Mechtoi (Original Mix)(   Читать дальше...   )Жанр: Liquid Funk, Drumfunk, Soulful D&BПродолжительность: 07:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422BCECC51119F942DBD0CB157D5D48DA325FDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317074   (503026) от 29.07.2019
+
+VA - Radio DFM Top D-Chart Июль 2019 [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sevenn - Loco Papi (2:58)
+2.Ed Sheeran, Justin Bieber - I Don't Care (3:39)
+3.MARUV, Mosimann - Mon amour (3:05)
+4.New World Sound - Love From Coco (4:04)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66264B022ABE218F5264DFF6B2E519ED92CE30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540387   (502779) от 30.08.2012
+
+VA - Русский Avto Club Vol.3 (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tarantino & Катрин Моро - Я Буду Помнить
+ 02. Каста (Влади) - Сочиняй Мечты (DJ Kopernik remix)
+ 03. Чи-Ли - Облака (DJ Serzhikwen Club Mix)
+ 04. Batishta & Shaplin feat. Ульяна Глушкова - Когда Наступит Ночь (Sandrique Remix)
+ 05. Sound Hackers feat. Дмитрий Колдун - Почувствуй Меня (Dj Kirill Clash)
+ 06. DJ Smash - Young Hearts (Original Mix)
+ 07. Элла feat. DJ Michelangelo - Где Ты
+ 08. DJ Renat feat. Cotry - Aye Aye Aye (Anton Liss Remix)
+ 09. Наталия Гулкина - Delete (ABS-digital remix)
+ 10. Ruslan Nigmatullin vs. Taco - Puttin' on the Ritz (Radio Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BE07CFD4DBC2F0C307D506679F0202670D3869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540395   (502733) от 30.08.2012
 
 VA - Progressive Rock и его романтика (2012) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
@@ -622,248 +849,6 @@ VA - Всё сразу 200 хитов Выпуск 7 50/50 (from Valik) (2015) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CBFF868C313F8A09D77772902C145C5E0C7CFE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317530   (500175) от 01.08.2019
-
-VA - Новинки с разных популярных MP3 сайтов. Ver.86 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rus:
-1.Anivar - Без Тебя (2:38)
-2.Artik & Asti - Забудешь (Dj Loyza Remix) (3:38)
-3.Doni feat. Batrai & Timran - Манила (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCE06DA8283BF7CF5810925DEBAC038C22E0560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541936   (500077) от 01.09.2012
-
-VA - Музыка для потрясающего вечера (2012) [MP3|80-320 кб/с]<Relaxation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB – Enigmatic Encounter (Feat. Enigma)
-02. Toni simonen - parasailing
-03. Dab - waiting 4 you
-04. Bright sun spirit - white sand
-05. Motif - give it away
-06. Coastline - mediterranen
-07. Lunatic soul - time to remember
-08. Wasaby ink - all my love
-09. Steve xavier - one world
-10. Toni simonen - endless sea(   Читать дальше...   )Жанр: RelaxationПродолжительность: 02:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9F89E09EDA2645FDAA459ED1C5E14FB5AC62FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541544   (499617) от 02.09.2012
-
-VA - Территория Русских Новинок (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ring Girls - Танцуй Для Меня
-002. Couple - Дым
-003. Весна - Море дышит
-004. Ирина Билык - Моя любовь, как ягода
-005. Дима Билан - Так Не Бывает
-006. Алёна Свиридова - Се Ля Ви
-007. Ваня Чебанов - Найду!
-008. Карина Кокс - Все решено
-009. Aslan Feat. Misty - Знаю, Знаю
-010. Dan Balan - До Утра (Andry Makarov Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2326AEE87B8C79FA0391A919BC007F79D603035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542287   (499613) от 02.09.2012
-
-VA - 538 Dance Smash Vol.4 (2012) [MP3|320 кб/с]<Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack - Rock The House
- 02. Usher - Scream
- 03. Otto Knows - Million Voices
- 04. Alex Kenji & Ron Carroll - Good Time (A-Lab Radio Edit)
- 05. Sander van Doorn & Mayaeni - Nothing Inside
- 06. Cash Cash - Michael Jackson (The Beat Goes On)
- 07. Asaf Avidan - One Day / Reckoning Song (Wankelmut Remix)
- 08. Mark Knight - Alright
- 09. Nicki Minaj - Starships
- 10. Basto - I Rave You (Give It To Me)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5401D9B8981F43B98B4DAE67140D700E0E0203F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542013   (499417) от 02.09.2012
-
-VA - NRJ Hits 2012 Volume 2 (2CD) (2012) [MP3|~240~288 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 01:18:42
-01. Shy'm - Et Alors!
-02. Alex Ferrari - Bara Bara Bere Bere
-03. Katy Perry - Wide Awake
-04. Chris Brown - Don't Wake Me Up
-05. Carly Rae Jepsen - Call Me Maybe
-06. Maroon 5 (Feat Wiz Khalifa) - Payphone
-07. Flo Rida - Whistle
-08. Khaled - C Est La Vie
-09. Shakira - Addicted To You(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:19:54
-01. Keen'v - Ma Vie Au Soleil
-02. Birdy - Skinny Love
-03. Sexion D'assaut - Wati House
-04. Jose De Rico - Rayos De Sol (Feat. Henry Mendez (Original Mix)
-05. Gotye - Somebody That I Used To Know (Feat. Kimbra)
-06. R.I.O. - Party Shaker (Feat. Nicco (Video Edit)
-07. Gusttavo Lima - Balada
-08. Rihanna - Where Have You Been
-09. Dry Feat. Maitre Gim S - Ma Melodie(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360079F5434FE30CD5EE89CCDE297F48ECA23B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542578   (499284) от 02.09.2012
-
-VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New Age, Meditative, Ambient, Classical, Folklore>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ForeverLive - Тучное небо
-02. Fiona Joy Hawkins - Contemplating
-03. Yiruma  - I'm Just A...
-04. Pure Meditation - Sandstream
-05. Polarkreis 18 - Untitled picture
-06. Thierry David - Forgive Me
-07. Роман Коляда - Trinity
-08. ForeverLive - Дорога вверх
-09. Ніна Матвієнко - Чарівна скрипка
-10. Fiona Joy Hawkins - Cobalt Interlude(   Читать дальше...   )Жанр: Piano, New Age, Meditative, Ambient, Classical, FolkloreПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F5257872A7CDE20959CC3DFFEB700991A0682D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317874   (498615) от 03.08.2019
-
-VA - The Official UK Top 40 Singles Chart 02.08.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Señorita
-02. Ed Sheeran - Beautiful People (feat. Khalid)
-03. Ed Sheeran & Justin Bieber - I Don't Care
-04. AJ Tracey - Ladbroke Grove(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 2:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3695A061306E2E1D1BFC750A15FABF779C0BA5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

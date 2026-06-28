@@ -1,4 +1,202 @@
 https://t.me/izofen
+###  Публикация: 1878510   (1074659) от 
+
+VA - 150 Top Ten Country Hits (1981) 8 x LP, Box Set, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Record 1
+A1 Hank Williams - Lovesick Blues
+A2 George Morgan - Candy Kisses
+A3 The Louvin Brothers - I Don't Believe You've Met My Baby(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 07:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A05FDA3D1C9A02A6A658D267EF3F87D94DB71A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878298   (1074533) от 
+
+Tigersclaw - Studio Albums (3 releases) (2017-2022) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tigersclaw - немецко-русский проект, созданный в 2016 году немецким мультиинструменталистом Александром Байером. Россию в проекте представляет вокалистка Елена Минина.2017 - Princess of the Dark
+2019 - Force Of Destiny
+2022 - Titan's DawnЖанр: Symphonic Power MetalПродолжительность: 03:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FEB97573F1BC386768493C6F8358BA7B414CF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877905   (1074249) от 23.06.2026
+
+Tracedawn - Studio Albums (4 releases) (2008-2012) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracedawn - финская метал-группа, созданная в 2005 году.2008 - Tracedawn
+2009 - Ego Anthem
+2012 - Lizard Dusk
+2012 - Arabian Nights (EP)Жанр: Melodic Death MetalПродолжительность: 02:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC830E77832ACD637AD0BB61227B50FCA7ECE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877749   (1074143) от 22.06.2026
+
+Abarax - Studio Albums (2 releases) (2005-2021) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abarax - сайд-проект участников группы Taste Of Timeless. Идея проекта заключалась в том, чтобы играть музыку в стиле Pink Floyd.2005 - Crying Of The Whales
+2010 - Blue RoomЖанр: Symphonic Progressive RockПродолжительность: 02:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE92B4D2A8315368745AFAC9584DB5903526F41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1877180   (1073780) от 
+
+7th Abyss - Studio Albums (2 releases) (2016-2020) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073780.jpg" />
+</div>
+
+
+###  Подробнее
+
+7th Abyss - немецкая метал-группа из Вюрцбурга, Бавария, основана в 2013 году.2016 - Unvoiced
+2020 - Chains of BetrayalЖанр: Melodic Death Metal, MetalcoreПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E312DD853777EAEE014183682D5BA246A569854B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876887   (1073702) от 18.06.2026
+
+Ancient Bards - Studio Albums (5 releases) (2010-2025) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient Bards — итальянская метал-группа, созданная в январе 2006 года2010 - The Alliance Of The Kings
+2011 - Soulles Child
+2014 - A New Dawn Ending
+2019 - Origine(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 05:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE1A7502A4828A98C1ACA0CE795E38E5BA9CA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876909   (1073701) от 18.06.2026
+
+Cyril Stapleton & His Orchestra - In A Romantic Mood (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Light Music>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Handmade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073701.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rosy's Theme from ''Ryan's Daughter''
+A2 Eye Level
+A3 Love Theme from 'The Godfather
+A4 The Poor People Of Paris(   Читать дальше...   )Жанр: Pop, Light MusicПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87DA44D380D09A9EEF1CA0CEA6A9C3E8555A777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1876690   (1073566) от 17.06.2026
 
 VA - Golden Guitar Magic (1969) 5 x LP, Box Set, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Classical, Easy Listening, Folk, Country>
@@ -540,207 +738,6 @@ The Fixx - React (1987) [FLAC 24/96|Lossless|Vinyl-Rip|image + .cue] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9439045B08466425FBB6D503799F8E8595D948F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873906   (1071456) от 30.05.2026
-
-The Fixx - Reach The Beach (1983) Vinyl-Rip [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Electronic, Rock, Pop, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071456.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Thing Leads To Another (3:18)
-2. The Sign Of Fire (3:51)
-3. Running (4:26)
-4. Saved By Zero (3:41)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, New WaveПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40086E2AFECB622F04086DDFD9837CF4108CF52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873676   (1071436) от 29.05.2026
-
-Astralborne - Studio Albums (2 releases) (2020-2023) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astralborne - американская дэт-метал группа, основана в 2018 году в г. Толедо, штат Огайо.2020 - Eternity's End
-2023 - Across the AeonsЖанр: Melodic Death MetalПродолжительность: 01:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0222821BD53CC5CB1AA867F2A2602515C0FD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873456   (1070996) от 28.05.2026
-
-Corrosion Of Conformity - Studio Albums (11 releases) (1984-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Sludge/Southern Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corrosion of Conformity (или C.O.C.) — американская метал-группа из Роли, Северная Каролина, образованная в 1982 году.1984/1985 - Eye For An Eye Plus Six Songs With Mike Singing
-1985 - Animosity
-1991 - Blind
-1994 - DeliveranceЖанр: Crossover/Sludge/Southern MetalПродолжительность: 10:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D993523E017ABF69F667CC124B6530AF48AE24D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872954   (1070703) от 25.05.2026
-
-Shade Empire - Studio Albums (6 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Industrial Death/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shade Empire - метал-группа из города Куопио, Финляндия, образованная в 1999 году.2004 - Sinthetic
-2006 - Intoxicate O.S
-2008 - Zero Nexus
-2013 - Omega ArcaneЖанр: Symphonic Industrial Death/Black MetalПродолжительность: 04:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94761310308E783CF619B955075BA197139D3BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873091   (1070597) от 26.05.2026
-
-Becoming the Archetype - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Death Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Becoming the Archetype — американская метал-группа, основана в Атланте, штат Джорджия, в 1999 году.2005 - Terminate Damnation
-2007 - The Physics Of Fire
-2008 - Dichotomy
-2011 - Celestial CompletionЖанр: Progressive/Melodic Death Metal/MetalcoreПродолжительность: 05:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5CC025123BA8B7303069589A2A1CD76F286C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872378   (1070467) от 22.05.2026
-
-Shadows Fall - Studio Albums (8 releases) (1997-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadows Fall — американская метал-группа из Спрингфилда, образованная в 1995 году.1997 - Somber Eyes To The Sky
-2000 - Of One Blood
-2002  - The Art of Balance
-2004 - The War WithinЖанр: Melodic Death Metal, MetalcoreПродолжительность: 06:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61FB7CA675DFC3F668FFE7EBC7F8F809FDB069C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872592   (1070284) от 23.05.2026
-
-VA - Country Harmony. 16 Star Couplings (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070284.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tanya Tucker And Glen Campbell - Dream Lover
-A2 The Wilburn Brothers - Distant Drums
-A3 George Jones And Tammy Wynette - When I Stop Dreaming
-A4 Moe Bandy And Joe Stampley - Honky Tonk Man(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD18D4D2A7DE0A56A0B8C7DAC7E635B9CCE4549
 ```
 
 https://mybot314.ru/tekegram_catalog/

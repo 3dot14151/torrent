@@ -1,23 +1,22 @@
-###  Публикация: 1390318   (783036) от 15.06.2020
+###  Публикация: 1390045   (783664) от 13.06.2020
 
-CherryPlayer 3.0.8 + Portable [Multi/Ru]
+Registry Life 5.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CherryPlayer - уникальный проигрыватель аудио -, видеофайлов всех популярных форматов с возможностью прослушивания и просмотра контента прямо из Интернета. Особенно удобен этот проигрыватель для таких ресурсов как ВКонтакте , Last.fm, YouTube, BBC, BillBoard, т.к. тесно интегрирован с ними и их огромными архивами.
-Кроме того, это приложение поможет загрузить понравившийся (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Registry Life - программа от разработчика Reg Organizer, служит для обслуживания реестра для повышения быстродействия и надёжности работы в среде Microsoft Windows. Производит анализ целевой системы на выявление с дальнейшим исправлением ошибок в системном реестре.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C6F6E2E98E2492929DF3DDECFDC3BE9A5D82511
+magnet:?xt=urn:btih:56B173F345823C586ED47F3A0F135C0A100B7531
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390500   (783031) от 15.06.2020
+###  Публикация: 1390028   (783657) от 13.06.2020
 
-Glary Disk Explorer 5.27.1.64 [Multi/Ru]
+Athentech Perfectly Clear WorkBench 3.10.0.1797 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Glary Disk Explorer - небольшая утилита, которая наглядно покажет, чем же забиты Ваши жесткие и съемные диски. Программа сканирует выбранный диск (или все сразу) и предоставляет общую информацию о свободном и занятом пространстве.
-Кроме того, этот инструмент может на графической круговой диаграмме отобразить распределение данных на диске в процентном соотношении, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12B38993D386BC5CF35C483EB33BD4E161584FCC
+magnet:?xt=urn:btih:22C708926C0DF17C7A01A9C07A7168F109061DC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,26 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390346   (783029) от 15.06.2020
+###  Публикация: 1389997   (783645) от 13.06.2020
 
-TinyWall 3.0.5 [Multi/Ru]
+Skype 8.61.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TinyWall – легкий, удобный в использовании, безопасный и бесплатный фаервол для Windows. Программа позволяет контролировать и защищать весь сетевой трафик на вашем компьютере.
-После установки программа автоматически блокирует все исходящие соединения, кроме нескольких доверенных программ, например IE, Firefox. Если вы хотите выйти в Интернет с помощью приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Skype — программа от Microsoft, с помощью которой вы можете бесплатно звонить во все уголки мира. Skype создан авторами KaZaA. Сеть Skype базируется на прогрессивной P2P (peer-to-peer) технологии. Качество передачи голоса очень хорошее. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:801B58B2190D4B5A0DEA3D3B0078F004FBEC71BA
+magnet:?xt=urn:btih:D5550C0A632CEC2A5DE65625EF77F0B288BB530E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390502   (783024) от 15.06.2020
+###  Публикация: 1390048   (783644) от 13.06.2020
 
-Revo Uninstaller Pro 4.3.3 RePack (& Portable) by TryRooM [Multi/Ru]
+CrystalDiskInfo 8.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B030CA5FA35275B47606662344F00CB5D9682DE1
+magnet:?xt=urn:btih:F125D8EC7602908F772C4F08A576FA2A7D142541
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +103,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390419   (783022) от 15.06.2020
+###  Публикация: 1390029   (783643) от 13.06.2020
 
-TweakPower 1.100 + Portable [Multi/Ru]
+Athentech Perfectly Clear Complete 3.10.0.1797 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Приложение Athentech Perfectly Clear Complete может работать отдельно или как плагин для Photoshop и Lightroom. Позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24657762F447DF698CCD879C15D8DA31D902830B
+magnet:?xt=urn:btih:F409B8709BA02E3130EF84AEA32CC6FDFD35F71D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390317   (783020) от 15.06.2020
+###  Публикация: 1389993   (783630) от 13.06.2020
 
-XnView Classic 2.49.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
+Topaz Gigapixel AI 4.9.4.1 RePack (& Portable) by TryRooM [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XnView - утилита, предназначенная для просмотра и конвертирования графических файлов. Программа поддерживает работу с огромным числом форматов (как импорт, так и экспорт), способна создавать анимированные изображений, работает с мета-данными, предоставляет возможности для редактирования IPTC. Также XnView (кроме стандартных опций изменения размера, поворота и обрезания (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:481BED49838D9B1A3B06F044348E0D2169053748
+magnet:?xt=urn:btih:69D8CE5C3FE1C3DF097AF330AE1D2BFA9CB3DD71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390329   (783018) от 15.06.2020
+###  Публикация: 1390113   (783629) от 13.06.2020
 
-Adobe Bridge 2020 10.1.0.163 RePack by KpoJIuK [Multi/Ru]
+SamDrivers 20.5 LAN [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783629.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.20.0 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7982543F1D60E7B7435FABF407DEE9D0A876B69C
+magnet:?xt=urn:btih:7B4EDBECF4E6C8679267A190BA2D3FB0DB502D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +182,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205995   (782977) от 12.02.2018
+###  Публикация: 1389940   (783617) от 13.06.2020
 
-VA - 2003 Hands (2003) Hands Productions [FLAC|Lossless|tracks+.cue] <Noise, Experimental, Industrial>
+Xilinx Vitis Unified Software Platform 2020.1 [En] (unpacked)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Унифицированная программная платформа Vitis позволяет разрабатывать встроенное программное обеспечение и ускоренные приложения на разнородных платформах Xilinx, включая FPGA, SoC и Versal ACAP. Он предоставляет унифицированную модель программирования для ускорения приложений Edge, Cloud и Hybrid.
+Используйте интеграцию с высокоуровневыми фреймворками, разрабатывайте (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C227973E5F91D014A4FA957044DC7ECEFB3A8E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390091   (783603) от 13.06.2020
+
+Andrei Neagoie | Complete Python Developer in 2020: Zero to Mastery (2020) WEB-DL [H.264/720p-LQ] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс обучения програмиррования на Пайтон. С онлайн академии Udemy.
+Для тех кто хочет обучится програмированнию на Пайтон и "Войти в ИТ".Жанр: Программирование, PythonЯзык озвучки: АнглийскийПродолжительность: 30:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D566882A620B903B29B4A31E378602948073EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389838   (783582) от 13.06.2020
+
+Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra (12.06.2020) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783582.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager — бесплатная системная утилита, которая позволяет контролировать всё, что запущено на компьютере, а также предоставляет удобные инструменты для настройки компьютера. AnVir Task Manager позволяет управлять автозагрузкой, запущенными процессами, сервисами и драйверами и заменяет Диспетчера Задач, помогает обнаружению и удалению вирусов и spyware, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1FB34701B7A477CCED6C54BEEC0D7FD786E508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205394   (783552) от 10.02.2018
+
+Silent Strangers - Anagram 4: Lume (2017) Selection 27 & IDMf [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Abstract, Glitch>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ah Cama-Sotz – Quatrâlh (04:29)
-02. Ah Cama-Sotz – Ôm-Rach (01:53)
-03. Ah Cama-Sotz – Zmeü-Kh (Part II) (08:44)
-04. Synth-Etik – N_Loop (04:08)(   Читать дальше...   )Тип издания: CDЖанр: Noise, Experimental, Industrial •Продолжительность: 01:15:25
+01. Torture (03:03)
+02. Frntc (03:52)
+03. 6616 (05:46)
+04. Black Leaf (05:51)(   Читать дальше...   )Жанр: IDM, Experimental, Abstract, GlitchПродолжительность: 00:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:301922C6A2C966E876CED8A2070A82078EED20F8
+magnet:?xt=urn:btih:6EE0BC47228D8A8FFBF939B807F30ACE4F6AB525
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,28 +291,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206107   (782958) от 12.02.2018
+###  Публикация: 1205401   (783550) от 10.02.2018
 
-Dalot & Sound Awakener - Little Things (2018) Fluid Audio [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+VA - EE Compilation (2012) Electronic Explorations [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Techno, Dubstep, Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Strangers In The City (04:01)
-02. All That Fall (05:57)
-03. Inside (03:11)
-04. Everyday Happiness (03:35)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:50:13
+Тип издания: WEB |Жанр: IDM, Experimental, Techno, Dubstep, Bass |Продолжительность: 05:46:38 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12EF31C325DB52A4C1485F3BC4A0648D2021BAAF
+magnet:?xt=urn:btih:D13D57BAE9815E0668ACB605F5EDF8F0CD60A3E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206028   (782953) от 12.02.2018
+###  Публикация: 1205385   (783544) от 10.02.2018
 
-Egoprisme - Among Noise (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Darkwave>
+Phylum Sinter - Colony Collapse Reorder (2014) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  En Secret  3:07
-02.  Etendard  3:12
-03.  Le Vertige  3:08
-04.  Call Of Duty  3:04(   Читать дальше...   )Жанр: Synthpop, Synthwave, DarkwaveПродолжительность: 00:52:29
+01. Back 2,1 (04:32)
+ 02. Das Bootie (04:34)
+ 03. Everybody Made Me (04:54)
+ 04. calmasicanbe (02:26)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, ExperimentalПродолжительность: 01:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81D6694DB30CF22B2196D775A078CA25A2579FD3
+magnet:?xt=urn:btih:15950E74FE11E944FBD2A3AE5339D39617DA975A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,54 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206018   (782943) от 12.02.2018
+###  Публикация: 1205379   (783529) от 10.02.2018
 
-Geek Uninstaller 1.4.5 Build 124 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geek Uninstaller - удобный, маленький и надежный, не требующий установки деинсталлятор, разработанный, чтобы помочь пользователям произвести деинсталляцию программ, установленных в системе. В отличие от других деинсталляторов, программа осуществляет глубинные процессы сканирования и очищает ваш ПК от того, что осталось после удаления.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC07BC815D5BF8F555842C64C385E0BA9CFBD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206001   (782941) от 12.02.2018
-
-VA - Danish Electro Vol.01 (2018) [MP3|320 Kbps] <Synth-pop, Synthwave>
+Gold Panda - Good Luck and Do Your Best (2016) City Slang [FLAC|Lossless|tracks+.cue] <IDM, Leftfield>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fake The Envy  -  These Are The Fools (2016 Edit)  4:47
-02.  Deroute  -  Hvor Fanden Bliver Det Af  4:35
-03.  Portland  -  Without Me There Is No You  3:24
-04.  Softwave  -  Everything Change (ManMindMachine Cover)  4:52(   Читать дальше...   )Жанр: Synth-pop, SynthwaveПродолжительность: 01:11:09
+01. Metal Bird (03:42)
+02. In My Car (04:28)
+03. Chiba Nights (04:02)
+04. Pink And Green (04:14)(   Читать дальше...   )Жанр: IDM, LeftfieldПродолжительность: 00:44:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A50BB1944B406D41F806443FBE9494D0177A343C
+magnet:?xt=urn:btih:CEAE00A5183220033D1C680829513677E82EABE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205930   (782930) от 12.02.2018
+###  Публикация: 1205438   (783528) от 10.02.2018
 
-VA - Ladies Fitness Time Team Coaching (2018) [MP3|320 Kbps] <Minimal, Tech House>
+Numina - The Chroma Plateau (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Karasto - Android
-02. Kacper Kirtz - Polar
-03. Georg Miller - Coma
-04. Ben Billson - Inno(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:17:01
+01. Beaming Up The Fossils (06:32)
+ 02. Bringer Of The Beings (09:14)
+ 03. Intergalactic Traveller (05:25)
+ 04. Where All The Creatures Are Dreaming (08:44)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2CDA6A083173634C40A04FF455D5D6E5C399F2A
+magnet:?xt=urn:btih:7CB7AB05F37D70A71E96AFCC365B43C63A737C69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,27 +404,198 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206029   (782925) от 12.02.2018
+###  Публикация: 1205515   (783509) от 10.02.2018
 
-Aiseesoft Screen Recorder 1.1.30 RePack (& Portable) by ZVSRus [Ru/En]
+Junksista - Promiscuous Tendencies (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash, EBM>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft Screen Recorder - это программа, с помощью которой можно записывать определенную область на экране компьютера. Вы можете использовать приложение для записи онлайн фильмов, видео из игр до HD/4K качества, радио, делать видеоинструкции, записывать видео с вебкамер.
+01.  Monday (Feat. Essence Of Mind) (3:54)
+02.  Control (3:49)
+03.  Fuck For Love (3:18)
+04.  Monster (Feat. LayZee-Formerly Of Mr. President) (4:12)(   Читать дальше...   )Жанр: Synthpop, Electroclash, EBMПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B76D0634A701DC05984742F524F703980B9690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205536   (783505) от 10.02.2018
+
+Future Lied To Us - Presence (2018) [MP3|320 Kbps] <Synthpop, Futurepop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Born In Silence  5:53
+02.  Intentions And Masks  4:49
+03.  Drops Of Silver  5:12
+04.  Fed By Anger  3:36(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BFE51A3661BF507294BA4324FA98C4B72760D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205473   (783500) от 10.02.2018
+
+Homemade Weapons & Red Army - Sleep Terror EP (2016) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Terror (05:53)
+ 02. Cavity (06:11)
+ 03. Buzzkill (06:06)
+ 04. Colony (06:14)Жанр: Drum n BassПродолжительность: 00:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E987C41090A7EDD1ED2B2A3A5A55EE66488491A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205085   (783497) от 10.02.2018
+
+Son Lux - Brighter Wounds (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forty Screams (04:02)
+02. Dream State (05:02)
+03. Labor (04:08)
+04. The Fool You Need (04:25)(   Читать дальше...   )Жанр: Indie Rock, ExperimentalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C58F22591EF4A6D569ED0D71439E43705E03F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205563   (783494) от 10.02.2018
+
+Robert Rich - The Biode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recalcitrant Malfeasance (03:14)
+02. Particles (04:35)
+03. Protista Mephista (08:21)
+04. Elevate the Hive Mind (07:29)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBD8710A095CC701EADD042D1DB1B783B52DBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205486   (783490) от 10.02.2018
+
+4K YouTube to MP3 3.3.3.1777 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783490.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 был создан специально для скачивания аудио с YouTube, VEVO, Soundсloud и Facebook в MP3, M4A, OGG. Вставляйте ссылки на ваши любимые песни в приложение и сохраняйте их в формате MP3 на ваш компьютер. Прямое скачивание на iPod, iPhone и iPad позволит наслаждаться музыкой, где бы вы не находились. Никаких сложных настроек, только простой в обращении (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D7DAE1860E93EABA163A5349244EB9CEDC712F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205626   (783489) от 10.02.2018
+
+ExpanDrive 6.1.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
 
-Помимо видео, Aiseesoft Screen Recorder также может записывать аудио на вашем компьютере, (   Читать дальше...   )Язык интерфейса: Русский | Английский
+Эта программа позволяет монтировать удалённые хранилища информации (FTP, WebDAV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89B0DF0FB2A7DA4911D0CCCE3D9324DFB3875541
+magnet:?xt=urn:btih:799EA64D6FDD8CA9324EA03D65F7C2C17C4CEAE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,312 +603,108 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206049   (782924) от 12.02.2018
+###  Публикация: 1205203   (783481) от 10.02.2018
 
-iMazing 2.5.4 (8416) [Multi/Ru]
+Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue] <Breaks, Breakbeat, Big Beat>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take California (07:21)
+02. Velvet Pants (05:47)
+03. Better? (02:03)
+04. 360° (Oh Yeah?) (feat. De La Soul) (04:28)(   Читать дальше...   )Жанр: Breaks, Breakbeat, Big BeatПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D664BC6A49A50FC0D6A898BAD42647ADDA683B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205464   (783480) от 10.02.2018
+
+Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02420FBEAB357A58795B2802A3532E38D28716AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205605   (783477) от 10.02.2018
+
+Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft 4K Converter – универсальный видео конвертер формата 4K. Специально создан для преобразования 4K видео высокого разрешения с передовыми кодировками, в том числе HEVC / H.265, VP8, vp9, H.264, MPEG и XviD. Лучший выбор для обработки видео в формате 4K с разрешением 1080p или 1080p 4К, который также служит для работы со стандартными форматами видео и HD.Язык интерфейса: Русский (от Kopejkin.) | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F28EB9FD1C642DCB90827CF384711D9A5259E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205482   (783473) от 10.02.2018
+
+4K Video Downloader 4.4.4.2275 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении. Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте ссылку из браузера и нажмите "Вставить ссылку" в приложении!
+
+Скачивайте целые YouTube-плейлисты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 090.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC5AE51A836D839800EADF4A47436DDE333B1105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205966   (782902) от 12.02.2018
-
-Norton AntiVirus 22.12.0.104 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton AntiVirus - быстрый антивирус, использующий запатентованную многоуровневую защиту, которая позволяет надежно защищать от вредоносных программ и онлайн-угроз. Антивирус поможет вам сохранить в безопасности компьютер и важные данные даже от скрытых угроз. Работа защиты в фоновом режиме предотвращает кражу личных данных, блокирует мошеннические веб-сайты и информирует (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A358214B2E03F10A8CBBC21EE7942F5E8C2273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205920   (782899) от 12.02.2018
-
-Daum PotPlayer 1.7.8557 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92120EFD4881EF9AF8A3EADBDBEEEC5A18E57AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205967   (782894) от 12.02.2018
-
-Norton 360 22.12.0.104 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton 360 - комплексное решение "все-в-одном". Эффективная и быстрая защита от вредоносных программ с помощью мощного антивируса и проактивной технологии SONAR 4. Надежная защита от сетевых угроз и атак хакеров с двусторонним фаерволом и контролем программ, веб-защита от всех видов Интернет-угроз: фишинга, онлайн-мошенничества, вредоносных загрузок, кражи (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2AFBEA3F6561E3BC1D23A2A56CBEAEEC3C544E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205996   (782893) от 12.02.2018
-
-DP Animation Maker 3.4.1 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782893.jpg" />
-</div>
-
-
-###  Подробнее
-
-DP Animation Maker - мощное, простое в использовании программное обеспечение для анимации, которое позволяет создавать анимированные фоны, анимированные gif для сайтов и другого контента за считанные минуты.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83A06C154F52FDA4DD866DA5EAD938CC7DCD5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206108   (782887) от 12.02.2018
-
-Icecream PDF Converter PRO 2.75 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream PDF Converter - это программа, позволяющая конвертировать как в PDF формат, так и из PDF. При преобразовании DOC, HTML, JPG и др. файлов в PDF формат конвертер может склеивать исходные файлы в один PDF документ, а также предлагает множество настроек выходного файла. Вы можете преобразовать PDF в JPG, BMP, EPS и др. форматы без ограничения по количеству страниц, (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8779138C898BF7886A26B78A024C144C1A2A48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205970   (782886) от 12.02.2018
-
-Norton Internet Security 22.12.0.104 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton Internet Security - комплексный антивирус, который сканирует ваш компьютер для выявления и устранения любых видов вредоносных программ и онлайн-угроз. Вы можете надежно использовать интернет-банкинг, онлайн-магазины и общаться в сети, при этом также обеспечивая безопасность деятельности ваших детей в Интернете.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DA03C142E8DE09D1B1BD75EAA6F0821015C97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206069   (782884) от 12.02.2018
-
-Sublime Text 3 (3157)Dev [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python. Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71986DE33ECDC58EE8E3911B67A9B6BC4598E56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205988   (782883) от 12.02.2018
-
-Alcohol 120% 2.0.3.10203 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcohol 120% - эмулятор CD/DVD-дисков. Программа создает на жестком диске ПК пользователя образ диска с данными, аудио или видео информацией, а затем предоставляет доступ к этим данным другим программам так, словно искомый диск находится в приводе. Alcohol 120% поддерживает работу со многими форматами CD/DVD, имеет возможность работы с 31 образом одновременно, обеспечивает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7D92C5E4976FDEE6084F9A792FF9A8D1262224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205993   (782881) от 12.02.2018
-
-Alcohol 120% 2.0.3.10203 Retail [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcohol 120% - эмулятор CD/DVD-дисков. Программа создает на жестком диске ПК пользователя образ диска с данными, аудио или видео информацией, а затем предоставляет доступ к этим данным другим программам так, словно искомый диск находится в приводе. Alcohol 120% поддерживает работу со многими форматами CD/DVD, имеет возможность работы с 31 образом одновременно, обеспечивает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC80C1B4B9B24F7EEFFCB56273A97F09AEB82141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206023   (782880) от 12.02.2018
-
-DU Meter 7.30 Build 4769 RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782880.jpg" />
-</div>
-
-
-###  Подробнее
-
-DU Meter - утилита для контроля входящего и исходящего сетевого трафика. Особенности программы: гибко настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text и др.; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E827EB71F804CBD84F638F7E2917E5D4958693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206035   (782876) от 12.02.2018
-
-Movavi Video Converter 18.1.2 Premium RePack by KpoJIuK  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461726C10CAFBE70FEA658B7287F7F7864ECF271
+magnet:?xt=urn:btih:A44F3248047F3CADE43EF667DADC6EC8DD832DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

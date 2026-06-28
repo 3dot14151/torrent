@@ -1,3 +1,32 @@
+###  Публикация: 1225778   (657821) от 18.05.2018
+
+VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra Nate - Free
+02. Moloko - Sing It Back
+03. Ace Of Base - All That She Wants
+04. Suzanne Vega feat. DNA - Tom's Diner (DNA mix)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539767   (656118) от 27.03.2022
 
 VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
@@ -728,32 +757,6 @@ Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06CED3DCE950D259CDDF98F0A8923232894D1706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516957   (647397) от 01.07.2012
-
-Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647397.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: DiscoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

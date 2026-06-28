@@ -1,3 +1,109 @@
+###  Публикация: 963486   (286974) от 08.12.2015
+
+Проекты - Pond5 - Accent - Crystal Modern Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблон идеально подходит для дефиле, танцевальных вечеринок, различных презентаций и других мероприятий. Вы можете использовать этот проект также в качестве портфолио модели. Можно выбрать цвет 9 пресетов для ваших изображений. Имеются две версии проекта - без плагинов Prerenders, и с использованием Particular.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA167BAD3083B5CB796D2F08B47DA33CA9E06203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963704   (286886) от 08.12.2015
+
+Проекты - VideoHive - Floating Happiness [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF96DC413520505C9D4B69D85479A584AD378528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963540   (286880) от 08.12.2015
+
+Проекты - Pond5 - Magic Tree [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебный проект для AE. Этот замечательный шаблон идеально подойдет для слайд-шоу или других целей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E0B318030F94623023E8E9C82CAE76C1826824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963751   (286855) от 08.12.2015
+
+Проекты - VideoHive - Music Event [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525532D23511B3B298A63CA8EB2DD4F35DEED64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963714   (286847) от 08.12.2015
 
 Проекты - Pond5 - Modern Clean Slideshow - Photo Video & Text Display Gallery Transition Portfolio - 55729464 [AEP]
@@ -575,112 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F9CBC55417DF15158F444D7111238664DF6CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336051   (282049) от 05.11.2019
-
-VideoHive - Bended Slideshow - 23432105 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bended Slideshow - это многофункциональный проект с HUD элементами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F849E76C2A0B4551DF9F779AC699F9AC0366E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335948   (282046) от 05.11.2019
-
-VideoHive - Drop Inked Elegant Slideshow - 22809684 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте оригинальное слайд-шоу с каплями чернил и элегантными летающими картами с эффектами параллакса и оптимизма. Идеально подходит для медленного, современного, оригинального и красочного видео-сюжета с чернильными брызгами VFX, кинематографическим слайд-шоу, презентацией в инстаграм, свадебной или романтической открытием, настроением, вдохновляющим настроением, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6BEB7EE9193A7B5E3F4CF1CCDC5BF7E58BCC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964372   (281959) от 11.12.2015
-
-Проекты - Pond5 - Cube Hex [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0A12100E8F36D7B395F41B199E0E7C51B19566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964515   (281957) от 11.12.2015
-
-Проекты - FluxVFX - Photo Spread [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D5EEC8A1F2BE788947EE013F11B299D8628F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

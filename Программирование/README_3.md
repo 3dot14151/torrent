@@ -1,3 +1,82 @@
+###  Публикация: 1612562   (1040018) от 16.02.2023
+
+Кеннеди Берман | Основы Python для Data Science (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python — язык программирования №1 для машинного обучения и Data Science. Но как же сложно решить, с чего начать изучение Python, ведь у него огромный инструментарий! Кеннеди Берман фокусируется на тех навыках программирования, которые понадобятся вам для решения задач в области Data Science и машинного обучения. Вы познакомитесь с блокнотами Jupyter — лучшей средой (   Читать дальше...   )Жанр: Машинное обучение. Анализ данныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224BFEAC12AF9E1FD9662A89879D8CDB2A994152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439690   (1039451) от 14.01.2021
+
+Джозеф Албахари, Бен Албахари | C# 9.0 Карманный Справочник (2021) [EPUB] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039451.jpg" />
+</div>
+
+
+###  Подробнее
+
+When you need answers about using C# 9.0, this tightly focused and practical book tells you exactly what you need to know without long intros or bloated samples. Succinct and easy to browse, this reference is an ideal quick source of information and can be used as a guide to get you rapidly up to speed if you know Java, C++, or an earlier C# version.
+All programs (   Читать дальше...   )Жанр: ПрограммарованиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441033   (1038174) от 19.01.2021
+
+Бен Фаррелл | Веб-компоненты в действии (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из основных факторов, способствующих трансформации интернета в последние годы, – широкое внедрение разработки пользовательского интерфейса на основе компонентов. В этой книге подробно описываются рабочие процессы, которые дают вам полный контроль над стилями и поведением компонентов и существенно упрощают их создание, совместное и повторное использование в проектах. (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A271525E46EFC292D7C3A3A4FAE9A07BF3517B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441480   (1037675) от 21.01.2021
 
 Patrick Viafore | Robust Python (2021) [PDF] [EN]
@@ -594,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36A01660F13D4550D59B60E4953D4F2B748327F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448522   (1030600) от 18.02.2021
-
-Джейсон Грегори | Игровой движок. Программирование и внутреннее устройство (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Джейсона Грегори не случайно является бестселлером. Двадцать лет работы автора над первоклассными играми в Midway, Electronic Arts и Naughty Dog позволяют поделиться знаниями о теории и практике разработки ПО для игрового движка. Игровое программирование — сложная и огромная тема, охватывающая множество вопросов. Граница между игровым движком и игрой размыта. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B837A44120A4535D516DEF08BBAD5C17EF9E6376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449822   (1029493) от 23.02.2021
-
-S. Basu | Java Programming For Kids ages 12 – 18 : Simple, Concise & Easy guide to Java Programming Language (2021) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029493.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is a beginner’s guide to Java Programming Language for Kids ages 12 - 18. I have explained all the topics in a simple, concise and easy language with thorough examples, codes and have tried my best to make the learning process fun, informative and interesting at the same time. If you want to gain an in-depth understanding, it is quite a simple book for (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751F6C9DACF35075E6203E378DF10FB824058FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450652   (1028806) от 27.02.2021
-
-Сергей Константинов | API (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028806.jpg" />
-</div>
-
-
-###  Подробнее
-
-«API-first» подход — одна из самых горячих горячих тем в разработке программного обеспечения в 2020. Многие компании начали понимать, что API выступает мультипликатором их возможностей — но также умножает и допущенные ошибки. Эта книга посвящена проектированию API: как правильно выстроить архитектуру, начиная с высокоуровневого планирования из заканчивая деталями (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2142DFAEE2B92C4C4562DED65DFEBBB40AC1FB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

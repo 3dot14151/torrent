@@ -1,3 +1,90 @@
+###  Публикация: 1285662   (719052) от 27.02.2019
+
+VA - Auralization (Mixed by OzzyXPM) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OzzyXPM - Khaleesi (Continuous Mix Version)
+02. Christian Monique - Take Me (Continuous Mix Version)
+03. Arctic Lake - Limits (Aurosonic Progressive Mix - Continuous Mix Version)
+04. Ataberk Onal - Smyrna (Continuous Mix Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59425295DD5E8BAB4E02CEA6837322C50EBF771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285666   (719050) от 27.02.2019
+
+VA - Uplifting Trance Sessions Vol.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tizer - With Got To Stars (Original Mix)
+02. Miroslav Vrlik - Coming Home (Extended Mix)
+03. Andy Kern - Float Away (Original Mix)
+04. Andy Blueman - Beyond The World We Know (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD453FF922FE08308C17C45B45CDB012289B3EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129641   (718998) от 30.04.2017
+
+VA - Trance Maschine Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Delta - Back In My Life (DJ Osip Radio Edit)  3:38
+02.  Wearealienss - Polar (Radio Cut)  3:08
+03.  Alizera - Fairy (Radio Edit)  3:30
+04.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B3D1F02FBF85F4A3B0DD8D061F4D28C07B0444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219089   (717673) от 12.04.2018
 
 VA - Alter Ego Trance Vol. 22 (Compiled & Mixed By Jonas Hornblad) - (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Best Of Uplifting Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B539145CB0A89B073EE452792367C6BF6A2C82F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288518   (695817) от 11.03.2019
-
-VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photographer & Abstract Vision - Zero Gravity (Roman Messer Remix)
-02. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix)
-03. Ayda - Voyager (Original Mix)
-04. Adip Kiyoi feat. Andromeda - Only You (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D6CE5E40F408B79DBB81AA06FFE6FAE025B1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288530   (695815) от 11.03.2019
-
-VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anoikis & Jerom - Never Forget (Original Mix)
-02. Miroslav Vrlik - Illusion (Original Mix)
-03. Gil Zambrano - Siempre (Original Mix)
-04. Slast - Arp (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C3502974F1217933F660378012FA3A8C5539EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133337   (695194) от 12.05.2017
-
-VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alizera - Fairy (Radio Edit)  3:30
-02.  Skyvol - Werewolf's Heart (Radio Cut)  3:55
-03.  Michael Milov - Voice Of An Angel (Radio Cut)  3:37
-04.  Ilya Chupriy - Foggy Morning (Radio Cut)  4:07(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 02:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A0717DDA13DFB056D16C452C2E0DA5C9CED374
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1309476   (551216) от 19.06.2019
+
+VA - House Clubhits Summer Edition 2019 (2019) 2CD [MP3|320 Kbps] <House, Club House, Deep House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551216.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.  Loud Luxury & Anders  -  Love No More (BROHUG Remix)
+02.  Hardwell & Mike Williams  -  I'm Not Sorry(   Читать дальше...   )Жанр: House, Club House, Deep House, Progressive HouseПродолжительность: 02:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A5D81DD3FACF12AD95261B04F6B3696091916A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047292   (550267) от 29.08.2016
+
+VA - Chic Grooves: A Journey into Deep House Rhythms (2016) (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Maserati - Beyond The Time - Light Reverberation Mix
+02. TonyDeep - Discover The Difference - House of Magic Mix
+03. Yves Taylor - Incomparable Breeze - Tony Morgan Mix
+04. Matteo Vanetti - Free Your Mind(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842E25FF494878EB4F701BF2DA853DB597B6FFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047099   (550254) от 29.08.2016
+
+VA - Bikini Grooves (20 Pool Party Beats Vol 1) (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Ayres - Elettro Love (Deep Reef Mix) (3:10)
+02. Martin Sayz - Integration (Soul Lovers Mix) (3:21)
+03. North Line - Light as Air (3:36)
+04. Trevor Jay - Wild Dreams (3:35)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: House, Deep HouseПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15AC42D4618B90657F94B256D229398237ED5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237824   (549642) от 26.07.2018
+
+VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Soulstar - My Love Is Everlasting (Radio Edit) 3:40
+02. Ariane Blank - Becarec (Deep Spelle Remix) 7:02
+03. Dee C'rell - Whodoo (Berlin Beach Mix) 5:22
+04. Florito & Roberto Sol - Loveflow (Florito Mix) 4:52(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 05:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FBF621C57DBEE115DBBB6099FD3C9CD0F0ECB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309708   (549604) от 21.06.2019
+
+VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adonai - Say (Edit Mix)
+02. Guilhem Mariposa & Idiocrate - Dawn (Original Mix)
+03. Takticals feat. Simply Oktaver - Just For One Day (Beach Mix)
+04. Ben Brummitt - A Story To Be Told (Edit Mix)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310012   (548841) от 22.06.2019
+
+VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548841.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.  Airbeat Inc.  -  Run With You (Airbeat One Anthem 2019)
+02.  Martin Garrix feat. Bonn  -  No Sleep(   Читать дальше...   )Жанр: House, Trance, Electronic, DanceПродолжительность: 03:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78332F88B979DF2E85E903529768126BD5D27B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238077   (548832) от 27.07.2018
 
 VA - Top Dance Hits 2018 [MP3|320 Kbps] <Progressive House, Big Room>
@@ -565,176 +739,6 @@ Funky Sensation Feat. Phillip Ramirez - Beautiful (2017) [MP3|320 Kbps] <Soulful
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F229D6A5D15374DD9DB27DDDDCD7594A6449800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154348   (541051) от 30.07.2017
-
-VA - 100 Pure Workout Tracks (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice Output - Moody
-02. Virility Ex - Transform
-03. Vasya Trust - Always
-04. Ungert - Installment(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22929E4B54B673226698C00F7A2C61CEF0BE1492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154241   (541047) от 30.07.2017
-
-VA - Bedrock Frequencies (Curated by John Digweed) (2017) Bedrock [MP3|320 Kbps] <Deep House, Progressive House, Tech House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Bedrock Frequencies Low (Continuous Mix)
-02. VA - Bedrock Frequencies Medium (Continuous Mix)
-03. VA - Bedrock Frequencies High (Continuous Mix)Жанр: Deep House, Progressive House, Tech House, TechnoПродолжительность: 07:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1389717FB9D20520EBC27D51775148AD9393E4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239319   (540627) от 04.08.2018
-
-VA - Hot Dance (2018) [MP3|320 Kbps] <Progressive House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrochuck - Give It To Me 3:35
-02. Elisabeat - Live It Up With You (Dance Mix) 4:11
-03. Sugapop - You And Me (Extended Mix) 5:24
-04. Epic Beat - Sax Party 6:10(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 02:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74FEDE7BC8657C47C1089AB7006297886CBD880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154564   (539194) от 31.07.2017
-
-VA - Oh Yes This Is Summer 2017 Fantastic Holiday [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wunkeris - Guru
-02. Walo Pils - Ripped
-03. Vasya Trust - Always
-04. Ungert - Installment(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0C50DF3680C278F37D42C6E0ABF5BB17B5C82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050671   (536731) от 09.09.2016
-
-VA - Disco Dance Italy (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cazintel - Over The Sea (Radio Version) 03:55
-02. Ivan Herb - Larga Vida En Vivo 03:07
-03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
-04. Jimmy & Wenzel - Dreamer 04:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EA0E067587C8241F27862FB08554664B7CDD2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050833   (536572) от 09.09.2016
-
-Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set My MindЖанр: HouseПродолжительность: 00:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069A1FF0DC15F791C242B8D7490A1FCA36348B11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,167 @@
+###  Публикация: 1271552   (149857) от 23.12.2018
+
+Одержимость / Possession (2002) WEB-DL [1080p] ATV [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149857.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух ученых, которые узнают, что Рэндольф Эш, поэт Викторианской эпохи имел тайную внебрачную связь с другой менее известной поэтессой. Ученые начинают исследовать роман из прошлого, читая любовные письма влюбленных, чтобы собрать из осколков полную картину, и вскоре понимают, что сами не могут жить друг без друга…Производство: США, Великобритания / Focus Features, USA Films, Warner Bros. PicturesЖанр: Драма, Мелодрама, ДетективРежиссер: Нил ЛаБутАктеры: Гвинет Пэлтроу, Аарон Экхарт, Джереми Нортэм, Дженнифер Или, Лина Хиди, Холли Аирд, Тоби Стивенс, Тревор Ив, Том Хикки, Джорджия МакКензиПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английские, французские, немецкие, итальянские, испанскиеПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519179   (149850) от 23.12.2021
+
+VA - Connecting The Dots (Denis Stockhausen) (2021) [AAC|~297 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Stockhausen - Connecting The Dots, Continuous Mix (1:21:01)
+02. Dubstar - Shining Through 1 (6:31)
+03. Michael Mayer, Matias Aguayo - Slow (6:16)
+04. Mikkel Metal - Rain (6:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7593988F3EDED27C522E14889DF4FB8F57717DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519181   (149805) от 23.12.2021
+
+VA - New Year’s Eve Songs - NYE Party 2022 (2021) [AAC|~324 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Levitating (3:24)
+02. Joel Corry, Mabel - I Wish (3:02)
+03. Ed Sheeran - Shivers (Dillon Francis Remix)Жанр: PopПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3895CCF2BB833ADFC93C2447C3844607667122B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271416   (149804) от 23.12.2018
+
+Сорняки / Mauvaises herbes (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваэль (Керон), бывший беспризорник, зарабатывает на жизнь мелким мошенничеством со своей приёмной матерью и соучастницей Моник (Катрин Денёв). Когда этот нетрадиционный дуэт обманывает не того парня, Виктора (Андре Дюссолье), старого знакомого Моники, в настоящее время отвечающего за организацию поддержки для проблемных подростков, у него нет другого выбора, кроме (   Читать дальше...   )Производство: Франция / Païva Films, Mars Films, StudioCanalЖанр: КомедияРежиссер: КеронАктеры: Керон, Катрин Денёв, Андре Дюссолье, Луизон Бливе, Альбан Ленуар, Ингрид Доннадье, Лоран ПонсПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Французские (Forced, SDH), Английские (Forced, Full)Продолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450F2BD23197E3F7F50A88541C33724E8AC17B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086304   (149732) от 25.12.2016
+
+Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Beginning To Look A Lot Like Christmas (3:57)
+02. Let It Snow! Let It Snow! Let It Snow! (3:01)
+03. Santa Claus Is Coming To Town (2:07)
+04. Jingle Bell Rock (3:47)(   Читать дальше...   )Жанр: Pop, Jazz, Holiday, Christmas, Swing, Easy Listening, VocalПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FF1352AFD9FF1412420CB19DAF032A15D215F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271470   (149212) от 23.12.2018
+
+Облачный атлас / Cloud Atlas (2012) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149212.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении всей истории человечества людей весьма волновал вопрос - что происходит после смерти? Существует ли продолжение, или нет? Фантастический фильм «Облачный атлас», снятый по мотивам одноименного бестселлера Дэвида Митчелла, рассказывает шесть историй реинкарнации одной души, причем две из которых происходят в будущем времени. Масштабная экранизация удивительной (   Читать дальше...   )Производство: Германия, Гонконг, США, Сингапур / A Company Filmproduktionsgesellschaft, ARD Degeto Film, Anarchos PicturesЖанр: Фантастика, Драма, ДетективРежиссер: Лана Вачовски, Том Тыквер, Лилли ВачовскиАктеры: Том Хэнкс, Холли Берри, Джим Бродбент, Хьюго Уивинг, Джим Стёрджесс, Ду На Пэ, Бен Уишоу, Джеймс Д`Арси, Жу Жу, Кит Дэвид, Дэвид Гяси, Сьюзен СарандонПеревод: Дублированный, авторский одноголосыйСубтитры: Русские, английские, немецкие (Вшитые, отключаемые)Продолжительность: 2:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848D4B4D9A6D526583C6EA9BE12A7B8248BAAB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086477   (149172) от 25.12.2016
 
 Плохой Санта 2 / Bad Santa 2 (2016) WEB-DL [1080p] ATV
@@ -541,177 +705,6 @@ VA - Finest NY House 2021, Pt. 2 (2021) [AAC|~325 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBC229B836ECCA13E107643A7B51E3052BC0C32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519415   (147344) от 25.12.2021
-
-VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beije - Searching (7:36)
-02. Distic - Totem Bird (6:59)
-03. Jelly For The Babies, Mariner + Domingo - Two of Us (7:25)
-04. Discognition - Montezuma (7:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BABFC80809C12A918E4D2A325DCB2A21C168B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519402   (147334) от 25.12.2021
-
-VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burns - Talamanca (3:07)
-02. Obskür - Bayside (Radio Edit) (3:17)
-03. John Summit, Echoes - Human (3:39)
-04. Diplo, SIDEPIECE - On My Mind (3:09)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288F6DF8083B9703415A659E66A73078F4E7105B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519414   (147322) от 25.12.2021
-
-VA - Selador Selected Works 2021 (2021) [AAC|~325 Kbps] <Progressive House, Deep House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiz Pattison, Micah Paul Lukasewich, Robert Babicz - Beam Of Light (Robert Babicz Ambient Version) (5:35)
-02. Anthony Pappa, Jamie Stevens, Framewerk - Here We Go (Framewerk Remix) (9:12)
-03. Robert Babicz - Galactic Traveller (Original Mix) (5:16)
-04. Dave Seaman, Charles Webster - Racket Abuse (Charles Webster Remix) (6:24)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 04:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207D413B668CD541A6F7672AF9A1E3A368DA810F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087090   (147321) от 26.12.2016
-
-28 панфиловцев  (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью 1941-го года немецкие части, стоявшие возле Волоколамска, отделяло от Москвы каких-нибудь два часа по шоссе. Однако, на этом шоссе стояла 316-я стрелковая дивизия под командованием генерала И. В. Панфилова. Этот военачальник обладал настолько высоким авторитетом среди личного состава, что бойцы дивизии сами называли себя панфиловцами. А дивизию — панфиловской.Производство: РоссияЖанр: Военный, драмаРежиссер: Ким Дружинин, Андрей ШальопаАктеры: Александр Устюгов, Яков Кучеревский, Азамат Нигманов, Олег Фёдоров, Алексей Морозов, Антон Кузнецов, Алексей Лонгин, Максим Белбородов, Дмитрий Мурашев, Виталий КоваленкоПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04B1B7D137D9071000CF1AD00DDB72B0DCC42A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519409   (147312) от 25.12.2021
-
-VA - Best Of 2021: The Selection Safe Music (2021) [AAC|~313 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deepshakerz - Jambala (Tribe Mix) (5:46)
-02. James Meid - Like Never (5:09)
-03. Rone White, Rowen Clark - Forever Young (The Deepshakerz Rework) (5:04)
-04. Richard Ulh - Wooky (6:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455F4547CD68268DF4BB6C8987EBC65D40C4190F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519401   (147294) от 25.12.2021
-
-VA - Sweet Morning (Chill out and Lounge Collection), Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Silk and Smooth (Original Mix) (4:00)
-02. Corrado Saija - Closing Eyes (Vanelitne) (3:24)
-03. Pier-O - Dawn (Original Mix) (5:12)
-04. Circles Of Sound - Open Spaces (Original Mix) (6:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A9BF035E7CE2FB3CA0E66C98C3BEAD77A9A2C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

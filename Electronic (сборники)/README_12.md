@@ -1,3 +1,148 @@
+###  Публикация: 1479253   (1009572) от 24.06.2021
+
+VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Project Blue Sun - Lost In Your Eyes
+002. Amethystium - Nightfall
+003. Marshall Watson - A Door In The Sky
+004. Begin - Super Barrio(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 12:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479362   (1009538) от 24.06.2021
+
+VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mundos Sutis - Something Elegant
+002. Deeperwalk - Back Home
+003. Truvor - Broken
+004. Cup & String - No Pressure(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B79200295347718A241B0A5EBBB3DBE74678F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480271   (1009050) от 28.06.2021
+
+VA - Music Cloud: Synthetic Party (2021) [MP3|320 Kbps] <Electronic, Synthetic, Synthvawe>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009050.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wholf B - Sound Of Silence
+002. Alex Samoylenko - Minimal Illusion
+003. Penelope's - The Cutting Edge
+004. Teslasonic - Nemesis(   Читать дальше...   )Жанр: Electronic, Synthetic, SynthvaweПродолжительность: 11:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAD83841F9A3E7AB752A0F11DB6F16A5749B458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480501   (1009048) от 28.06.2021
+
+VA - Beatport Bassline: Electro Sound Pack #308 (2021) [MP3|320 Kbps] <D&b, Jungle, Dub Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009048.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chili Banks - With Them
+002. Conrad Subs - Money
+003. Jando - Jaguar Trap
+004. Parallel - Warped Entity(   Читать дальше...   )Жанр: D&b, Jungle, Dub BassПродолжительность: 08:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CF6D7B02E59362A8AFE8F2F552133E41D375CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480496   (1009036) от 28.06.2021
+
+VA - Beatport Techno: Electro Sound Pack #307 (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Techno Mama - Powerful Sine
+002. Jardin, Certain Smith - 5th Generation
+003. Hryggur - Power Cuts
+004. Hatelove - Betrayed By Gods(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E52F7316E1F317E0A611AECEBA75E80E8215F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480430   (1009033) от 28.06.2021
 
 VA - Beatport Deep House: Electro Sound Pack #305 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -600,151 +745,6 @@ VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485304   (1005442) от 25.07.2021
-
-VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Markul, Джарахов - Я в моменте (2:06)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B3473D5F65FB1BCAFE5EC75D2455625CD6C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486521   (1004604) от 01.08.2021
-
-VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rugrats, Cosmic Illusion - Successful Digits
-002. Psykoveda - Equilibrium Point
-003. Magic Mizrahi - Existence
-004. Need One - Under The Shadow(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486536   (1004602) от 01.08.2021
-
-VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lenny Dee - Thunderdome Go Boom
-002. Mike Efex - The Fallen
-003. Sharkey - The Warning
-004. Leighton Smith - Diagnostic(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D66BA767AA010A49832A955FAD71DF63AE0ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486540   (1004601) от 01.08.2021
-
-VA - Beatport Hardstyle: Sound Pack #326 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro Core>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Killshot - #Ammabea$t
-002. Scott Attrill - Beats N Bass
-003. Mark Holiday - Forgiving
-004. Neophyte - Masterpiece(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Electro CoreПродолжительность: 08:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C010464456324308159799E4D90F80A8848C1931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486533   (1004599) от 01.08.2021
-
-VA - Beatport Electro House. Sound Pack #323 (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004599.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Quenum - Dune
-002. M.Ono - A Bolt Of Love
-003. Terranova - Cosmochord
-004. Mateo & Matos - Deep Afro Roots(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A3B5E7285E565EF0F172E35F61EE592EE0485C
 ```
 
 https://mybot314.ru/tekegram_catalog/

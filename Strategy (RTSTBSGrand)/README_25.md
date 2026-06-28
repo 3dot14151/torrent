@@ -1,3 +1,29 @@
+###  Публикация: 1796317   (151) от 29.09.2025
+
+Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795863   (120) от 29.09.2025
 
 Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]

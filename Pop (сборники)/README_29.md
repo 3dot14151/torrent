@@ -1,3 +1,119 @@
+###  Публикация: 1383074   (813738) от 14.05.2020
+
+VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813738.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Banks feat. Francis - Look What You're Doing To Me
+002. Ehla - On Me Dit Ehla
+003. Inna - Fuego
+004. Grand Palladium - Into Limbo(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964CF629CB84780B72E636B9E17B9DE616D3ECE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008635   (813416) от 19.04.2016
+
+VA - Зарубежная Дискотека ХХ Века - 7 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus - Live Is Life ( 1984 )
+02. Mo-Do - Super Gut ( Radio Edit Remix 1994 )
+03. Off - Electrica Salsa ( Baba Baba ) ( 12' Version 1986 )
+04. Dee D. Jackson - Automatic Lover ( 1978 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC21A59B2392C3030AD11EB56580C4E48435CD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008698   (813253) от 19.04.2016
+
+VA - The Best of 80s Vol.2 (2016) [MP3|320 кб/с] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Only You 06:49
+02. Savage - Radio 05:54
+03. Joy - Touch By Touch 05:24
+04. Modern Talking - Atlantis Is Calling (S.O.S. For Love) (Extended Version) 05:26(   Читать дальше...   )Жанр: Disco, Eurodance, PopПродолжительность: 06:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81352F941D7BF88E4587BF8CB0C18063D29597A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383315   (811726) от 15.05.2020
+
+VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Taylor Swift - Lover (Remix) (3:41)
+2.Ed Sheeran - Best Part of Me (feat. YEBBA) (4:03)
+3.Dermot Kennedy - All My Friends (4:07)
+4.Lilla Vargen - Why Wait (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C98481CAEE7EA998D68C243E700B7D7F81E0414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196849   (811609) от 09.01.2018
 
 VA - Ukrainian Hits - 33 Tracks (Volume 3) (2017) [MP3|320 Kbps] <Pop, Rock, Pop Rock>
@@ -629,122 +745,6 @@ Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E079C487CE5AAC37DC23295416EAC5412EC30EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384027   (804044) от 19.05.2020
-
-VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doja Cat feat. Nicki Minaj - Say So
-002. KSHMR, Sak Noel feat. TxTHEWAY - Bruk It Down
-003. DaBro - Юность
-004. Little Big - Hypnodancer(   Читать дальше...   )Жанр: PopПродолжительность: 07:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E408C80A5BB999EBE6576195FC35A8F64AC8C74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118510   (803550) от 30.03.2017
-
-VA - Бомба Hits. Весенний (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803550.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evidelle - Ну Почему
-002. Dnce - Zoom
-003. Катя Лель - Придумала
-004. Elley Duhe - Immortal(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45C02B60F5D1AA94D2185A735B590DAA07B7F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120045   (803458) от 30.03.2017
-
-VA - Музыка солнца (2014) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анжелика Варум - Июль
-02. Алсу - Я только звук в мелодии
-03. Ани Лорак - Я буду солнцем
-04. Денис Майданов - Пролетая над нами(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F66CDC384CF229E0CA10BD00A507524F16D0964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120162   (803449) от 30.03.2017
-
-VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Loboda - Случайная  3:53
-02.  Макс Барских - Неверная  3:47
-03.  Полина Гагарина - Драмы больше нет  3:14
-04.  Lx24 и Мари Краймбрери - Через 10 лет  4:09(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

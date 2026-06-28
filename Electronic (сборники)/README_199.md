@@ -1,3 +1,148 @@
+###  Публикация: 1428216   (180274) от 01.12.2020
+
+VA - Свежак Vocal Trance NNM 2 (2020) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & M11 feat. Will Church - Hold Back (2:29)
+02. Alexander Popov & Planet Perfecto - Bullet In The Gun (Reloaded) (3:37)
+03. Allen Watts feat. Gid Sedgwick - Another You (Extended Mix) (6:08)
+04. Aly & Fila, Plumb - Somebody Loves You (9:06)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7924D50EF7D7ED67AB13D41077BDA6364F1BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667157   (177256) от 07.10.2023
+
+VA - Car Music Mix 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT - Flame - Edit (5:27)
+02. Zven, Ghetto - S.W.A.T (2:13)
+03. Yves V & Fafaq - Bring It Back (2:51)
+04. Tony Igy x Pakito, K.Funk, M.Gold - Video Astronomia (Dj Baur Mixshow) (3:58)(   Читать дальше...   )Жанр: G-House, Bass Progressive, OtherПродолжительность: 08:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0D9A54C4FB73F159EB85575C830482C744BC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429297   (176876) от 06.12.2020
+
+VA - Beatport Electro House: Sound Pack #204 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный 204-й сборник от Beatport со своей чрезвычайно атмосферной и высококачественной музыкой безусловно придётся Вам по душе, если вы фанат танцевальной музыки в направлении Electro House. Представленные треки продуманы до самых мелочей и демонстрируют истинную эстетическую гармонию. Приятного прослушивания!001. Beaudamian - Butterflies
+002. Zorbis - Lobby
+003. White Gangster - Insert Coin
+004. Jakaval - Los Angeles(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DA4CD5AEAD5A3D3C901DB0B1DD527713963C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666341   (176739) от 08.10.2023
+
+VA - Ambient Cosmic Whispers (2023) [MP3|320 Kbps] <Electronic, Lounge, Chill Out, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Over Midi - Before We Go [02:37]
+02. Hollie Kenniff - This Division [03:31]
+03. Abakus - The Enchanted Voyage [04:10]
+04. Zyklen - Lox Yeo Buteo [05:42](   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, Ambient, DowntempoПродолжительность: 04:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D45FC48E67F1FBF56BFF5674F8F4940752C01B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667413   (176587) от 08.10.2023
+
+VA - Record Super Chart 07.10.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peggy Gou - (It Goes Like) Nanana (Edit) (3:51)
+02. TwoColors feat. Safri Duo & Chris De Sarandy - Cynical (3:11)
+03. Robert Cristian & Alis Shuka - The Day Before (2:25)
+04. Oliver Heldens & Djs From Mars & Jd Davis - Blue Monday (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A253D883C4D173F33D187297CE03A4C73EF38CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595208   (175992) от 04.12.2022
 
 VA - Record Super Chart 03.12.2022 [MP3|320 Kbps] <Pop, Dance>
@@ -600,151 +745,6 @@ Neuron - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DF3E382E17AB96D8A174D8CDD6B9BA7A861F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671173   (171362) от 24.10.2023
-
-MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help
-02. Anxiety
-03. Midnight Dance
-04. Miracle(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E043F7A3966505D2E6B5B189900B39E03091E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671518   (171173) от 25.10.2023
-
-VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171173.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aoiii & Afrikasia - W Love, Afrika [04:12]
-002. Relaxing Lo Fi - Mood For Study Sessions [02:13]
-003. Cloudchord & Big Gigantic - Keep On Movin' [03:07]
-004. Alecs Delarge - Jazz Biscuits [02:51](   Читать дальше...   )Жанр: Lounge, Downtempo, Lo FiПродолжительность: 05:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A59FF72D3A6D357EAC9F91E08E918FACC8B0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826522   (170952) от 19.10.2025
-
-Sardø - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gone
- 02 - Inside
- 03 - Again
- 04 - Siempre Contigo(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C1882BE7AE98FBAA80779188AFAB2BF9A65609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344311   (170545) от 10.12.2019
-
-VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yinon Yahel - Not Good For Me
-002. Giben Gless - Random (Original Mix)
-003. Mike Candys - Brand New Day
-004. Bassienda - All I Want (Original Mix)(   Читать дальше...   )Жанр: Dance HouseПродолжительность: 13:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344315   (170428) от 10.12.2019
-
-VA - Disco House Party (2019) [MP3|320 Kbps] <Disco House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170428.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scotch - Penguin Invasion
-002. Modern Boots - You're My Night, You're My Day
-003. Michael Gray - 24 7 People
-004. Shay Jones - When Love Calls(   Читать дальше...   )Жанр: Disco House, Funky HouseПродолжительность: 12:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD81EED97BFAE3E8718DB07BB3F7A15644340E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

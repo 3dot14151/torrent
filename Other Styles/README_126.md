@@ -1,3 +1,119 @@
+###  Публикация: 1327099   (366028) от 29.09.2019
+
+VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day In Paradise - Phil Collins  (3:46)
+02. Right Here Waiting – Richard Marx (3:22)
+03. Hey Jude - McCartney / Lennon  (3:43)
+04. I Just Died In Your Arms Tonight – Nicolas Eede (3:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153436   (365816) от 21.11.2009
+
+VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
+
+01. Fragrance of Water
+02. Fine Tea Is Like a Beauty(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327209   (365543) от 29.09.2019
+
+Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taron Egerton, Rachel Muldoon - Don't Go Breaking My Heart (Interlude) [01:34]
+02. Taron Egerton, Richard Madden (2) - Honky Cat [02:34]
+03. Taron Egerton - Pinball Wizard (Interlude) [02:02]
+04. Taron Egerton - Rocket Man [04:31](   Читать дальше...   )Жанр: Rock, Pop, Stage & ScreenПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951101   (365490) от 28.10.2015
+
+Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calypso [8:23]
+02. Calypso Part 2 [7:11]
+03. Calypso Part 3 [6:23]
+04. En Attendant Cousteau [46:46]Жанр: ElectronicПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C82A06414613A081F9BE6C25EF1AEBE733570A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576245   (365268) от 16.11.2012
 
 VA - Арабские ночи (Инструментальная музыка 2 CD) 2000 г.[FLAC|Lossless]<Instrumental>
@@ -649,132 +765,6 @@ Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577181   (360204) от 18.11.2012
-
-Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghali
-02. Lanilei
-03. Sadoor
-04. Narabi
-05. Kradeesh
-06. Soulana
-07. Bata
-08. ShastiЖанр: New Age, WorldПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177759   (359834) от 26.10.2017
-
-Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011-2017) [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title [01:46]
-02. North Of The Wall [03:48]
-03. Goodbye Brother [03:07]
-04. The Kingsroad [02:06](   Читать дальше...   )Жанр: ScoreПродолжительность: 08:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255054   (359651) от 06.11.2010
-
-Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359651.jpg" />
-</div>
-
-
-###  Подробнее
-
-(05:35) 01. Aadays Tisai Aadays
-(04:37) 02. Listen, Listen, Listen
-(05:34) 03. Ra Ma Da Sa
-(06:10) 04. Blessed Is My Soul
-(06:13) 05. Where I Sit Is Holy
-(05:34) 06. Ajai Alai
-(03:46) 07. Kanekotsytha
-(07:07) 08. Hanshan Temple
-(02:05) 09. Sa Ta Na Ma Celebration
-(04:36) 10. Circle of LightЖанр: New Age, Easy ListeningПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E01D054886815031B09472979C62585DE975E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071392   (359347) от 10.11.2016
-
-Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scythia (The Ancient Era) (feat. Sandro Freidrich) (01:30)
-02. France (The Medieval Era) (03:14)
-03. Rome (The Medieval Era) (03:39)
-04. Spain (The Medieval Era) (03:49)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249B4D84C7A8B474C3262EFAE6CE6CA0B400EA72
 ```
 
 https://mybot314.ru/tekegram_catalog/

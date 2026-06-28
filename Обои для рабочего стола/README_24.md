@@ -1,3 +1,30 @@
+###  Публикация: 1020892   (743449) от 27.05.2016
+
+Обои - Computer Desktop Wallpapers Collection 1509-1515 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски 1509-1515.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F833181974C62BAA497F1097AEF8F57964BAB73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020907   (743217) от 27.05.2016
 
 Обои - LIFEstyle News MiXture Images. Wallpapers Part 981-985 [JPG]
@@ -646,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF9340CD048845BBB6B11D76B91E0CB9E4C5154D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283837   (731945) от 18.02.2019
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (217) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0F86965A92259BE8094E534353E257AB49DC89
 ```
 
 https://mybot314.ru/tekegram_catalog/

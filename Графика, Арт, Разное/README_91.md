@@ -1,3 +1,55 @@
+###  Публикация: 1243531   (492110) от 27.08.2018
+
+Обои - Desktop Wallpapers Full HD. Part (272) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465F19E4625DCBAEBBFD434DD41F3D1EA775AAB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243535   (492101) от 27.08.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (169) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63071276F42413918977ADD33F4F5B438BE00CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243537   (492034) от 27.08.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (170) [JPG]
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FB1BFCE677C67FBADED2D6F260CE3D8FD7FC4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545637   (484645) от 10.09.2012
-
-Обои - Обои с прекрасными уголками природы №311 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка обоев на тему природы.Формат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F96240B40308E0591E28494D5BAA51B21B50F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545447   (484571) от 10.09.2012
-
-[Рисованая графика]Artworks by Amberly Berendson
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Amberly Berendson.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F7BF7D8C706F70042E38D861F83B452E369884
 ```
 
 https://mybot314.ru/tekegram_catalog/

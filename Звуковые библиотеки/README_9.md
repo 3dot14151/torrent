@@ -1,3 +1,29 @@
+###  Публикация: 1218793   (716913) от 12.04.2018
+
+Звуковые библиотеки - Lens Distortions - Archetype SFX [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека кинематографических звуковых эффектов.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C3A3D60F6F100BFE2988F96FC806CDF5468861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791195   (715651) от 30.05.2014
 
 Boom Library - CLOSE COMBAT [WAV]
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4CA02F922554EB09B09864D911AA62AF153D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032157   (645153) от 07.07.2016
-
-Звуковые библиотеки - Music Maker Jam - Soundpools Pack 1 [OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный сборник Music Maker Jam - Soundpools Pack 1 включает в себя 89 стилей (как платных, так и бесплатных) из Music Maker Jam, которые содержат 25882 звучания различных инструментов высокого качества. Стили подходят для установки не только в Music Maker Jam, но и в более профессиональные версии программы (Magix Music Maker Premium/Live и т.д.). Они помогут создать (   Читать дальше...   )Формат: OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44605062838857305F4007625692E39A4C06023F
 ```
 
 https://mybot314.ru/tekegram_catalog/

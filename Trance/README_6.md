@@ -1,3 +1,90 @@
+###  Публикация: 1443500   (1035483) от 29.01.2021
+
+VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sina7 - Uranus (Extended Mix)
+02. Nikzad & Sina - The Seventh Sky (Extended Mix)
+03. FAWZY & W!SS - Horizont (Extended Mix)
+04. Last Soldier - To The Future (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BAB4C089A487534E45ACE92E48E556146263E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443880   (1035191) от 30.01.2021
+
+VA - Azura Trance Selections (2021) [MP3|320 Kbps] <Uplifting-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aevus - God's Particle (Time Machine Mix) (07:36)
+02. Andrea Ribeca - Firewire (Andrea Ribeca 2020 Remix) (06:48)
+03. Mario Piu - The Vision 2020 (Les Hemstock Remix) (06:16)
+04. Aevus - Amaterasu (Original Mix) (08:21)(   Читать дальше...   )Жанр: Uplifting-TranceПродолжительность: 03:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D84177C3933AFDA45B1703BF2A111589F53A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443743   (1035190) от 30.01.2021
+
+VA - Talla 2XLC - Carpe Diem (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Into The Wormhole (Album Mix)
+02. Talla 2XLC - Mantra (Original Mix)
+03. Talla 2XLC - All The Dreams We Shared (Original Mix)
+04. Alpha Breed - Epic Future (Extended Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27667A61EC31C8D14148F53FD7E8D94727CD0D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443739   (1035128) от 30.01.2021
 
 VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021) [MP3|320 Kbps] <Trance, Classic Trance, Progressive Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC791D2252BF86099E176D1C4F4D0942408D87BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622301   (1030269) от 28.03.2023
-
-VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raz Nitzan & Maria Nayler - Nothing Breaks Like A Heart (Radio Edit) [4:20]
-02. Raz Nitzan & Fenna Day - Room For Doubt (Original Mix) [3:34]
-03. Susana & Raz Nitzan - Fall Into Trust (Original Mix) [3:48]
-04. Raz Nitzan & Denise Rivera - The Last To Know (Original Mix) [2:52](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677CDDACD82347EA97526C9FCF85C8CEB4A037EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450032   (1029317) от 24.02.2021
-
-VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten - Resonation Radio (Intro)
-02. Ferry Corsten & Gouryella - Gouryella (Extended Mix)
-03. Naz - Lost (Extended Mix)
-04. Ferry Corsten & We Are Loud - I Don't Need You (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 03:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9D83C1EF1864C68C9254986B65225D53EB40DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456108   (1025295) от 21.03.2021
-
-VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT & Matt Fax feat. Nation Of One - Walk Into The Water (Craig Connelly Extended Remix) 7:46
-02. Eximinds & Gallen Rho - Within Starlight (Extended Mix) 4:24
-03. Markus Schulz & Christina Novelli - Not Afraid To Fall (Markus Schulz Escape Mix) 4:22
-04. HALIENE - Walk Through Walls (MaRLo Extended Remix) 5:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9730A3A9BDABDABB1F807D7CF1F33CA13730782A
 ```
 
 https://mybot314.ru/tekegram_catalog/

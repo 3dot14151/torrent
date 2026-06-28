@@ -1,3 +1,90 @@
+###  Публикация: 1270299   (214314) от 18.12.2018
+
+VA - Anjunabeats The Yearbook 2018 Vol 1 (2018) 2 CD [MP3|320 Kbps] <Progressive Trance, Progressive House, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Above & Beyond - Always (Mixed) (04:00)
+02. Spencer Brown - Arps n Crafts (Mixed) (06:04)
+03. Grum - Hourglass (Mixed) (03:51)(   Читать дальше...   )Жанр: Progressive Trance, Progressive House, Tech TranceПродолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2ECF106475E9860D32E361469997D63B8DDE7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638294   (211940) от 09.06.2023
+
+VA - Trance Anthems (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Alex M.O.R.P.H. - Afterlife (Extended Mix) [6:52]
+02. DJ Eternity - Soul Experience (Extended Mix) [6:39]
+03. Ralphie B & Frank Waanders - Fata Morgana (Extended Mix) [7:25]
+04. Talla 2XLC - Avalon (Extended Mix) [6:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C85318DD25821A699B538270ACF80D73A67F0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639101   (211716) от 11.06.2023
+
+VA - Keep It Trance Vol. 12 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AFTERUS - Something More (Extended Mix) [6:00]
+02. Aspiration - Generate (Original Mix) [7:08]
+03. Life Explorer - Back To Earth (Extended Mix [7:22]
+04. ZQRM & Palie - Waterproof (Original Mix) [3:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9EB05290C1A2906EC57AA892F70F0654C6FE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640170   (211345) от 16.06.2023
 
 VA - Black Hole Trance Music 06-23 (2023) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Future Trance Vol.100 (2022) 3CD, Compilation, Mixed, Digipack [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9E3FA2DDDE7BB8A00AF8EEDEE9B68D339E2199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588424   (191626) от 04.11.2022
-
-VA - Trance 2022 Vol 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Dekay & Sarah Russell - Fragile Flame (Original Mix) (3:51)
-02. 1st in Line & Cris von X - The Light (Darren Porter Remix) (3:07)
-03. Paul Denton - Recoil (Original Mix) (2:55)
-04. Driftmoon & Ana Criado - One Little Step (Original Mix) (3:04)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085C302FB3F39E1054C53DDF3F902CB4AE8D4A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658494   (191261) от 08.09.2023
-
-VA - A State Of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191261.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - On The Beach
-01. MaRLo & Mila Josef - You Are Not Alone (Mixed) [4:55]
-02. Armin van Buuren - Motive (Mixed) (Jochem Hamerling Remix) [3:18]
-03. Push vs Crashguard - I Want To Tell You (Mixed) [2:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE5405232E36CD7A917150708A7D2DC85D0BCA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589960   (189358) от 12.11.2022
-
-VA - Vocal Trance Classics 2022 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Service & Neev Kennedy - But I Did (Radio Edit) (3:11)
-02. Ana Criado & Omnia - No One Home (Radio Edit) (3:39)
-03. The Doppler Effect - Beauty Hides In The Deep (The Blizzard Edit) (4:31)
-04. Richard Durand & Cynthia Hall - Shield Of Faith (Radio Edit) (4:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F4E795B22A76945E524ECBC9D4D11280A06FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

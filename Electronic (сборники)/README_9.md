@@ -1,3 +1,61 @@
+###  Публикация: 1462525   (1021041) от 15.04.2021
+
+VA - Immersion: Psy Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник психоделического транса "Immersion" порадует наличием в нём действительно актуальных и коммерчески «раскрученных» работ – именно такое звучание привлекает слушателей, интересной компиляцией, небанальными и продуманными поворотами сюжета, общим интригующим настроением, поддерживаемым на протяжении всего лонгплея и не позволяющим отвлекаться на что-то (   Читать дальше...   )001. Doctor Spook - Spiral Trax Psychedelic Trance
+002. Life Extension - The Invaders Pt.2
+003. The Concept Nemesis - Survival
+004. Champa - Mozamboogy(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 13:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A69CA31EBDF7A9EA4175E8060AB3DC7F9A43134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462636   (1020978) от 15.04.2021
+
+VA - Deep House Relax 1 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020978.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ZOYA, Anagramma - In My Mind (Anagramma Remix) (5:22)
+002. Andain, Dapa Deep - Beautiful Things (Dapa Deep Remix) (5:26)
+003. Imany, Filatov, Karas - Don’t Be So Shy (Filatov & Karas Remix) (3:10)
+004. LVD, Martin Stark - In the Air Tonight (Far out Mix) (4:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F44ABB8BE5187254B416F12D52090D4B604F274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462744   (1020926) от 15.04.2021
 
 VA - Сегодня на радио хиты FM Vol.11 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -578,6 +636,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467744   (1017584) от 05.05.2021
+
+VA - Beatport Drum And Bass: Sound Pack #279 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однозначная громкая сенсация на просторах электронной музыки! Композиции 279-го подборки от Beatport понравятся и почитателям наполненных экзотикой басов и радикальных ритмов. Хиты линейки "Bаss Linе" всецело вашему вниманию.001. Greekboy - Astronomic Illusion
+002. Ak-Industry - Crash Report
+003. Asc - After Dark
+004. Echo 1 - Voyager(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 09:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B91B68FE1B3870C536CE8C12BB59892BF788978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468947   (1016788) от 10.05.2021
+
+VA - Peace In The Static (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник предназначен для того, чтобы Вы могли погрузиться в свои мысли, ощутить красоту мелодий, обрести душевное равновесие или скоротать вечер в размышлении о вечном и прекрасном. Эти звуки помогут успокоиться, снять стресс да и просто насладиться гармонией звука001. Blufeld - Night Mode
+002. Marco Monteverde - Dark Amenities
+003. Morgan King - I'm Free
+004. Miav - Hearts(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 07:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2988FE2544016CCEB513319BC583E1BBE42AFA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468950   (1016781) от 10.05.2021
 
 VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -629,122 +745,6 @@ VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469104   (1016749) от 10.05.2021
-
-VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция транс музыки с наименованием "Top 100 Euphoric Trance", станет Вашим проводником в мир самой актуальной и нестандартной музыки. Пластичные переходы от агрессивного строю к растянутому лаунжу и резкие амплитудные всплески электронной музыки под аккомпанемент пространственного бита, под который тело само стремиться в движение будут с Вами на протяжении (   Читать дальше...   )001. Spyndl - Dark Spaces
-002. Vinny Degeorge - Forza
-003. Genetic - Revelations
-004. DJ Sakin - Dream Of Eternity(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14C713DB0DA9A512CF4C210242D35611ED98B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468973   (1016576) от 11.05.2021
-
-TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Юлия Морозова & DJ G-Neo G - Фотообои
-02.Юлия Морозова - Зажигай (Eugene Star Remix)
-03.Юлия Морозова - Всегда с тобой рядом (Eugene Star Remix)
-04.Проект НаЗаре, DJ DimixeR - На Заре 2020 (Extended Mix)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 02:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10BCDD6257044624852C26651AEE0C0999C8427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469622   (1016307) от 13.05.2021
-
-VA - Beatport Techno Electronic: Sound Pack #281 (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистический формат в техно музыке, вразрез всеобщему сужденью, один из самых сложных стилей. Ввиду того, что наименьшим составом нот получить эффектного звучания крайне трудно. Но авторам музыкальных треков этого компилата от Beatport похоже удалось это сделать!001. Cube Andy B - Triangle
-002. Sami Wentz - Monkeyz
-003. Emrah Celik - Blotic
-004. Bruce Zalcer - Requiem(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 09:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA92C4E812E347245B49F9145C1E4C745C1E4AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469672   (1016303) от 13.05.2021
-
-VA - Trance Music Collections 2021 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syncbat & Conciliator Project - To The Stars (Conciliator Project Remix)
-02. Damir TC - The Girl's Voice (Original Mix)
-03. Dmitriy Osipov - Sky (Original Mix)
-04. Dream Travel - 2 Chance (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive, ElectronicПродолжительность: 04:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0E2AEE9D18C0CA7B8F27300801B27C1910272D
 ```
 
 https://mybot314.ru/tekegram_catalog/

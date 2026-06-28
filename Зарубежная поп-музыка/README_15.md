@@ -1,3 +1,32 @@
+###  Публикация: 1383859   (808269) от 17.05.2020
+
+VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kungs, Cookin' On 3 Burners - This Girl (Kungs Vs. Cookin' On 3 Burners) 3:16
+02. Møme - Club Sandwich 4:34
+03. Fakear - Nausicaa 3:53
+04. Aslove, Dalvin - Dancing 3:24(   Читать дальше...   )Жанр: Electro PopПродолжительность: 02:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E686D75D5FA110699E1D752CC49CB9B446084AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383782   (808133) от 17.05.2020
 
 VA - Covers (2020) [MP3|320 Kbps] <Pop>
@@ -713,35 +742,6 @@ Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506582   (799497) от 01.11.2021
-
-VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sassydee - Disturbia (4:00)
-02. Countdown Singers - Monster Mash (3:15)
-03. Countdown Singers - Ghostbusters Theme (4:07)
-04. Detroit Soul Sensation - Superstition (3:30)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 02:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7018D77EBA5BB74BDA1A4C9A9B4C4622EBBA3697
 ```
 
 https://mybot314.ru/tekegram_catalog/

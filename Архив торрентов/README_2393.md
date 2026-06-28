@@ -1,31 +1,22 @@
-###  Публикация: 370850   (525404) от 02.08.2011
+###  Публикация: 1157240   (525829) от 10.08.2017
 
-DJ Kocmoc - Summer Pozitiv (31.07.2011) [MP3|320 kbps]<House, Club House>
+Встреча на далеком меридиане (1977) DVDRip (серии 1-3 из 3)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 Morris feat. Cortes - Uh La La (Extended Version)
-2 Инфинити - Ты мой герой (Club Remix)
-3 Darius & Finlay feat. Daz - Here Comes The Night (Pedro De Cabra Remix
-4 Amurai feat. Sean Ryan - Killing Me Inside (Original Mix)
-5 Within Temptation - Sinead (Groove Coverage Remix)
-6 DJ Solovey - Love In Da Music (Original Mix)
-7 Opium Project - Не реви (Dj Illinoise Extended Mix)
-8 Headstrong feat. Stine Grove - Tears (Aurosonic Progressive Mix)
-9 Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Cutmore Club Mix)
-10 Michael Yousher - Позови Меня(   Читать дальше...   )31.07.2011Жанр: House, Club HouseПродолжительность: 01:04:11
+Из истории сотрудничества советских и американских ученых в области физики. Главный герой — американский физик Николс Реннет едет в СССР. Впереди много серьезных научных и нравственных проблем.Производство: СССРЖанр: мелодрама, приключенияРежиссер: Сергей ТарасовАктеры: Владислав Дворжецкий, Василий Лановой, Альгимантас Масюлис, Любовь Альбицкая, Жанна Болотова, Валентина Шендрикова, Наталья Фатеева, Александр Вокач, Картлос Марадишвили, Владимир Сичкарь и др.Продолжительность: ~01:06:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A1F3B8E3E87F0CFD4AE5C9E9DCCB15D822D206E
+magnet:?xt=urn:btih:B27D465F669D91D19116E9DB08EBD2B8AC1BCE03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,49 +24,450 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 370822   (525400) от 02.08.2011
+###  Публикация: 1157148   (525828) от 10.08.2017
 
-VA - Зарубежные Клубные Новинки - Лучшее (2011) [MP3|320 kbps]<Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 .2011Жанр: ClubПродолжительность: 04:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991650B82571A7B085F94BE7D9B253F121682110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370650   (525396) от 02.08.2011
-
-Google Chrome 14.0.835.15 Dev [Русский\Multi]
+AnyMP4 Android Data Recovery 1.2.6 RePack by вовава [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome – это браузер, обеспечивающий более удобную, быструю и безопасную работу в Интернете, который имеет облегчающий работу упрощенный дизайн.
-Chrome спроектирован сотрудниками Google с нуля, а для обработки HTML использует движок Webkit, который уже применяет браузер Apple Safari.
-В отличие от других браузеров, Chrome для стабильности оформляет каждую вкладку как отдельный процесс. В случае, если содержимое вкладки зависнет, ее можно будет закрыть без риска потерять все данные в браузере.Язык интерфейса: Русский\Multi
+AnyMP4 Android Data Recovery 1.1.16 – это отличная программа для восстановления данных на Android телефонах и планшетах, которая может восстанавливать удаленные текстовые сообщения, фотографии, контакты, журналы вызовов, видео, фотографии и многое другое из Ваших Android телефонов/планшетов/ карты SD. Она поддерживает различные популярные Android устройства, такие (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293869244B97212858AFA914152420F0AE58F8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157213   (525821) от 10.08.2017
+
+Яндекс.Браузер 17.7.1.721 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214652BDBF54EA74D0C37F42CD31240A867219D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157021   (525818) от 10.08.2017
+
+Cumulative Update KB4034668 for Windows 10 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кумулятивное обновление KB4034668 для x86-x64 платформ, повышающее номер сборки Windows 10 Version 1507 до 10240.17533. Также в раздаче присутствует обновление для Adobe Flash Player KB4034662Язык интерфейса: Русский,Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E5320C862D3D458FA0B64C13C0B4D849C217F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156978   (525813) от 10.08.2017
+
+PDF-XChange Viewer Pro 2.5.322.6 Full / Lite RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525813.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-XChange Viewer - отличная программа для чтения и редактирования документов в формате PDF, которая сможет стать заменой для Adobe Reader. Программа обладает всеми возможностями для просмотра PDF документов, плюс ко всему, в отличие от других подобных программ, PDF XChange Viewer очень быстро открывает файлы и быстро обновляет содержимое прокручиваемых страниц. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E86CC35F40104F1627F00B5CC3CCE287815D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157228   (525807) от 10.08.2017
+
+Mozilla Firefox 55.0.1 Final [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свободный веб-браузер Mozilla Firefox на движке Gecko, ориентированный на приватность и безопасность в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений интерфейса и, как следствие, работать стало (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA522EF9480339AF252E0015F89549E61071070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157295   (525804) от 10.08.2017
+
+Набор обновлений UpdatePack-XPSP3-Rus Live 17.8.10 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор обновлений для Windows XP SP3 Rus x86. Ключевой особенностью набора является наличие тех же обновлений, какие содержит UpdatePack-XPSP3-Rus. Дополнительно включены обновления тех продуктов, которые являются частью операционной системы: Windows Media Player 9-11 и Internet Explorer 6-8, а также исправления ошибок локализации. Возможна установка полных версий (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F4478FF6F3BBF41BD90F58475B6B23306D79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157075   (525781) от 10.08.2017
+
+Total Commander 9.0a Extended 17.8 Full | Lite RePack (&Portable) by BurSoft [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный файловый менеджер под Windows - Total Commander в Extended версии - это новый взгляд на функциональность и стабильность!
+- x86 и x64 версии Total Commander + Portable в одном инсталляторе
+- на русском и английском языках
+- содержит оптимальный набор программ и плагинов(   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D98922DCCC18D6F8EFA3C0B367B3075B020EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370112   (525775) от 01.08.2011
+
+VA - Compilation Mixes Remixes Vol.3 (2011) [MP3|320 kbps]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert Marzinotto - Something is Goin' to Happen (Original Mix)
+02. Armand Pena feat. Kelly Davis - Tonight (Original Mix)
+03. Black Eyed Peas - Don't Stop The Party (Charles Le Freak Dirty Remix)
+04. Chris Reece Jennifer Needles - Never Let Me Go Feat Jennifer Needles (Extended Mix)
+05. Hard Rock Sofa & St Brothers - Blow Up (Thomas Gold vs Axwell Remix)
+06. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Клубная Mix)
+07. David Penn feat. Monia Amore - Ocean Drive (Open Your Mind)(DJ Chus & Abel Ramos Iberican Mix)
+08. Deejay House Project - Komodo 2011 (Original Mix)
+09. Erick Morillo Eddie Thoneick Ft. Shawnee Taylor - Live Your Life (DJ Chuckie Mix)
+10. Etienne Ozborne, Zoltan Kontes Feat. Polina Griffith - I Really Want To Say (Big Room Instrumental Mix)(   Читать дальше...   )2011Жанр: Dance, PopПродолжительность: 02:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF8CEFB9D021B8144BADAB0FFE86259280E8339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370303   (525768) от 01.08.2011
+
+VA - Remixing InFine (25.07.2011) [MP3|320 kbps]<Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agoria - Heart Beating (Fraction Radio Edit Remix)
+02. Aufgang - Channel 7 (You and Me Edit Remix by John Talabot)
+03. Danton Eeprom - Thanks for Nothing (Etienne Jaumet Remix)
+04. Aufgang - Dulceria (Clark Remix)
+05. Clara Moto - Deer and Fox (Stacey Pullen Remix)
+06. Francesco Tristano - The Melody (Balil Remix)
+07. Rone - Belleville (Clara Moto & Tyler Pope Remix)
+08. Arandel - In D#3 (Over You Vocal Remix by Bruno Pronsato)
+09. Apparat & Raz Ohara - Holdon (Modeselecktor Remix)
+10. Clara Moto - Deer and Fox (Ritornell Remix)25.07.2011Жанр: Tech HouseПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B633C552F08D89B12174CF966D68492ED47F7949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370125   (525764) от 01.08.2011
+
+VA - US TOP40 Single Charts (30.07.2011) [MP3|~240 kbps]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LMFAO Feat. Lauren Bennett and Goonrock - Party Rock Anthem
+02. Katy Perry - Last Friday Night
+03. Pitbull Feat. Ne-Yo, Afrojack & Nayer - Give Me Everything
+04. Nicki Minaj - Super Bass
+05. Adele - Rolling In The Deep
+06. Lil Wayne - How To Love
+07. Hot Chelle Rae - Tonight Tonight
+08. Lady Gaga - The Edge Of Glory
+09. Onerepublic - Good Life
+10. Bad Meets Evil Feat. Bruno Mars - Lighters(   Читать дальше...   )30.07.2011Жанр: Dance, PopПродолжительность: 02:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282BB7D2E0C86AD3B95DC1E4C9EC30637F36943C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370223   (525762) от 01.08.2011
+
+Nat King Cole, George Shearing - Nat King Cole Sings / George Shearing Plays (1962) [MP3|320 kbps]<Jazz Vocals>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - September Song (2:57)
+ 02 - Pick Yourself Up (3:10)
+ 03 - I Got It Bad (3:42)
+ 04 - Let There Be Love (2:43)
+ 05 - Azure-Te (3:54)
+ 06 - Lost April (3:18)
+ 07 - A Beautiful Friendship (2:39)
+ 08 - Fly Me To The Moon (3:30)
+ 09 - Serenata (3:01)
+ 10 - I'm Lost (3:29)(   Читать дальше...   )1962Жанр: Jazz VocalsПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92FE02123B55E0B4879F4FFBFE7E66D2471B1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370460   (525761) от 01.08.2011
+
+VA - Official Party Guide To St. Tropez (2011) [MP3|320 kbps]<House, Progressive House, Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belocca, Soneec - What A Feeling feat. Chappell - Lauer & Canard Remix
+ 02. Bernardo Garcia, Miami Husslers - Everyday feat. Thavy - L.O.N.D.O.N. Remix
+ 03. Blacksoul - Seduce Me - Belocca Remix
+ 04. Crazy Minds - Chasing Liberty - Original Mix
+ 05. DJ Fist, Lucas Reyes - Fucking Good - Blacktron Remix
+ 06. DJ Lewi, Grant Nalder - Resist - Original Mix
+ 07. Dohr & Mangold - Love No Pride feat. Corey Andrew - Muzzaik Mix
+ 08. Etienne Ozborne, Zoltan Kontes - I Really Want To Say feat. Polina Griffith - Original Mix
+ 09. Francesco Gomez - I Get No Sleep feat. Lety - Tune Brothers Remix2011Жанр: House, Progressive House, Deep HouseПродолжительность: 03:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB1E3CAD193A4720AECBADBC60750AD5E25F77A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369999   (525755) от 01.08.2011
+
+Olivia Ong - Romance (2011) [MP3|320 kbps]<Jazz, Vocal Jazz, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Theme
+02. When The Seas Run Dry And The Stones Go Soft
+03. Let It Rain
+04. Ready For Love
+05. Sing
+06. Invisible Wings
+07. The Silly Song
+08. Take It Easy
+09. Back To Life
+10. Amazing Grace2011Жанр: Jazz, Vocal Jazz, PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D9D1E60D7BF2CDBAB7EDF354469026B83890F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370067   (525754) от 01.08.2011
+
+VA - Top 30 Dance Club Play (30.07.2011) [MP3|~291 kbps]<Dance , Top>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - Save The World
+02. LMFAO ft Lauren Bennett & Goon Rock - Party Rock Anthem
+03. Alex Gaudino - What A Feeling
+04. Robyn - Call Your Girlfriend
+05. Bingo Players - When I Dip
+06. Alexandra Stan - Mr.Saxobeat
+07. Pitbull feat. Ne-Yo, Afrojack & Nayer-Give Me Everything
+08. David Guetta ft Taio Cruz- Little Bad Girl
+09. Kristine W - Fade
+10. Chris Brown Feat. Benny Benassi - Beautiful People(   Читать дальше...   )30.07.2011Жанр: Dance , TopПродолжительность: 02:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBADBAC21F6CF4AEC913E35BE7DB9C243BD1CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370439   (525752) от 01.08.2011
+
+Журнал | Автоцентр №31 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525752.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.2011Формат: PDF
 
 ## Скачать торент
 ```bash
@@ -87,25 +479,61 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 370503   (525393) от 02.08.2011
+###  Публикация: 370456   (525748) от 01.08.2011
 
-VA - Kommt Zusammen (2011) [MP3|320 kbps]<Tech House, Minimal Techno>
+Журнал | Обустройство & ремонт №31 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обустройство & ремонт — еженедельный каталог товаров и услуг для ремонта и строительства. В каждом номере издания содержится более 2000 объявлений различных компаний, а также рекомендации специалистов, обзоры, статьи, консультации юристов. Обустройство & ремонт – журнал практических советов, содержащий исчерпывающую информацию об актуальных товарах и услугах в этом сегменте рынка. Еженедельник предназначен для профессионалов и обычных людей, решивших заняться ремонтом.
+Сочетание информационных материалов с каталогом рекламных предложений делает издание уникальным и позволяет читателям осуществить оптимальный выбор товаров и услуг для ремонта.2011Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370140   (525744) от 01.08.2011
+
+VA - The Official UK Top 40 Singles Chart (31.07.2011) [MP3|320 kbps]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.2011Жанр: Tech House, Minimal TechnoПродолжительность: 01:19:46
+01. JLS Feat Dev - She Makes Me Wanna
+02. The Wanted - Glad You Came
+03. DJ Fresh Feat Sian Evans - Louder
+04. Ed Sheeran - The A Team
+05. Beyonce - Best Thing I Never Had
+06. Loick Essien Feat Tanya Lacy - How We Roll
+07. Pitbull Feat Ne-Yo, Afrojack & Nayer - Give Me Everything
+08. Amy Winehouse - Back To Black
+09. Katy Perry - Last Friday Night (T.G.I.F.)
+10. Nicki Minaj - Super Bass (Explicit Edit)(   Читать дальше...   )31.07.2011Жанр: PopПродолжительность: 02:28:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69D73CC9EB9E8235C44ED59C59CDF06629EF4711
+magnet:?xt=urn:btih:9CC4647999AD6432672643D516D315F63A81B339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,34 +541,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 370554   (525386) от 02.08.2011
+###  Публикация: 369125   (525741) от 01.08.2011
 
-Беги Пони - Поскакали! (2011) [MP3|320 kbps]<Ska Punk>
+Ahmad Reza Ahmadi, Mohammad Nouri, Fariborz Lachini - Dar Shab Sard Zemestani (In a cold winter night) (2011) [MP3|128 kbps]<persian traditional music>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро
-02. Ска-Регги-Ой!
- 03. Золотые кеды
- 04. Субботнее настроение
- 05. Победный гол
- 06. Остров
- 07. Про любовь
- 08. Город
- 09. Танцы
- 10. Сопливая(   Читать дальше...   )2011Жанр: Ska PunkПродолжительность: 00:33:56
+[27:51] 01.  Shabe Sarde Zemestani 1
+[28:52] 02.  Shabe Sarde Zemestani 22011Жанр: persian traditional musicПродолжительность: 00:56:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3BD19C439FEBB1D879BA1DC72DD3A527C4F07A3
+magnet:?xt=urn:btih:384AAFC3325C5CA27768625DD8422F6C4EE5F0C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -148,86 +568,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 370686   (525382) от 02.08.2011
+###  Публикация: 370494   (525733) от 01.08.2011
 
-Прожекторперисхилтон. Лучшие шутки. Выпуск №3  (2011) WEBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525382.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Прожекторперисхилтон" - новая программа Первого канала, премьера которой многих рассмешила, кого-то удивила, а некоторых даже возмутила (а чего еще ждать от проекта с таким названием?!).Сразу после премьеры Первый канал завалили письмами с вопросами. Создатели программы отвечают на самые популярные из них.- Действительно ли ведущие, оказавшись в эфире, не поздоровались со зрителями?- Действительно. Они были слишком увлечены беседой и не сразу заметили камеру.- Почему название программы пишется без пробелов?- У авторов названия западает клавиша "пробел".- Когда в "прожекторперисхилтон" появится Перис Хилтон?- Светлаков, который учился с ней в одном классе, сейчас как раз ведет с Перис активную переписку на "Одноклассниках" и занимается этим вопросом.- Почему Александра Цекало показали в анонсах, а в первом выпуске его не было?- По уважительной причине. Был в Америке, на свадьбе дочки Буша, тамадой. - Смех в студии - это фонограмма?- Нет. Кроме самих ведущих над их шутками (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: ~ 00:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920EABF0A6AD35FA2D7E23423B22CB6E318F170D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370531   (525376) от 02.08.2011
-
-[JAP] Игр@ / G@me (2003) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакума - успешный бизнесмен, занимающийся делами стоимостью в несколько миллиардов иен. В одном из его проектов заказчик Кацураги Кацутоси отказывается от услуг и Сакуму отстраняют. Гуляя с чёрными мыслями у дома Кацураги, Сакума видит, как из дома сбегает девушка. Он с знакомится с ней и узнаёт, что она дочь Кацураги - Дзюри. И внезапно Дзюри просит похитить её...Жанр: Детектив, ТриллерРежиссер: Исака СатосиАктеры: Накама Юкиэ, Фудзики Наохито, Исибаси Рё, Сиина Киппей, Кохината ФумиёПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 01:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4663FE788AFB36D58997D52D4051FF00711CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369489   (525367) от 02.08.2011
-
-Disrupt And Soom T - Ode 2 A Carrot (2011) [MP3|256-320 kbps]<Reggae, Dub>
+VA - Selected Gems (2011) [MP3|320 kbps]<Tech House, Techno>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roll It
-02. Boom Shiva
-03. Saved By A Ganja Leaf
-04. Never Get Caught
-05. Bring The Sensi
-06. Roll That Shit
-07. Puff The Police
-08. Puff That Weed
-09. I Need Weed
-10. Ganja Ganja(   Читать дальше...   )2011Жанр: Reggae, DubПродолжительность: 00:50:30
+01.2011Жанр: Tech House, TechnoПродолжительность: 00:59:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DB9416DE91990AF7E81D28068364C60EDC0A0F2
+magnet:?xt=urn:btih:56EECD80ADC9E34EC1A80CCDB243DCF12F9EFD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,51 +594,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 370684   (525366) от 02.08.2011
+###  Публикация: 369878   (525731) от 01.08.2011
 
-Прожекторперисхилтон. Лучшие шутки. Выпуск №2  (2011) WEBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525366.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Прожекторперисхилтон" - новая программа Первого канала, премьера которой многих рассмешила, кого-то удивила, а некоторых даже возмутила (а чего еще ждать от проекта с таким названием?!).Сразу после премьеры Первый канал завалили письмами с вопросами. Создатели программы отвечают на самые популярные из них.- Действительно ли ведущие, оказавшись в эфире, не поздоровались со зрителями?- Действительно. Они были слишком увлечены беседой и не сразу заметили камеру.- Почему название программы пишется без пробелов?- У авторов названия западает клавиша "пробел".- Когда в "прожекторперисхилтон" появится Перис Хилтон?- Светлаков, который учился с ней в одном классе, сейчас как раз ведет с Перис активную переписку на "Одноклассниках" и занимается этим вопросом.- Почему Александра Цекало показали в анонсах, а в первом выпуске его не было?- По уважительной причине. Был в Америке, на свадьбе дочки Буша, тамадой. - Смех в студии - это фонограмма?- Нет. Кроме самих ведущих над их шутками (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: ~ 00:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA102E0B708CCA7F51D56569AAAC9F91983763F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370512   (525365) от 02.08.2011
-
-VA (Deep Purple) - Pre-Purple People (2001) [MP3|320 kbps]<Hard Rock>
+VA - 100 Lights Away From Home: The Collaborations Compilation (2011) [MP3|320 kbps]<Breaks>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BЖанр: Hard RockПродолжительность: 01:05:14
+01.2011Жанр: BreaksПродолжительность: 01:48:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9A0469CBE42339428109D21FE8B2B66115A8668
+magnet:?xt=urn:btih:7403D9DD6C31E6343A59CF16C3A469C205E167F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,453 +620,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 370764   (525356) от 02.08.2011
+###  Публикация: 370475   (525729) от 01.08.2011
 
-Выжить вопреки (2009) SATRip
+VA - Old Dance Remix Vol.32 (2011) [MP3|320 kbps]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy - Touch By Touch (Radio Version 2011)
+02. 4Th Floor vs. Umberto Tabbi - Ciao Siciliano (Club Mix)
+03. T-Project - Sexy Sexy Lover (Oryginal Edit)
+04. C.C.Catch & Juan Martinez - Back Seat Of Your Cadillac (Dancefloor Remix)
+05. Haddaway - What Is Love 2011 (Vini Remix)
+06. DJ'sProject - Vision O Flove (Extended Vocal Version)
+07. Activate - I Say What I Want (Video Mix)
+08. Blue Lagoon - Break My Stride 2011 (Stay & Play Refresh)
+09. Bryce feat. Carlprit - Dance With Me (Remix 2011)
+10. Heat Hunter The Pleasure Company - Revolution In Paradise (Extended Straight Mix)(   Читать дальше...   )2011Жанр: Dance, PopПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E293668230CB3F865BCBD20DCAB2F95DBF3FDF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369612   (525723) от 01.08.2011
+
+Bizness Band - ... И хищники получают еще одну кость (2011) [MP3|320 kbps]<Punk Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Раздели себя
+02. Конец света
+03. Сила его в тебе
+04. Беглецы и бродяги
+05. Еще вчера
+06. Корабли
+07. Битва за небеса
+08. Эпическая
+09. Я верю2011Жанр: Punk RockПродолжительность: 00:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B56A2B1D4FDF455D3E8E1918F40F5EFA1163B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369756   (525722) от 01.08.2011
+
+Жока - Остров Любви (2011) [MP3|320 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поскорей
+02. Ты уже не моя
+03. Остров
+04. Карета счастья (Дуэт с Бока)
+05. Подари
+06. Сирумем кез
+07. Мама
+08. Впервые я влюбился
+09. Друзья
+10. Не отпускай(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A0A43FD3E8FEB01468CE3336E0BE262E30E117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369830   (525715) от 01.08.2011
+
+Svartsot - Maledictus Eris (2011) [MP3|320 kbps]<Viking Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staden...
+02. Gud Giv Det Varer Ved!
+03. Dodedansen
+04. Farsoten Kom
+05. Holdt Ned Af En Tjorn
+06. Den Forg?ngelige Tro
+07. Om Jeg Lever Kveg
+08. Kunsten At Do
+09. Den Nidske Gud
+10. Spigrene(   Читать дальше...   )2011Жанр: Viking Folk MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E9CE0DBAB56E02F1152B01F2394A6A3D3FAAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370246   (525712) от 01.08.2011
+
+С секретом по жизни (2010) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Без воздуха человек может прожить пять минут. На морозе, без одежды, погибнет через два-три часа. Жару +70 выдержит не больше пятидесяти минут. Без воды вытерпит 5 суток.
-Это обычные – средние – возможности человека. Но иногда происходит невероятное – человек переходит предел своих возможностей. И остается в живых. Вопреки логике и здравому смыслу.
-27 мая 1995 года в Нефтегорске произошло самое разрушительное землетрясение за последние сто лет. Всего за 17 секунд 17 панельных жилых домов сложились, как карточные домики, и превратились в груду бетона. На четвертые сутки среди развалин спасатели нашли двухмесячную Дашу Ягудину. У ребенка не было ни одной серьезной травмы.
-10 июля 2008 года в Цимлянске Ростовской области от выброса ядовитого газа в канализационном люке отравились три сантехника. Надежды на спасение практически не было. После отравления метаном люди, как правило, умирают, не приходя в сознание. Один сантехник скончался на месте, второй – в машине скорой помощи. До больницы довезли только Владимира (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Егор МорозовФормат: AVIПродолжительность: 00:51:38
+С самого детства мы сталкиваемся с загадкой. Как сделать свою жизнь благополучной и успешной? Как достичь счастья и процветания? Про тех кому удавалось прожить долгую и успешную жизнь говорили - они знают секрет. Герои этого фильма люди. добившиеся успеха в самых разных областях. Они ставили перед собой цели и достигали их там, где другие отступали. Они счастливы и живут в гармонии с окружающим миром. И все это благодаря тому, что однажды они открывали секрет. Свой секрет. Ведь универсального секрета не существует. Как открывается секрет счастья в реальной жизни, расскажет этот фильм.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE607B2957A383908365E5D86C556CBCAE1513D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370775   (525353) от 02.08.2011
-
-Chakra GNU/Linux 2011.04-r2 [i686 + x86_64] (2xCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков представила Chakra GNU/Linux 2011.04. Дистрибутив основан на Arch Linux. В этой версии были обновлены: до версии 4.6.5 обновлен KDE (с добавлением собственных патчей chakra), усовершенствована система определения аппаратных средств, добавлены последние версии драйверов. Среди других изменений: CInstall получил новый интерфейс; обновлена тема Burg; завершена переработка скриптов init; добавлена поддержка systemd; выполнены небольшие исправления некоторых пакетов. Chakra GNU/Linux 2011.04-r2 использует ядро 2.6.39, стек X.Org 7.6 с Mesa 7.10.3 и X.Org Server 1.10.3.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370099   (525349) от 02.08.2011
-
-29 книг из серии "Фрам" [2004-2010] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данную серию книг под названием "Фрам" составил Макс Фрай. Сюда вошли как отдельные романы так и целые сборники. Представленные книги написанные Максом Фрайном и другими талантливыми авторами.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70125A46F6AD61C38C1958317E26C53F53D86B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370237   (525344) от 02.08.2011
-
-Ночь страха / Fright Night (2011) [трейлер] WEB-DLRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525344.jpg" />
-</div>
-
-
-###  Подробнее
-
-У старшеклассника Чарли Брюстера дела пошли в гору: он стал частью крутой тусовки и начал встречаться с самой популярной девочкой в школе. Он даже начал подкалывать своего лучшего друга. Но внезапно все меняется. Новый сосед Джерри, кажется, на первый взгляд обычным человеком, но Чарли чувствует неладное. Все вокруг, включая маму Чарли не замечают ничего подозрительного. Установив наблюдение за соседом, Чарли узнает страшную тайну: его сосед — вампир! Отчаявшись убедить в этом окружающих, Чарли решает найти способ избавиться от монстра лично.Жанр: Ужасы, ТриллерРежиссер: Крэйг ГиллеспиАктеры: Колин Фаррелл, Антон Ельчин, Дэвид Теннант, Кристофер Минц-Плассе, Тони Коллетт, Имоджен Путс, Дэйв Франко, Рейд Юинг, Тина Борек, Сандра ВергараПеревод: ДублированныйПродолжительность: 00:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7D9B678C793ABDA1C354786955076C066E0AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370538   (525333) от 02.08.2011
-
-Ziggy Marley - Wild and Free (2011) [MP3|320 kbps]<Reggae>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wild And Free Ft. Woody Harrelson
-2. Forward To Love
-3. It Ft. Heavy D
-4. Changes Ft. Daniel Marley
-5. Personal Revolution
-6. Get Out Of Town
-7. Roads Less Traveled
-8. Mmmm Mmmm
-9. Welcome To The World
-10. A Sign(   Читать дальше...   )2011Жанр: ReggaeПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17A1BBE544BA32D102EF23B92A6DA1B4C03DE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370457   (525317) от 02.08.2011
-
-Камера 211 / Celda 211 (2009) [1080i] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хуан — полицейский, пришел наниматься надзирателем в тюрьму. Знакомство с новым рабочим местом оказалось роковым. Он попал в переделку, и ему пришлось прикинуться заключенным, чтобы спасти свою жизнь. Этот шаг поставил его на тонкую грань выживаемости.Жанр: Боевик, ДрамаРежиссер: Дэниэл МонсонАктеры: Карлос Бардем, Луис Тосар, Альберто Эмманн, Марта Этура, Антонио Ресинес, Луис Захэра, Маноло Соло, Жезуш Карроза, Феликс КубероПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:47:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370528   (525314) от 02.08.2011
-
-Маленькие гиганты / Little Giants (1994) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Урбанию, штат Огайо, где живут братья Дэнни и Кевин. Имя бывшей футбольной «звезды» Кевина красуется на городской водонапорной башне. А имя Дэнни вы найдете разве что в телефонном справочнике.
-
-Много лет успехи брата нависают над Дэнни, как та водонапорная башня. Но когда Кевин исключает дочь Дэнни из футбольной команды, терпению Дэнни приходит конец…Жанр: Комедия, СемейныйРежиссер: Дуэйн ДанэмАктеры: Рик Морэнис, Девон Сава, Алекса Вега, Эд О'Нил, Шона Уолрод, Тодд Босли, Майкл Цвинер, Дэнни Притчетт, Трой Симмонс, Сэм Хорриган, Джои Симмрин, Маркус Тодзи, Мэттью МакКерли, Брайан Хейли, Джон Пол Стюер, Мэри Эллен Трейнор, Сузанна Томпсон, Джо Бэйз, Марк Холтон, Бонни Хеллман, Майкл П. Бирн, Майкл Монкс, Ф. Уильям Паркер, Кортни Пелдон, Гарри Ширер, Даббс Грир, Уилли С. Карпентер, Жанна Майклс, Майрон Хили, Рэнс ХовардПеревод: Многоголосый закадровыйПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080E879EBBE2023B25B7323D296CF959C48701C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370541   (525310) от 02.08.2011
-
-Alpha Blondy - Vision (2011) [MP3|320 kbps]<African Reggae>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525310.jpg" />
-</div>
-
-
-###  Подробнее
-
-03. Trop bon
- 04. Pinto (mon kôyaga préféré)
- 05. C'est magic
- 06. Tu mens
- 07. Ma tête
- 08. Vuvuzela
- 09. Bôgô
- 10. Ces soi-disant amis
- 11. Massaya
- 12. Le cha-cha-cha du cfa(   Читать дальше...   )2011Жанр: African ReggaeПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5A5A2C87E00EF564F6B23AB9078C0E91AF09B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370604   (525294) от 02.08.2011
-
-Журнал | Computer Bild №16 [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Computer Bild крупнейший в Европе журнал о компьютерах и цифровой технике. Каждые две недели журнал представляет последние новости компьютерной индустрии, статьи и советы для интересующихся интернетом, аудио-, видео-, фототехникой. Уникальная редакционная концепция базируется на практических рекомендациях по выбору программ и оргтехники, основанных на результатах объективных тестов, проведенных в собственных лабораториях журнала в России и Германии.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C2B22681637A5297E41D3C5BC55D5119185025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370818   (525289) от 02.08.2011
-
-Викинги / Outlander (2008) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришелец из далекой галактики терпит крушение на Земле во времена викингов. Однако он оказался не единственным выжившим в аварии. Опасный инопланетный хищник, содержавшийся в заточении на корабле, вырвался на свободу, и главному герою предстоит отыскать и уничтожить его с помощью одного из кланов викингов.Жанр: Фантастика, Боевик, ПриключенияРежиссер: Ховард МакКейнПродюсер: Крис Робертс, Нейшо Али, Джоди ХестонАктеры: Джеймс Кэвизел, София Майлс, Джек Хьюстон, Рон Перлман, Джон Хёрт, Джон Бил, Кэти Бергин, Мэтт Кук, Эйдан Дивайн, Стефани ГоберПеревод: Многоголосый закадровыйПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370725   (525288) от 02.08.2011
-
-CD Art Display 3.0 beta 1472  Multi(русского нет)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525288.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD Art Display – довольно таки популярная программа для управления аудиоплеером с рабочего стола. В утилите есть поддержка скинов, коих довольно много в сети благодаря популярности программы. Кроме того имеется встроенный редактор скинов,во время простоя можно использовать для слайдшоу.
-
-CD Art Display отображает обложку альбома, информацию о воспроизводимом треке, рейтинг, время звучания. Программа имеет поддержку таких проигрывателей как: AIMP2, iTunes, Winamp, Windows Media Player, MediaMonkey, foobar2000, AlbumPlayer, Helium Music Manager, Quintessential Media Player, MP3Toys и musikCubeу. Распространяется бесплатно, имеет англоязычный интерфейс.
- Скины высокой графики.
-Некоторые скины хотят только бету.Язык интерфейса: Multi(русского нет)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370355   (525275) от 02.08.2011
-
-Чаки: Детские игры / Child's Play (1988) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не поверил шестилетнему Энди Барклаю, когда он сказал, что его новая кукла по имени Чаки — живая. А когда няня мальчика погибла, выпав из окна, он сказал своей матери и следователю чистую правду: «Это сделал Чаки».
-Когда душа убийцы вселяется в невинно выглядящую куклу, никто кроме маленького Энди не осознает, что Чаки виновен в захлестнувшей город волне страшных убийств. Но настоящий ужас наступает тогда, когда дух злодея вознамеривается переселиться из куклы в живого человека.Жанр: Ужасы, Триллер, ДетективРежиссер: Том ХолландАктеры: Хуан Рамирес, Дайна Мэнофф, Томми Свердлоу, Джек Колвин, Нил Джунтоли, Брэд Дуриф, Алан Уайлдер, Алекс Винсент, Крис Сарандон, Кэтрин ХиксПеревод: Профессиональный одноголосый (Tycoon)Продолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED86FA907B4CCBC4938B685C401DCDC2AC05C3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370587   (525265) от 02.08.2011
-
-Пастырь / Priest (2011) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекое будущее. Миром правят религия и церковь. Священник, нарушая все церковные запреты, пытается выследить банду вампиров, похитивших его племянницу. В поисках ему помогают шериф и монахиня.Жанр: ужасы, фантастика, боевик, триллерРежиссер: Скотт Чарльз СтюартАктеры: Пол Беттани, Карл Урбан, Кэм Жиганде, Мэгги Кью, Лили Коллинз, Брэд Дуриф, Стивен Мойер, Кристофер Пламмер, Алан Дэйл, Медкен ЭмикПеревод: ДублированныйПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370811   (525262) от 02.08.2011
-
-Blur [Ru] (Lossless RePack/1.024) 2010 | -=Hooli G@n=-
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: Разработчик: Bizarre CreationsЖанр: Arcade / Racing (Cars) / 3DЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C027F03A5A0F87B4A2CA0EA021C5A6AA08C9FFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370546   (525260) от 02.08.2011
-
-BBcreator 2.2.0.5 - легкое создание раздачи [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможности программы:
-1) Создание раздач для разделов "Видео/Музыка/Игры/Программы"
-2) Заливка постера и скринов в галерею
-3) Автообновление
-4) Получение информации о фильме с сайта kinopoisk.ru
-5) Получение информации о альбоме с сайта lastfm.ru
-6) Получение информации о видео/аудио файле
-7) Более полный шаблон для создания раздачи
-8) Отправка созданной раздачи из программы на трекер
-9) Работа с шаблоном(   Читать дальше...   )Разработчик: BBCreatorЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370716   (525256) от 02.08.2011
-
-MyLanViewer 4.7.2 [Eng + Rus] + Portable
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525256.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyLanViewer - программа для сканирования и мониторинга компьютеров в сети, с возможностью поиска общедоступных файлов в их общих ресурсах. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда состояние одного из них изменится.
-Также вы можете видеть и управлять своими общими ресурсами, запрещать их и закрывать к ним сессии. Программа легка в установке и использовании, имеет дружественный и красивый интерфейс.Язык интерфейса: Eng + Rus
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:999B53BB054DC59DE05CA7EF2A4A075FE941947D
 ```
 
 https://mybot314.ru/tekegram_catalog/

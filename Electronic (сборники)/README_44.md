@@ -1,3 +1,148 @@
+###  Публикация: 1004489   (838622) от 06.04.2016
+
+VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House, Bigroom, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Pasquini - Qoaster 05:01
+02. Tara Mcdonald Feat. Snoop Dogg - Vay-K (Adam Trigger Remix) 04:30
+03. Talemono - Overload (Radio Edit) 03:11
+04. Relika & Dj Turtle - Jungle Them 04:52(   Читать дальше...   )Жанр: Progressive, Club, House, Bigroom, TropicalПродолжительность: 08:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004590   (838528) от 06.04.2016
+
+VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-NoiZe vs. SpaceCat - No Rules 06:43
+02. Iliuchina - Lucid Dream 06:47
+03. X-NoiZe & Volcano - Volcanoize 06:49
+04. Capital Monkey vs. Burn in Noise - Capital Noise 06:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, PsyTranceПродолжительность: 02:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773ECCB049A39917609393B113962705CE1DFC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004304   (838523) от 06.04.2016
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #161 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wach & Leven Mervox - Whiteout (Original Mix) 06:38
+02. Luke Terry ft. Love Dimension - Phoenix (Original Mix) 05:45
+03. Witness45 feat. Jess Morgan - Lightspeed (Original Mix) 05:36
+04. Kayan Code feat. Juha V - Tear From The Stars (Original Mix) 06:07(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5213BD6D33DF027C3168BB5F3AF292CFC4BA86E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004280   (838522) от 06.04.2016
+
+VA - Deeper Than Deep: A Brilliant Selection of Soulful Deep House Grooves (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dava Di Toma - My Way
+02. Zirkuskind - People Are People - Christian Bruder Long Beach Style Mix
+03. 7Register - Arizon
+04. Joyfull Family - Fresh(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B005FCBBDFCFBD92A1CE1F575B5F08B18E3EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004493   (838521) от 06.04.2016
+
+VA - Miami The Warm Up (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BRKLYN - Steal Your Heart (Bougenvilla Radio Mix) (feat. Lenachka) 02:53
+02. Noah Neiman - Meteorites (Original Mix) (feat. Haliene) 04:58
+03. WildOnes - You Dancing (Inpetto Remix) (feat. David Julien) 04:27
+04. Audien - Keep This Memory (Original Mix) 08:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0599BD704010FEBA08BACDF992B8618FADF5575B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004376   (838520) от 06.04.2016
 
 VA - Innocent Magic Future Spring (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
@@ -603,151 +748,6 @@ VA - EDM Volume 2 Heads Phone (2016) [MP3|320 кб/с] <Electro House, Big Room,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1A26AA00E5D3FB00210959EC10D70C00C14A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005208   (834831) от 08.04.2016
-
-VA - Heavens Waiting: Chillout Session (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chillwalker - Heaven's Waiting (Vocal Mix)
-002. Slow Rhythms - Waiting for the Dawn
-003. Lady White - Let Me Try (Ripping Mix)
-004. Steen Thottrup - Save a Little Prayer - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9918FE9A1262BD33A4BAD6118DC20A2C729C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005288   (834721) от 08.04.2016
-
-VA - We Love Club Weapons Vol.2 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kid Massive - Ready to Rock (Radio Edit) 03:32
-02. Gino Montesano - Sunglasses At Night (Edit) 03:32
-03. Strobe - Angel (Strobe Mix) 05:54
-04. Weigold - Spread Love (Patrick Hofmann Remix) (Feat. Anna S.) 05:05(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AC7E807D2467583109BDA991430C48B9070A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004750   (834705) от 08.04.2016
-
-VA - Hypnotized By Electro Dance Dream Vol.3 (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrit Kurtaim, Matthew Brown - Remember Me (ft Kitty Blond) 05:35
-02. Chris Nasty - Silence Never Comes (ft Ners) 06:10
-03. Gubellini, Pain - The World Never Sleeps (ft MC Fixout) (Symo Remix) 06:23
-04. 4 Faces - I Need It (ft Marcus Pearson) (Clubby Dub) 06:35(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A1C423C763B8CE6654194F385285FB0A1F9540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004980   (834703) от 08.04.2016
-
-VA - DJ Dance Liga - Club Electro House (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Betatesters - Drop That (EDM Cardio Mix) 03:24
-002. Moombah Jack - Fuego (Pump It Up Mix) 03:50
-003. Miami Dance DJ Absinth - Shake That Ass (Ultimate Dance Workout Version) 03:32
-004. American Groove Junkies - Reach You (House Lounge Mix) 04:44(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 11:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F33F2313B28AA2BA1FC54DDA63FD4F6AACCD778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004782   (834575) от 08.04.2016
-
-VA - Falling in Love with Lounge Music 100 Sexy Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aqua Mundi - Sweet Suggestions [05:32]
-002. B.Infinite - First Contact [07:42]
-003. Bonsugi - Guitars and Bad Girls [05:54]
-004. The Soul Elephant - Nobody [05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F0F5023B7AFF9F6D66588E0166DD6B3ECEE0ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

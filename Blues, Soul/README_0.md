@@ -549,6 +549,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468285   (1017171) от 07.05.2021
+
+Van Morrison - Latest Record Project Volume I (2021) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Latest Record Project
+2. Where Have All the Rebels Gone
+3. Psychoanalysts' Ball
+4. No Good Deed Goes Unpunished(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938AA2CFB8C3C7A25633D300055E7A40F7E237C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470640   (1015590) от 17.05.2021
 
 VA - Stormy Monday Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ Roberta Flack - Quiet Fire (1970) 50th Anniversary Edition, 2021 Remaster [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F9B828595F03650DD4A60FCBB7BC8232493EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480229   (1008940) от 28.06.2021
-
-Gary Eisenbraun - Throwing Stones (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Talkin' Anymore (05:03)
- 02. Over(Ture) (01:15)
- 03. Right Thing, Wrong Time (06:59)
- 04. Stranger Than Fiction (03:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51E7CC55064C90317D9C1F4C8E91222FD784F5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

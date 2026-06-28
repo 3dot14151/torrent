@@ -1,3 +1,38 @@
+###  Публикация: 614293   (977300) от 08.02.2013
+
+Andrea Bocelli - Passione [Deluxe Edition] (2013) [MP3|320 кб/с]<Pop/Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfidia
+02. Roma Nun Fa' La Stupida Stasera
+03. Champagne
+04. Anema E Core
+05. Quizás Quizás, Quizás (Duet With Jennifer Lopez)
+06. Era Gia' Tutto Previsto
+07. Tristeza
+08. La Vie En Rose (Contains Excerpt Performed By Edith Piaf)
+09. Corvovado - Quiet Nights Of Quite Stars (Duet With Nelly Furtado)
+10. Sara' Settembre (September Morn)(   Читать дальше...   )Жанр: Pop/Classical CrossoverПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859456C1C9D1ACCDBC808CC1924CDB41A5AEEE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612579   (977236) от 08.02.2013
 
 Madonna - The Best Songs (2013) [MP3|320 кб/с]<Pop>
@@ -728,35 +763,6 @@ VA - Best Dance Hits Winter (2016) [MP3|320 кб/с] <Pop Dance, Euro Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB54C7FBBAD7801E15D2F7AEBBCA043F3E4AC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981083   (952596) от 31.01.2016
-
-VA - Ultimate 90's - 4CDs of the greatest music from the 1990's (2015) [MP3|320 кб/с] <Pop, Dance, Retro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 CD - 18 tracks - 01:11:13
-2 CD - 18 tracks - 01:10:55
-3 CD - 17 tracks - 01:04:47
-4 CD - 18 tracks - 01:08:02Жанр: Pop, Dance, RetroПродолжительность: 04:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8903C8BB6CEDCCFEC90857F1226D56282B56C171
 ```
 
 https://mybot314.ru/tekegram_catalog/

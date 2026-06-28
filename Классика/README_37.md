@@ -1,3 +1,32 @@
+###  Публикация: 949674   (367886) от 27.10.2015
+
+Rachmaninov - Piano Concerto No.2, Etudes-Tableaux (Valery Gergiev & London Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Concerto, Post-Romantic, Character Piece, Etude>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 2 in C minor, Op. 18
+01. Moderato; Allegro (11:33)
+02. Adagio sostenuto (11:46)
+03. Allegro scherzando (11:30)(   Читать дальше...   )Жанр: Classical, Concerto, Post-Romantic, Character Piece, EtudeПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024B6717AC4AD301D6098EC6EEC230A1A67AD7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948703   (367871) от 27.10.2015
 
 Chopin - 24 Preludes op.28 (Orchestral Version) (2002) [FLAC|image +.cue]<Classical, Romantic Period, Preludes>
@@ -726,35 +755,6 @@ Jordi Savall, Hesperion XXI - BAL·KAN Miel et Sang - Honey and Blood [3CD] (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B485B6E9737A11F3D4EBDE861D5B9AAE64AF3AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329600   (349605) от 06.10.2019
-
-RIOPY - Tree of Light (2019) Warner Classics [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tree of Light - A Call to Arms (2:34)
- 02. Ukiyo (3:55)
- 03. Flo (3:53)
- 04. Summer Night (5:10)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD4EC227DDBE096E68F31FF6431D83A7C8A0983
 ```
 
 https://mybot314.ru/tekegram_catalog/

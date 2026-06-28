@@ -1,3 +1,119 @@
+###  Публикация: 961735   (294718) от 04.12.2015
+
+Ricchi E Poveri - The Collection (1998) [FLAC|tracks+.cue]<Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamma Maria (2:56)
+02. Amarsi un po (3:24)
+03. Dimmi quando (3:29)
+04. Buoananotte Fiorellino (3:02)(   Читать дальше...   )Жанр: Italo-Disco, DiscoПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9102AD6E31DC3427128183FEA7F9DE41464AA2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961715   (294583) от 04.12.2015
+
+Al Bano & Romina Power - The Collection (1998) [FLAC|tracks+.cue]<Vocal, Ballad, Schlager>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felicità (3:15)
+02. It's Forever (2:59)
+03. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
+04. Io Ti Cerco (3:39)(   Читать дальше...   )Жанр: Vocal, Ballad, SchlagerПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078C98149BE24A0F0CAAA15E1938239288D16F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335895   (284402) от 04.11.2019
+
+VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirko Hirsch - Fire (Long Version) (7:08)
+02. Galaxy Hunter - Running High (4:24)
+03. Retronic Voice - Menace To Society (5:08)
+04. Tiziana Rivale - Take Me In Your Arms (3:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45968B7D217E21709D37719678877EDEBCB1F95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335899   (284261) от 04.11.2019
+
+VA - Italo Eurobeat Collection Vol. 1 (2019) 2CD [FLAC|Lossless|tracks + .cue] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiorama - Aliens 2 (The Nightmare) (Alieno Mix) (6:41)
+02. Gipsy & Queen - Love (Mixmaster Remix) (6:32)
+03. Mr. Zivago - Love In Moscow (Extended Version) (5:16)
+04. Atrium - Midnight Dancer (Extended Version) (7:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB54783102FAA7657D63610937907224E9EC199F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186689   (284243) от 26.11.2017
 
 Martinelli - Voices (1987) Compilation, Unofficial [APE|Lossless|image + .cue] <Italo-Disco>
@@ -642,120 +758,6 @@ Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E135DB30A897C68A0D836EB97E7CBE561DED7B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636252   (241026) от 29.05.2023
-
-Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Of Change
-02. Heartbeat
-03. Lost In Paris
-04. The Years (Go By)Жанр: Italo-DiscoПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD28D96A3A1414F4E88FEF3BB0EBF6875F089D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631969   (235924) от 08.05.2023
-
-Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now
-02. Can't Escape From You
-03. Angel Of Love
-04. I Love Fashion(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F1CF6DACD3AED0642B2A7D6AEB957947313D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576133   (235663) от 12.09.2022
-
-Giorgio Moroder - From Here To Eternity / E=MC2 (1977, 1979) Reissue, Remastered [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235663.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 - From Here To Eternity
-1979 - E=MC2Жанр: Disco, Electronic |Продолжительность: 01:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A858DE05C74169E8E5BCAC01B2A22DBB4A68DDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632105   (235565) от 08.05.2023
-
-Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Part of You (Edit)
-02. A Part of You (Club Mix)
-03. A Part of You
-04. A Part of You (Club Mix Instrumental)Жанр: DiscoПродолжительность: 00:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BBC3395ECC96DC4E0CDB90A180DBDBA6B97868
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1877687   (1074195) от 
+
+Сборники - ClashiVFX - All-In-One Bundle Todos los Productos [CUBE, WAV, MOGRT, LOOK, FFX, MOV, MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074195.jpg" />
+</div>
+
+
+###  Подробнее
+
+All-In-One Bundle Todos los Productos — это крупнейший комплект ресурсов от ClashiVFX, объединяющий практически всю линейку продуктов для видеомонтажа, моушн-дизайна и постобработки. В набор входят шаблоны титров для Premiere Pro, After Effects и DaVinci Resolve, VFX-эффекты, LUT-паки для цветокоррекции, коллекции звуковых эффектов, плагины автоматизации рабочего (   Читать дальше...   )Формат: CUBE, WAV, MOGRT, LOOK, FFX, MOV, MP4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44480293DBBE485A3B634733F5508FD2BC1C1219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873289   (1071173) от 27.05.2026
 
 Сборники - Film-Space - The Ultimate Master Bundle V2 [CUBE, WAV, MOGRT]
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C94207D7C0BE9C1238631D2ABA5D8D3EC0C7D6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467240   (1017832) от 03.05.2021
-
-Сборник - Joel Grimes - Photographer Branding Toolkit [PSD, TTF, OTF, ACO, ASE]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте вашу фотографию заметной. От Facebook и YouTube до визиток и фирменных бланков - получите инструменты, необходимые для создания бренда с помощью вашей фотографии, которая будет выделяться.Формат: PSD, TTF, OTF, ACO, ASE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4808AA2DB8A7535E1068A0A2E77A26E67305A1F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

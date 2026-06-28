@@ -1,3 +1,148 @@
+###  Публикация: 931878   (511115) от 27.08.2015
+
+VA - Carnaval House (2015) [MP3|320 кб/с]<Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shashaf - Beat of Ganesh (4:56)
+02. Pasqual Merell - Night Start (5:53)
+03. Paul Schulleri - Induktion (Guevara Remix) (6:43)
+04. Dan & Hell - Venus (7:47)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8622BC0910E40EADDA286B1D7D7A1FC878B7461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931891   (511111) от 27.08.2015
+
+VA - Lounge Deluxe Collection [Cane Garden Bay Records] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Feeling Free
+02. Cane Garden Quartet - Colours of Love
+03. Enrico Donner - Golfinhos
+04. Aquarius - Dissonant Looks(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595E1E94A0EAD9A8ACEBCD5CC36C4153D0D0F75A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931811   (511109) от 27.08.2015
+
+VA - A Chill House Affair Vol. 1 (60 Fantastic Summer Tunes) (2015) [MP3|320 кб/с]<Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Vega - Funky Ibiza (4:41)
+02. Plaza - Plaza's Store (3:00)
+03. The Loungers - Silk Trade (5:18)
+04. Alan Palmieri - Catarroia (4:39)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 04:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B1C3193CD42D24602EC85C8BF3A8D1FDC88928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931723   (511092) от 27.08.2015
+
+VA - Playlist: Best Of Lounge & Chillout Playlists (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Luna - Gate 88 (3:54)
+02. Double Go - Well & Ness (3:50)
+03. So Phistry - Lounge Me (5:11)
+04. Light in Color - Leaving (3:12)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B85CFA30BC10B84C39FDBE5633230E367ADB542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315718   (511077) от 22.07.2019
+
+VA - HGM International House Departures (2019) [MP3|320 Kbps] <Electro, Dance, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steve Angels - Every Moment (Instrumental Mix)
+002. Nacim Ladj - Cofee And Sigaretes
+003. Nuvex - One For You (Radio Edit)
+004. Djcybertsai - Mechatropolis (Original Mix)(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 10:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7EEB7819A026736B7CC86BC2BB8ABE913C6B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931754   (511017) от 27.08.2015
 
 VA - Beatport Trance Top 100 August [edited by ZIMIANDR] (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance, Progressive Trance>
@@ -612,151 +757,6 @@ VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932837   (508316) от 30.08.2015
-
-VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jox Talay - SLS Pool
-02. Hoboken - Lampedusa Lounge
-03. Sonaya - Palma de Lounge
-04. Belloq - Bellini Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B5C408465FC37FA4BFDD8C44CADAD4130EB84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932597   (508165) от 30.08.2015
-
-VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508165.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danny Byrd - Golden Ticket (Feat. Tanya Lacey)
-002. Sanz - Ghatam
-003. Calm Groove - Future Time
-004. Madd Inc - EverydayЖанр: Drumm and Bass, DubstepПродолжительность: 08:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933226   (507247) от 31.08.2015
-
-VA - Bizarre Del Mar Top 30 Downbeat Moments and Best of Deluxe Erotic Bar and Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guilty by Innocence - I Feel You (In My Mind) - Erotic Bondage Moment Remix
-02. Mr. Sax and Ms. Beat - Ocean Serenade - Intimate Love Makers Edit
-03. Right Fakers - Diamonds and Ladys - Deluxe Cafe Lounge Cut
-04. Symbol Chains - Hotel Del Mar - Relaxed Waves Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2EA1053E5CA52EFF69387C82188671A195561DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932965   (507241) от 31.08.2015
-
-VA - Deep House and Techno - Dream Selection 2010-2015 vol.1 (2010-2015) [MP3|240-320 кб/с]<House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Late Night Alumni - Seemingly Sleepy [03:40]
-02. Max Duke - Undefined Time [06:42]
-03. Kaliber - Kaliber 15.1 [06:54]
-04. Oliver Schories - Go (Einmusik Remix) [06:54](   Читать дальше...   )Жанр: House, TechnoПродолжительность: 05:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA6C249BDC8000164157215BAB963D98347AC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933204   (507180) от 31.08.2015
-
-VA - Extra Trance (episode 6) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Rull - Unsere (Original Mix) (06:47)
-02. Jes - Two Souls (Torio Remix) (05:39)
-03. Etasonic - Tears For You (Radio Edit) (04:12)
-04. Dash Berlin & Disfunktion feat. Chris Arnott - People Of The Night (Edit) (04:02)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41B469EB916B47454F1C5EC9B4C60B6882FEFA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

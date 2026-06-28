@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1877187   (1073760) от 20.06.2026
+
+Cisco Modeling Labs 2.10 [x86_64] 1xDVD+.OVA
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisco Modeling Labs (CML) 2.10 — это флагманская официальная платформа виртуализации сетевых систем от Cisco. В отличие от симуляторов (типа Packet Tracer), CML запускает реальные образы операционных систем (IOSv, IOS-XE, NX-OS, IOS-XR, ASA) внутри виртуальных машин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DFC3FA4C0DDCA1062F8145DD2F8E0D00212A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862153   (1064295) от 29.03.2026
 
 SystemRescue v13.00 [x64]
@@ -656,32 +682,6 @@ SystemRescueCd — это спасательной диск в системе Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA538C504CDD00DDC35AE23D354D89A9334CB10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394283   (764354) от 04.07.2020
-
-OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

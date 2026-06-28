@@ -1,3 +1,30 @@
+###  Публикация: 1728680   (53982) от 08.06.2024
+
+Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (2023) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everything you need to master first-year English language essentials—clear explanations, tons of practice exercises, and NEW audio to improve your speaking and listening skills
+The most effective way to learn any new language is to practice, practice, and practice some more—and no other workbooks put as much emphasis on this as the Practice Makes Perfect series. (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728813   (53953) от 08.06.2024
 
 Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
@@ -668,33 +695,6 @@ Everyday words are arranged in themes with carefully selected up-to-date images 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731345   (52708) от 20.06.2024
-
-Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52708.jpg" />
-</div>
-
-
-###  Подробнее
-
-A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
-Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
 ```
 
 https://mybot314.ru/tekegram_catalog/

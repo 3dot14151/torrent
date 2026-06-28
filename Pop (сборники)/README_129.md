@@ -1,178 +1,3 @@
-###  Публикация: 470681   (83211) от 20.03.2012
-
-VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vlada Crystal - Я Разрешаю Тебе
-02. Driu Mc Feat. Funky Inlite - Только Тебе
-03. Mc Zali - Облака (Kolya West Remix)
-04. Анастасия Коновалова - Люблю Тебя
-05. Дмитрий Колдун Feat. Alex Brashovean - Ray Of Light (Forever Mine)
-06. Сацура - Больше Чем Слова
-07. Music Hayk - Деньги И Слава
-08. Миша Романова - Невесомая
-09. Dj Party-Zan Feat. Nity - Нас Не Удержать (Radio Edit)
-10. K.Melody - Te Quiero2012Жанр: PopПродолжительность: 06:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF3BCE30DF3EB9E97CB003FB4B9681BC2584427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470400   (83059) от 19.03.2012
-
-VA - Лучшие из Лучших. Русские Хиты (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Константин Меладзе feat. DVJ Electra - Не Пугайся, Детка (Oh,Yeah) (DJ Solovey Remix)
-002. Ради Славы - Стану Снегом
-003. Винтаж - Стерео
-004. Mixtura Feat. Паша Gold - Взлетаю (Radio Edit)
-005. Алиса - Дождь И Я
-006. Д. Билан - Задыхаюсь (DJ Gold Sky & DJ Shirshnev Remix)
-007. Г. Ургант - Голосами
-008. Julia Lasker - День За Днем
-009. Серебро - Мама Люба
-010. Подиум - Я Только Лишь Снег(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156CAF48C45F0AB2206352B70D5B08F3FDE2113C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470468   (83055) от 19.03.2012
-
-VA - Russian Pop music (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83055.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. MaXima & Milena - До утра (3:36)
-2. Карина Кокс - Все решено (3:33)
-3. Алсу - Там, где я (4:03)
-4. Стас Пьеха - Мы расстались с тобой (3:45)
-5. Женя Вилль - Ты Для Меня (Alexey Frolof Remix) (3:45)
-6. Ирина Билык - Девочка (3:32)
-7. Бьянка - Без Сомнения (3:13)
-8. Reflex - Адреналин (2:59)
-9. Soda feat. DJ Niki - Выходной (3:24)
-10. Анна Семенович и Марель - За семью замками (3:44)2012Жанр: PopПродолжительность: 06:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F12D1AE86C314816EE53DBEB953449609EF8A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469886   (82850) от 18.03.2012
-
-VA - Асса! Танцуют Все! (2012) [MP3|192-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Азнаур - Танцуют все
-02. Marat - Адыгский перепляс (remix)
-03. Азамат Биштов - Голубая ночь
-04. Мурат Тхагалегов - Калым
-05. Анжелика Начесова - Нарушил все мои правила
-06. Амур Успаев - Хаза к1ант
-07. Эльдар Далгатов - Нет рая
-08. Шамхан - Только там (dance version)
-09. Марина Алиева - Горный край
-10. гр Домбай - Моя Теберда(   Читать дальше...   )2012Жанр: PopПродолжительность: 04:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFBCDFF35E5D6B3AA4B8FC97EE733C8069B059E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467002   (82210) от 15.03.2012
-
-VA - Zumba Dance 2011 (2011) [MP3|~ 256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yolando Be Cool Vs. DCUP - We No Speak Americano
-02. Nicola Fasano Feat. Pitbull - Oye Baby (Radio Mix)
-03. Papa London - Dansa Kuduro (Radio Version)
-04. Cidinho & Doca - Rap Das Armas (Lucana Rio De Janeiro Radio Edit)
-05. Nicola Fasano Vs. Pat-Rich - 75, Brazil Street (Vocal Radio Mix)
-06. Vanessa Da Mata - Ai, Ai, Ai (Deep Lick Radio Mix)
-07. Gigi De Martino - Mar Adentro (El Canto De La Sirena) (Radio Mix)
-08. Omega - Si Te Vas/Que Tengo Que Hacer (Ferrance Euroremix)
-09. Lucenzo Feat. Big Ali - Vem Dancar Kuduro (Radio Edit)
-10. Juan Magan - Mariah(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464C3706D9168582342DAF9B859F98133B9C4314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462522   (80397) от 06.03.2012
 
 VA - Еврохит Топ -40 (04.03.2012) (2012) [MP3|320 кб/с]<pop, dance>
@@ -784,6 +609,151 @@ Merab Amzoevi - This is Merab Amzoevi (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94276201480A90CB9C4D7D35D5E80590DA098FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726113   (55152) от 28.05.2024
+
+Sandra - Collection (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певица Sandra, в 80х была мне знакома только по плакатам и календарям. Краем уха где то, что то слышал. Познакомился с творчеством уже в инете. Так же, узнал, что автор и композитор её песен Michael Cretu. Он же её супруг и создатель проекта Enigma и что там звучит голос Сандры. Первые 3 альбома записаны плохо. Японский CD первого альбома звучит мутно, с убитой прозрачностью (   Читать дальше...   )001. In The Heat Of The Night
+002. On The Tray (Seven Years)
+003. Little Girl
+004. You And I(   Читать дальше...   )Жанр: PopПродолжительность: 07:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BC2B1C3F243662251AB8E98A17C6239AB4EAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730881   (52566) от 21.06.2024
+
+VA - compilation  part 88 Eurodisco (2024) [MP3|320 Kbps] <Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Heroes - You're My Heart
+02. Spatial Vox - Cause of Shining in Your Eyes
+03. Spatial Vox - Emergency Warning
+04. Spatial Vox - It's Time for Christmas(   Читать дальше...   )Жанр: Eurodisco, New Italo DiscoПродолжительность: 01:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013940262803852CBDFBA97EDA831E4432DEC941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733564   (51661) от 29.06.2024
+
+VA - Лето на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artemas - I Like The Way You Kiss Me (2:22)
+02. Sabrina Carpenter - Espresso (2:55)
+03. Ariana Grande - We Can't Be Friends (Wait For Your Love) (3:48)
+04. Teddy Swims - The Door (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312CF619304D16F52A70D5BF615388CA83F35288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733233   (51646) от 29.06.2024
+
+VA - compilation part 90 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Blue - Back to Paradise
+02. Talking Blue - Elven Whispered
+03. Alex Blue Feat. Judith - Dance
+04. Blue Talking - Calling Out for Love(   Читать дальше...   )Жанр: Dance, EurodiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40257EB76390D3F635F975186CAA751A89CC53DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733678   (51501) от 30.06.2024
+
+VA - German Top 100 Single Charts 28.06.2024 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. $OHO BANI, Herbert Grönemeyer & Ericson - ZEIT, DASS SICH WAS DREHT (2:34)
+002. AYLIVA & Apache 207 - Wunder (2:56)
+003. Artemas - i like the way you kiss me (2:22)
+004. 6PM Records, Ski Aggu, Haaland936 & Sira - JUNGE BALLER (2:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

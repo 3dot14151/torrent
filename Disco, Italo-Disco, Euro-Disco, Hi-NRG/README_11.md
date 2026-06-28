@@ -1,3 +1,61 @@
+###  Публикация: 1392818   (769097) от 27.06.2020
+
+Dance People - Fly Away (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Away (6:43)
+02. Funk Attack (5:11)
+03. Dance People (6:33)
+04. Give Your Feet A Treat (5:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C9ED6E74883693FA4FAEEEEA76ED9A3CAA53BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278921   (767781) от 27.01.2019
+
+Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский диско проект от продюсера Джо Bisso.01. Love Is The Real Thing (7:22)
+02. My Man (8:27)
+03. If You Believe (3:24)
+04. The Mistery With Me (6:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E858EC74B667E8115B75AE8B0C5F9E598816EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278820   (767742) от 27.01.2019
 
 Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
@@ -685,64 +743,6 @@ Ken Wilbard - You're Burning (1977) [MP3|320 кб/с] <Диско>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A70556AC6E27922155DE875A062120D3085B9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020238   (746602) от 25.05.2016
-
-Madleen Kane - 5 Albums (1978-1994) [MP3|320 кб/с] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская модель и певица, работала с 17 лет для немецкого модного журнала  Burda Moden. Побывала в двух выпусках Playboy, а так-же выпустила ряд альбомов принесших пять, вошедших в горячие десятки США и Европы, танцевальных хитов. Альбом 1981 г.- совместная работа с Giorgio Moroder и Pete Bellotte.Список альбомов:
-01. 1978 - Rough Diamond
-02. 1979 - Cheri
-03. 1980 - Sounds Of Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A407802357E1D3EC06C93F621C8395638A94D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282215   (746089) от 11.02.2019
-
-Irene Cara - 3 Albums (1982-1987) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Айрин (Ирен) Кара - американская актриса и певица 1980-х годов. Лауреат премий «Оскар», «Золотой глобус» и «Грэмми». Пик музыкальной карьеры наступил для неё в 1983 году, когда она записала титульную песню для фильма «Flashdance... What a Feeling», которую она написала в соавторстве с Джорджо Мородером и Китом Форси. Кара написала слова в тот момент, когда ехала (   Читать дальше...   )Список альбомов:
-1982 - Anyone Can See
-1983 - What A Feelin'
-1987 - Carasmatic(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, Synth-popПродолжительность: 01:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245A4F5AB9523ED9A3F1800975975080C3897D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

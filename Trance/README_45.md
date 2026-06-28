@@ -1,3 +1,90 @@
+###  Публикация: 1628535   (254813) от 25.04.2023
+
+VA - Nothing But... Trancetopia, Vol. 02 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Surok - Forever Alone (Radio Edit) [3:40]
+02. Grande Piano - Message From Space (Calvin O'Commor Remix) [8:42]
+03. Sanani & Henry Caster - Code Yellow (Original Mix) [2:48]
+04. A.R.T. Conspiracy - Michael Jefferson (Earthling & Virtual Light Remix) [6:43](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FF16AEF5EFC1BF5CCB1DC893CA09590D8C97E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836472   (253099) от 11.11.2025
+
+VA - Top 11 August 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxim Kovalskiy - Road To The Dunes (DJ Grom Remix) [6:50]
+02. Henrik Nilsson - Happiness, It's A Way Of Life (Original Mix) [8:17]
+03. Masaru Hinaiji & Kayumai - Our Beats (Elissandro Remix) [6:07]
+04. Duezher - In The Alley Where I Grow Up (Original Mix) [6:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B918C253E8CD67FFC3B11B2CF022EF19C09A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836470   (253098) от 11.11.2025
+
+VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Myngo & Ourmotion - Exploration (Original Mix) [4:18]
+02. Dreary Fan - Sanctuary In My Heart (Kyousin Remix) [7:18]
+03. Stormline - Space Traveller (Original Mix) [6:41]
+04. Masaru Hinaiji - Snow Drop (Original Mix) [6:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37594C19ABEB9AAB8CB73737E3DDABCDA4B5B38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836469   (253097) от 11.11.2025
 
 VA - Top 10 June 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -653,93 +740,6 @@ VA - Trance Anthems Vol. 18 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:498EA93E1DDE0CE14D8702D8AF41ABD28EC6A1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631311   (244731) от 06.05.2023
-
-VA - 10 Years Of Suanda Music - Mixed by Roman Messer (2023) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AMINTO - Show Me All Your Love (Extended Mix) (5:29)
-02. Roman Messer & Aleksey Ekimov - Mass Effect (Extended Mix) (5:05)
-03. Roman Messer & Betsie Larkin - Unite (Omnia Extended Remix) (4:43)
-04. Adip Kiyoi & Christina Novelli - Carousel (Extended Mix) (5:45)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 06:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCCFBBEF1120581EE5CF25510D40FB1524DA77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610824   (244156) от 09.02.2023
-
-VA - Underground Heroes Of Trance (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.O.M. - Magnetic (Original Mix) [6:24]
-02. Liam Wilson & Will Atkinson - The Hurricane (Original Mix) [7:57]
-03. Allan Morrow feat. Sophie Way - Why We Do This (Original Mix) [8:04]
-04. Paul Todd - Xone (Original Mix) [8:07](   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E78C43DBD3C384F961B83E708B9F7B9E4427902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611306   (243990) от 11.02.2023
-
-VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - 25 Years Technoclub Compilation (Mixed by Talla 2XLC) [01:18:42]
-02. Vincent De Moor - Fly Away (Cosmic Gate Remix) [9:08]
-03. Kenneth Thomas feat. Betsy - Stronger Creature (Talla 2XLC Remix) [7:49]
-04. Lange & Sarah Howells - Out Of The Sky (Aly & Fila Remix) [8:02](   Читать дальше...   )Жанр: TranceПродолжительность: 05:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7803F381F920DFDCE6878DD508F209986B218970
 ```
 
 https://mybot314.ru/tekegram_catalog/

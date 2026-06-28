@@ -1,3 +1,138 @@
+###  Публикация: 465919   (81478) от 11.03.2012
+
+Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Italo-pop - Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD2
+01. Ma quale idea (vers.2) [0:04:13.09]
+02. Ti regalo un reggae and roll [0:03:27.53]
+03. Una notte da impazire [0:04:32.63]
+04. Non ti ricordi di me [0:05:22.52]
+05. E libero scusi [0:04:44.27]
+06. Che strano amore questo amore [0:04:29.22]
+07. Ex bambini [0:05:14.49]
+08. Favole [0:04:20.63]
+09. Okay okay [0:04:20.25](   Читать дальше...   )Жанр: Italo-pop - DiscoПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED241F15313D061A55C65614DE6B1D8438C63FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465771   (81194) от 10.03.2012
+
+VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirko Hirsch - Fire (Long Version)
+02. Galaxy Hunter - Running High
+03. Retronic Voice - Menace To Society
+04. Tiziana Rivale - Take Me In Your Arms
+05. Riccardo Campa - Mistress Of My Heart
+06. Eddy Huntington - Warsaw In The Night
+07. Marc Fruttero - Miracle Of Love
+08. Vision Talk - Wave My Last Goodbye
+09. Elen Cora - Sleeping In Your Hands
+10. Riccardo Campa - Delantero(   Читать дальше...   )2010Жанр: Italo DiscoПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 139765   (78873) от 27.02.2012
+
+Patrick Cowley - 6CD (1981 - 2009)[FLAC|Lossless]<Disco>
+
+>>След.
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Menergy (8:41)
+02.   I Wanna Take You Home (7:48)
+03.   X Factor (5:13)
+04.   I Got A Line On You (6:33)
+05.   Menergy (Reprise) (3:46)Жанр: Disco, Hi NRGПродолжительность: 05:59:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349654   (78778) от 27.02.2012
+
+Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Prima Stella Della Sera (4:33)
+02. Stringimi (5:20)
+03. Il Treno Blu (3:30)
+04. Casa Mia (3:43)
+05. Elettrochoc (Remix) (6:23)
+06. Rayo De Luna (Version espagnole de ''Raggio Di Luna) (3:42)
+07. Por Una Hora A Tu Lado (Version espagnole de ''Per Un'Ora D'Amore'') (3:35)
+08. Te Siento (Version espagnole de ''Ti Sento'') (4:06)
+09. Nuestra Sinfonia (Version espagnole de ''Italian Sinfonia'') (4:17)
+10. Solo Tu (Version espagnole de ''Solo Tu'') (3:29)(   Читать дальше...   )2006 - 2011Жанр: PopПродолжительность: 03:19:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776482   (71286) от 01.02.2025
 
 Giorgio Moroder - Club Remixes Selection, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, House>
@@ -629,122 +764,6 @@ VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFAF1A63BE7143979495B816ABB8EBBD7E1B9268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894328   (57566) от 05.05.2024
-
-Boney M - Hit Story (2010) 4CD Set Sony Music [FLAC|Lossless]<Disco / Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57566.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Best Of The Seventies
-CD2 - The Best Of The Eighties
-CD3 - The Most Beautiful Ballads. The Most Beautiful Christmas Songs
-CD4 - The Best 12 Inch VersionsЖанр: Disco / PopПродолжительность: 05:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B23993111CD18A8C01BC14A85233CA50F99B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721536   (57191) от 08.05.2024
-
-Bisquit - The Ultimate Singles Collection (2003) Limited Edition, Unofficial Release, 2024, ESonCD [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zoo Zoo (Maxi Version)
-2. Zoo Zoo (Instrumental)
-3. Roller Boogie
-4. Roller Boogie (Instrumental)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119A2DB1A06FC3AA041A60CEAB08C170C5ECAE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723193   (56450) от 15.05.2024
-
-VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Hooker - Come Back Home (Extended Vocal) (6:13)
-02. Xenon - Symphony (Versione Dance) (5:36)
-03. Band of Jocks - Let's All Dance (Italian Version) (5:02)
-04. Ronnie Jones - Richman (Extended Mix) (5:39)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEF44918444D2B54248307AF07800525EADCB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724584   (55938) от 20.05.2024
-
-VA - Fulltime Production Disco Classic, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selection - Madly (Extended) (7:16)
-02. Ago - You Make Me Do It (Extended Mix) (5:47)
-03. Rainbow Team - Dreaming (Ftm 31701) (4:12)
-04. Kano - Can't Hold Back (Ftm 31703) (4:50)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A083306DF2ADFBE3C0742E4B3C27991605FAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

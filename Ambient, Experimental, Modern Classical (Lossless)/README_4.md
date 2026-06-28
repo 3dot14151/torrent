@@ -1,3 +1,90 @@
+###  Публикация: 758102   (916191) от 17.02.2014
+
+Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are A Dead Television (4:19)
+ 02. Fragments A (Steady) (2:42)
+ 03. Fragments B (Adrift) (5:05)
+ 04. Sails (3:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097319   (915737) от 26.01.2017
+
+David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age,Easy listening>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Lucia [03:42]
+02. Arrivederci Roma [04:07]
+03. Speak Softly, Love [04:09]
+04. Mio Dolce Sogno [04:04](   Читать дальше...   )Жанр: New Age,Easy listeningПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CC20E9E51DD84E18FEDEA50AF4445BEF793CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368426   (910854) от 19.03.2020
+
+Roger Eno and Brian Eno - Mixing Colours (2020) Deutsche Grammophon [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Frost (04:07)
+02. Burnt Umber (04:15)
+03. Celeste (04:22)
+04. Wintergreen (04:10)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1154396A0716D1C65D65BDB7AA0A2E48BDE07A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990685   (910039) от 26.02.2016
 
 VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
@@ -650,92 +737,6 @@ Plesiada - Discography 4 Releases (2013-2020) Miandres Records [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF006E08FDCF9D5AEEDCA9F5110AB7200C62DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000624   (857569) от 26.03.2016
-
-ForstWölfin - You Will Find Me In The Forest (2016) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Will Find Me In The Forest (FW Deep remix) (06:57)
-02. You Will Find Me In The Forest (FW Melodic remix) (06:57)
-03. You Will Find Me In The Forest (Original mix) (06:57)Жанр: Ambient, Dub TechnoПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B761D25B17EBFC07FDC0D70FE70667695DD3B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186372   (846521) от 25.04.2020
-
-0ID (OID, Andrei Oid) - Discography 12 Releases (2004-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 111 (14:40)
- 02. Feda (03:44)
- 03. Gluten Tag (10:23)
- 04. Serendip 25 (06:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno/IDM/ExperimentalПродолжительность: 06:22:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9BA1A1E4C6F078A838CE01886B1525801C42CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189249   (846143) от 25.04.2020
-
-Ulrich Schnauss (The Extremist, Ethereal 77, View To The Future) - Discography 40 Releases (1997-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, IDM, Leftfield, Shoegaze, Drum &am ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apotheosis (08:03)
- 02. Sirius (10:07)
- 03. Zodiac (08:59)
- 04. Pacific Stereo (08:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Drum & Bass/AmbientПродолжительность: 40:43:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19730E9FCFCD4E79DF4ACAA960DE11005E5C9651
 ```
 
 https://mybot314.ru/tekegram_catalog/

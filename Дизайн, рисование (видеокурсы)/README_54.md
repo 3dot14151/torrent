@@ -1,3 +1,87 @@
+###  Публикация: 1647120   (246933) от 17.07.2023
+
+Алексей Стариков | VFX Designer + VFX Artist (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246933.jpg" />
+</div>
+
+
+###  Подробнее
+
+На данном курсе вы научитесь создавать различные визуальные эффекты с использованием таких профессиональных программ, как Adobe After Effects, Blender 3D, Unreal Engine 5 и дополнительных плагинов, которые активно применяются в киноиндустрии.
+
+Курс VFX DESIGNER подойдет вам, если вы хотите овладеть основами такой профессии, как специалист по созданию VFX (визуальные (   Читать дальше...   )Жанр: 3D Графика, VFXЯзык озвучки: РусскийПродолжительность: 05:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A9EF3CEB0D18F6BA537F0CB575938C3BA34503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647375   (246889) от 19.07.2023
+
+TOAnimate, Brian Kouhi, Simona Baranovicova, Vladimir Mokhov | Blender Animation Course (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246889.jpg" />
+</div>
+
+
+###  Подробнее
+
+The perfect package for artists looking to delve into the world of animation and become proficient in Blender.
+
+This comprehensive Blender animation course covers the principles of animation, improves your technical and artistic skills and helps you become industry ready.Производство: TOAnimateЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 50:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C634618B19E8A50268CB757B5040FD9113AF660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833162   (246264) от 01.11.2025
+
+Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, PT]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это обновлённая версия курса по анатомии персонажей от Рафаэля Соузы. Структура во многом сохраняет основу оригинала, но теперь, с ещё большим опытом за плечами, автор полностью переработал все уроки и добавил свежие элементы.
+К каждому модулю прилагается скетчбук с дополнительными примерами и практическими заданиями.
+Уроки построены так, чтобы развивать у студентов (   Читать дальше...   )Производство: Rafa Souza AcademyЖанр: 3D моделирование, СкульптингЯзык озвучки: Русский, ПортугальскийПродолжительность: 61:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010049A27EFC70C69FA95D15A14C5DDE36C2CA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833169   (246261) от 01.11.2025
 
 Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
@@ -610,88 +694,6 @@ Uartsy, Jahirul Amin | Rigging Fundamentals in Maya (2017) PCRec [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:550EACCAF80AC957C56CF581C9A0D7EBCE8486CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542690   (243125) от 08.04.2022
-
-Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Redshift (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243125.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы узнаете, как создать сцену летающего космонавта в Cinema 4D и визуализировать ее с помощью Redshift Render, механизма рендеринга на базе графического процессора для Cinema 4D. Помимо изучения полного пошагового процесса создания этой сцены, в частности, вы также изучите несколько общих приемов, советов и приемов работы с Cinema 4D и Redshift Render. (   Читать дальше...   )Производство: SkillshareЖанр: Компьютерная графикаЯзык озвучки: АнглийскийПродолжительность: 03:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73212D656B381F060A7987B96640D665585F520F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623500   (243093) от 01.04.2023
-
-Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы узнаете:
-Вы научитесь контролировать каждый аспект эффекта.
-У вас будет глубокое понимание vex-кодирования.
-Вы научитесь создавать реалистичный волшебный дым.(   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0F634D95585E7471603A4C7A32FAA195D62983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568496   (242808) от 08.08.2022
-
-Skillshare, Aniket Rawat | Complete Guide to Substance Painter 2022 (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я приветствую вас на этом курсе, где мы пройдем полный процесс обучения Substance Painter с точки зрения новичка, а также будем работать над тремя завершенными проектами.
-Мы вместе рассмотрим все важные инструменты и концепции Substance Painter, и ничто не будет пропущено. Этот курс предназначен для начинающих.Производство: SkillshareЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 10:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54C8F83E4EE2F107409CC71C95E0EA7A76E576C
 ```
 
 https://mybot314.ru/tekegram_catalog/

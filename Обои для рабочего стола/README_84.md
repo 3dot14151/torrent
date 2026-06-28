@@ -1,3 +1,29 @@
+###  Публикация: 453337   (76883) от 18.02.2012
+
+Обои - 40 Great Game Scenes Wallpapers 1920 X 1200 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76883.jpg" />
+</div>
+
+
+###  Подробнее
+
+40 интересных обоев с различных сцен игр для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76F8C453D5C13465595684C4A88CD1AD41A1028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821347   (52230) от 01.10.2025
 
 Обои - Jeeekaaa - Art Gallery TV 4K v2 [PNG]
@@ -654,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FFC532BCCBC35ACC67C14F51A25357F6DE3E979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780195   (27364) от 17.02.2025
-
-Обои - Eternal Mix Wallpapers Part 19 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A30B9BF8350C638E9AED5D776C25C0009000022
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1181536   (323825) от 07.11.2017
+
+VA - Markus Schulz - Global DJ Broadcast - (Amsterdam) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matchy & Bott - Invade
+02. Jam El Mar - Three Full Moon Nights
+03. Gai Barone - Bus-Hill
+04. Ilario Alicante - Awakened(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C62315024112167B68698BAD820102C09296F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181529   (323733) от 07.11.2017
+
+VA - Ori Uplift & Dj Ruby - Uplifting Only 247 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BREAKDOWN OF THE WEEK: Etasonic - When You're Gone (Intro Mix)
+02. Ultimate & Moonsouls feat. Marjan - Your Light (Extended Mix)
+03. Aldo Henrycho feat. Thea Riley - We'll Be Okay
+04. FAN FAVORITE: SoundLift - Shining(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28E395E093C8FF6123493FA9E1FDD88B65FA38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259094   (323542) от 02.11.2018
+
+VA - Ori Uplift - Uplifting Only 299 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BREAKDOWN OF THE WEEK: Andy Blueman - Beyond the World We Know (Extended Mix)
+02. Kaimo K feat. Jess Morgan - In A Whisper (Extended Mix)
+03. Giuseppe Ottaviani featuring Thea Riley - On The Way You Go (OnAir Extended Mix)
+04. DJ Dean & DJ T.H. feat. Hanna Finsen - Find A Road(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B609817D25F40AD328CAA2AC3DD2F6EE65FDD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259093   (323541) от 02.11.2018
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour ADE in Amsterdam (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gai Barone - Un-Theme
+02. Jerome Isma-Ae & Tone Depth - Kiera
+03. DJ Hell - Guede (ARTBAT Rave Mix)
+04. Traumer - Cobraphobie (Markus Schulz Big Room Reconstruction)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A38F8CFA4C10EA2E6480FFC8F5B9547DA5DBE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182098   (319426) от 09.11.2017
+
+VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Florian Kruse & Hendrik Burkhard - Undercover (Original Mix)
+02.Sunlight Project - Sunflare (Deep & Dope Mix)
+03.Paul Thomas - Alpha Papa (Extended Mix)
+04.Omar El Gamal - So Very Much (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182327   (317147) от 10.11.2017
+
+VA - Markus Schulz & Davey Asprey - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz
+01. Markus Schulz presents Dakota - The Spirit of the Warrior (Transmission 2017 Theme)
+02. Ayla - Ayla (Ben Nicky & Luke Bond Remix)
+03. DIM3NSION & ZAA - Cielo(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6634B45ABE12E4D39F4CAD7BCC6A3F7C6680D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422443   (310707) от 08.11.2020
+
+Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Armin van Buuren ft. Jake Reese VS ARTBAT & Sailor & I - Need You Now vs Best of Me (Armin Van Buuren Mashup)
+03. Fabrication & Assaf ft. Nathan Nicholson -  Dustpig vs. Lost Souls (Armin Van Buuren Mashup)
+04. Cubicore ft. K.I.R.A. - Circles(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F6C563BFEDB8B8CDAE8C3648DCB22CABF81F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183328   (310221) от 13.11.2017
 
 VA - Ori Uplift & Nick Turner - Uplifting Only 248 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -542,209 +745,6 @@ Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335424   (287743) от 02.11.2019
-
-Nitrous Oxide - Live @ Club Mecca Prague, Czech Republic 2019-10-10 [MP3|192 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitrous Oxide vs. Planet Funk - Chase The Rebooted Corn Flakes (Nitrous Oxide Mashup)
-02. Nitrous Oxide - Tsukuba
-03. Nitrous Oxide - Flat Six w/Nitrous Oxide ft. Aneym - Follow You
-04. Nitrous Oxide - Verano(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A546D3856A56747E3B31D76F9749EA74EF1CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211015   (285925) от 20.11.2018
-
-Dj Mithril - Collection [set 001-033] (2015-2018) [MP3|320 Kbps] <Drum & Bass, Progressive Psytrance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Omauha - Victoria 00:00
-2. Double Creativity & Exia - Selecta 07:54
-3. Alex Field – Cosmic Wind 14:19
-4. Duane Barry – Cosmia (Helbot's Deep Remix) 18:25(   Читать дальше...   )Жанр: Drum & Bass, Progressive Psytrance, Progressive TranceПродолжительность: 51:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF45A337A59CABF2751D778344D2D233DBECA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335943   (284580) от 04.11.2019
-
-Aly & Fila - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robot Koch ft. Delhia De Frace - Reach (Monkey Safari Remix)
-02. ID-ID
-03. Guy Mantzur & Khen - Where Is Home
-04. Hot Since 82 ft. Alex Mills - Vapours(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9164C11ADEE0B6A64B704EAC66E53530D96B444A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187090   (282667) от 27.11.2017
-
-VA - Ori Uplift - Uplifting Only 250 (incl. Roman Messer Album Guestmix) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AirLab7 - Reminiscent of My Teen Life
-02. VoIces - Dance Of The Snowflakes
-03. Braulio Stefield - Chain Of Memories
-04. Nicklifter - Dreams of Paradise(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3990B0BBC5FD9EEBA60F4EFEF5EE07A096C2591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187097   (282551) от 27.11.2017
-
-VA - Markus Schulz & Jam El Mar - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Jam & Spoon - Odyssey to Anyoona (Markus Schulz vs. Jam El Mar Remix)
-02. Solid Stone - Detox
-03. Audien - The Reach (Steve Brian Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B7D62A8F5FB6783AE5CE41C72FF20F4B7519E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264334   (281240) от 23.11.2018
-
-VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz vs. Jam El Mar – The Lotus
-02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
-03. Raito – Dark Ritual
-04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264336   (281235) от 23.11.2018
-
-VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
-02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-03. Brian Flinn & Type 41 - Back to Yesterday
-04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

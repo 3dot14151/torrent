@@ -1,3 +1,32 @@
+###  Публикация: 1501150   (835045) от 10.10.2021
+
+VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Steoples - Alas Alice
+002. Timewarp Inc - Breakbit
+003. Eunice Haze - String Around My Heart
+004. Niles Philips feat. Tonkin - Nose Dive(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 08:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114048   (834999) от 13.03.2017
 
 Blues Cousins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Robert  Randolph - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Gospel Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9DDCBC9EBB464996E4855283FA6510671C1F325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118678   (811230) от 26.03.2017
-
-Climax Blues Band - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fool For The Bright Lights
-02. Little Red Rooster
-03. Chasin Change
-04. Summer Rain (Live From Miami 1979)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9B2CD6C4C17600D01E51133705E63148DFD98A
 ```
 
 https://mybot314.ru/tekegram_catalog/

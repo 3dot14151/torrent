@@ -1,3 +1,119 @@
+###  Публикация: 989837   (915802) от 23.02.2016
+
+Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le livre des secrets
+02. Envol
+03. Jardin de cristal
+04. Chemin d'etoiles(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFBD9B19B1C9435F8F0ABFF6F88F2F5B579E0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989752   (915701) от 23.02.2016
+
+Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My World
+02. Little Girl
+03. Save Me
+04. Anima (Remix)(   Читать дальше...   )Жанр: New age, Classical CrossoverПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366744   (915692) от 16.03.2020
+
+Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915692.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:57| 01. Intro
+|01:37| 02. Helicopter
+|01:05| 03. Tribunal
+|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366743   (915664) от 16.03.2020
+
+Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915664.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:57| 01. Intro
+|01:37| 02. Helicopter
+|01:05| 03. Tribunal
+|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64E1585F33A1CB8C9CD00A6C918881569EF3423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367340   (915522) от 16.03.2020
 
 The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Native American, New age, World music>
@@ -628,122 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368008   (909074) от 20.03.2020
-
-Александр Рябцев - Ностальгия (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Расставание (4:31)
-02. На одном дыхании (3:45)
-03. Осень (3:38)
-04. Влюблённая во флейту (4:49)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098310   (908944) от 30.01.2017
-
-Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:07:37]
-02. A Safe Place [00:06:00]
-03. Sensing the Emotion [00:03:16]
-04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098324   (908937) от 30.01.2017
-
-Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacramental Song
-02. Will You Marry Me
-03. Where Are You
-04. Thunderheart(   Читать дальше...   )Жанр: New Age, Contemporary ChristianПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A7E71DBF46E90FBE9A8689CD4829CADF2852E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098274   (908862) от 30.01.2017
-
-Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New Age, Celtic, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Cuilfhíonn (3:43)
-02. Our Wedding Day (She Moved Through The Fair) (4:31)
-03. The Lark In The Clear Air (3:52)
-04. The Norwegian Minstrel Boy (3:25)(   Читать дальше...   )Жанр: New Age, Celtic, Neo-ClassicalПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30D78B9BF6135B6F0C6096668C5E976C38BC6E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

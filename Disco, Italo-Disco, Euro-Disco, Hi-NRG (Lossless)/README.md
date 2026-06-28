@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1878254   (1074648) от 
+
+Amanda Lear - I Am A Photograph & Sweet Revenge (2002) Compilation, Unoffical [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood and honey 4:48
+02. Alphabet 4:01
+03. These Boots are made for walkiin. 3:11
+04. Tomorrow 4:10(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2823608E592E09C2902FCD34071BD4D5F25F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1878256   (1074647) от 
+
+Amanda Lear - Never Trust A Pretty Face & Diamonds For Breakfast (2002) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1074647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion pack 5:11
+02. Forger it 4:15
+03. Lili Marleen 4:44
+04. Never trust a pretty face 4:48(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1388361187A0BC3F83B127A0D186159889BF4B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876197   (1073753) от 17.06.2026
+
+Secret Service - Diamond Collections (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Do you remember - 3:31
+02 - Walking - 4:10
+03 - How I want you - 3:53
+04 - Closer every day - 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD830C301A60CBF4E075A1D22D5B839F07ABC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874788   (1072704) от 
 
 Boney M. - Remix 2005 (2005) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
@@ -656,93 +743,6 @@ Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439776   (1039271) от 15.01.2021
-
-Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Systems in Blue - Lola, Better To Fall In Love (3:41)
-02. Systems in Blue - Don't walk into the light (3:30)
-03. D. O. Passion - How I'm gonna catch you? (3:54)
-04. MS Project & Michael Scholz - My Mystery (3:53)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A7867977AA0860C3390463E37AB882A8E189FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615594   (1037506) от 26.02.2023
-
-Italoconnection - Nordisko (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash In The Night
-02. On The Radio (feat. Jaia Sowden)
-03. Talk To The Hand
-04. Donna Rouge(   Читать дальше...   )Жанр: Italo-Disco, Nu-Disco, Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9534287383D47083AB61C4C5840A182DC6AC0A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442240   (1036908) от 24.01.2021
-
-VA - Radio Mania, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikita Fomin - My Paradise, Your Hell (Viper Eurodance Radio Mix) (4:20)
-02. Chito - This Is Our Night (3:46)
-03. Amelie Divine - Be My Hero (Alternative Mix) (4:17)
-04. The Crosslines - Tomorrow Is Another Day (Radio Mix) (3:41)(   Читать дальше...   )Жанр: EuroDance, Euro-DiscoПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A365F5004B2E3071B4DB9C80C158F692086986
 ```
 
 https://mybot314.ru/tekegram_catalog/

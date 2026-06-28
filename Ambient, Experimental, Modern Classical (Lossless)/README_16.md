@@ -1,3 +1,88 @@
+###  Публикация: 1302520   (361208) от 01.10.2019
+
+Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Midtempo, Goa Trance>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Celephaïs (06:55)
+2. Hypnos (08:46)
+3. Polaris (09:09)
+4. Dreamlands (11:27)(   Читать дальше...   )Жанр: Psybient, Midtempo, Goa TranceПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328873   (359062) от 02.10.2019
+
+地球 - ジャングル (2019) Hiraeth Records (Remaster) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Vaporwave>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ジャングル Part 1 (15:41)
+02. ジャングル Part 2 (16:35)Жанр: Ambient, VaporwaveПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81E7CF43234F3B3EBDB30E02A77C9564A3E2E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417656   (355730) от 21.10.2020
+
+Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Leftfield, Avant-garde Jazz, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghosts (06:30)
+ 02. The Field of Repentance (07:54)
+ 03. Death and Civilisation (06:51)
+ 04. Due Poli (07:01)(   Читать дальше...   )Жанр: Experimental, Leftfield, Avant-garde Jazz, AmbientПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0F30690BA21120734314DFAE69F264F56B50DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418384   (349296) от 24.10.2020
 
 VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Dub>
@@ -653,94 +738,6 @@ Alphaxone & Xerxes the Dark - Aftermath (2018) Cryo Chamber [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B6CF94CA69D73A86EDA5355C9C25FBEF56830D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099608   (309950) от 13.11.2017
-
-Arc Of Doves - Discography 7 Releases (2009-2017) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, Dub Techno, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Conversation (04:38)
- 02. Gravity (03:59)
- 03. Remains of the Day (04:13)
- 04. The End (03:28)Тип издания: CD, WebЖанр: Ambient, Minimal, Modern Classical, Dub Techno, Downtempo •Продолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B518D389EBE343623A72EDDA31E24A5CC0285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367507   (308428) от 09.11.2020
-
-Gamardah Fungus - Collection 8 Releases (2011-2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Drone, Modular Synth>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gamardah Fungus – группа музыкантов-экспериментаторов из Украины, г. Днепропетровск.
-Их музыка – медитативный дроун эмбиент, граничащий с медленным депрессивным сладжем и утопающий в безысходности дарк джаза. В ней слышно, как гитарные и духовые соло тонут в уличных и заводских шумах, как редкие барабанные ритмы задыхаются в синтезаторных пассажах, как ветры скользят (   Читать дальше...   )Список альбомов:
-2011 - CELESTIAL FUNERALS
-2012 - Inner Solitude
-2013 - Night Walk With Me(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Dark Jazz, Drone, Modular SynthПродолжительность: 06:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB145157625F6F8E3ECCCD959152388F1BBC62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260892   (307704) от 09.11.2018
-
-Orla Wren - Moccasin Flowers (2015) silentSEED [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Abstract, Musique Concrète, Glitch>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Inside, The Outside, The Other (04:49)
-02. Move, Learn, Drink Water (04:19)
-03. A Woven Rope Of Woven Hope (03:47)
-04. Paths Unblocked, Broken Clocks (05:39)(   Читать дальше...   )Жанр: Ambient, Experimental, Abstract, Musique Concrète, GlitchПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DA241B7F74CD80B51B546A69D2B13ED3A6F360
 ```
 
 https://mybot314.ru/tekegram_catalog/

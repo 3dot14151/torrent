@@ -1,3 +1,119 @@
+###  Публикация: 1237888   (549729) от 26.07.2018
+
+Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Dreaming (5:08)
+02. Joyful Peace (5:12)
+03. Soft Breathing (5:12)
+04. Enlightened and Melodious (5:49)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BD1A0B7824976D4704EF857E8F6AB4E4C3DC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605467   (549197) от 21.06.2019
+
+Виктор Цой - Минусовки (2010) [MP3|96-256 kbps] <Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Невесёлая песня 04:20
+2. Следи за собой  04:35
+3. Спокойная ночь  06:17
+4. В наших глазах  03:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F4960AB074D82FA2AF69189866A601771F797F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238061   (548779) от 27.07.2018
+
+VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soundtrack, Musicals>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LaChanze & Original Broadway Cast of Summer - The Queen Is Back (2:29)
+02. LaChanze & Original Broadway Cast of Summer - I Feel Love (2:51)
+03. Ariana DeBose & Original Broadway Cast of Summer - Love To Love You Baby (2:40)
+04. Storm Lever, Kimberly Dodson, Wonu Ogunfowora & Original Broadway Cast of Summer - I Remember Yesterday (2:39)(   Читать дальше...   )Жанр: Pop, Soundtrack, MusicalsПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310042   (547844) от 23.06.2019
+
+Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote (12:31)
+02. Day in America (15:06)
+03. L-48 (04:51)
+04. Cows (09:58)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBE75B6679AF06AF5D258EA118DDB877AB340F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047957   (547352) от 01.09.2016
 
 Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
@@ -648,128 +764,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154183   (542536) от 29.07.2017
-
-VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tumbao Cubacao - El sonero del barrio soy magou
-02. Mario Mayito Rivera - Son pa' Shakira
-03. Combinacion Latina Salsa - Estoy pegado
-04. Mario Mayito Rivera - Harley Davidson de Cuba(   Читать дальше...   )Жанр: Latin Music, CubanПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58090DD16AD40E8B768032A41ACE72EA0B0B830A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153629   (542524) от 29.07.2017
-
-VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin Band - Ai Se Eu Te Pego
-02. Roland - Danza Kuduro
-03. Latin Band - Waka Waka
-04. Krizia - On The Floor(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 03:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CDF946AD99E98A14BDF8B0880CD711FCEA142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239123   (542424) от 03.08.2018
-
-Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Call of the Mountains
-02 – Are You Really Gone?
-03 – Falling Leaves
-04 – Life Changers(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9A866705FC0CE2AE584195EEB1932A23D2FBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530990   (542289) от 05.08.2012
-
-Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Namania (4:09)
-2. N'tesse (4:31)
-3. Africa (4:50)
-4. Fimani (4:26)
-5. N'ba (4:38)
-6. Mali Ba (4:42)
-7. Barra (3:46)
-8. N'Teri (4:34)
-9. Nta Dima (3:03)
-10. Massake (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

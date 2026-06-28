@@ -1,3 +1,119 @@
+###  Публикация: 1128981   (724366) от 27.04.2017
+
+VA - 100-ка популярных весенних хитов на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Лекс - Кроме Нас 3:29
+002. Vikki - Помолчим 3:16
+003. Гена Селезнев - Ливни 3:13
+004. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B6BCA8A50C7C511147E0314C8B104029CDC190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023398   (724238) от 05.06.2016
+
+VA - Хитовый Свежачок. Русский Выпуск (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hann - Я Тебя Приму Любой
+002. Sasha Holiday - Цвет Желаний
+003. Din-Go - Я Скучал По Тебе
+004. Katrin Mokko - В Моем Кино(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8421247B8883CE78514A123E5FF456AECE17B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128876   (724236) от 27.04.2017
+
+VA - Дискотека Hit FM. Любимая музыка (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724236.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Polisha - Я Не Сказала Нет 3:23
+002. Анна Шульгина - Мама 3:27
+003. Miela - Отпускаю Тебя 3:27
+004. Лада Мишина - Мой Город 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628E6E36E2D674EE2A9F9CB10357798923287017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023277   (723515) от 05.06.2016
+
+VA - Хиты от 90-х до сегодня (2016) [MP3|320 кб/с] <Рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева - Мамочка (02:58)
+02. C.C.Catch - Heaven And Hell'2014 (06:40)
+03. Пропаганда - Подруга (03:36)
+04. Dub Step Two Steps From Hell - Strength Of A Thousand Men (Instrumental Core Remix) 2012 (04:20)(   Читать дальше...   )Жанр: Pop, Retro, Pop-RockПродолжительность: 05:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4301228F50EAE7DABC09CF60E1D09987CFE4F19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218304   (723308) от 09.04.2018
 
 VA - Живи стильно! Наслаждайся музыкой с Hit FM (7) (2018) [MP3|256 Kbps] <Поп>
@@ -629,122 +745,6 @@ VA - German Top 50 Party Schlager Charts 25.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A1B1BE63885ABCEECE6D175A0C6F5F5BDE4643B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400537   (718857) от 05.08.2020
-
-VA - Best New Synthpop (2020) [MP3|320 Kbps] <Synthpop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718857.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Keyklova - In My Hand
-002. Sarah Menescal - Used To Love Her
-003. Yuhniversia - Night In The City
-004. Nigen - Fueled By Anger(   Читать дальше...   )Жанр: Synthpop, DanceПродолжительность: 07:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA30D9413DF959D3A4C22E051C1EA9AFD81B9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129829   (718632) от 30.04.2017
-
-VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Ed Sheeran – Shape of You
-003. Burak Yeter – Tuesday (feat. Danelle Sandoval)
-004. Jason Derulo – Swalla (feat. Nicki Minaj Ty Dolla ign)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DC35AE439E8042C625B15DC69E119C1869AD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285751   (718586) от 27.02.2019
-
-VA - Hit Music (весна 2019) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718586.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LMFAO - I'm Sexy and i know it (ART PRYDE Remix)
-002. Tim Schou - Acapella
-003. ДеЛайла - Парадайз
-004. Kaaze feat. Nino Lucarelli - I Should Have Walked Away(   Читать дальше...   )Жанр: PopПродолжительность: 11:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7DFECDB99FC39E207C5F4AD8B56D8FAD66E178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285431   (718385) от 27.02.2019
-
-VA - Club Dance Ambience vol.172 (2019) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718385.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #Неболира - На Твой Свет (Ivan Art Remix)
-002. 5&Dime, Left Of The Boom - Shackles Feat Janine Fagan  (Dj Bong Mash Up)
-003. A.Chal - Oooooo (Amice Remix)
-004. Aaron Smith - Dancin (Sladkoff & Andrienko Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65525067F7D5000A16F5624D422102723E4C640C
 ```
 
 https://mybot314.ru/tekegram_catalog/

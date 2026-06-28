@@ -1,3 +1,148 @@
+###  Публикация: 1394625   (762117) от 06.07.2020
+
+VA - Beatport Techno Electronic: Sound Pack #121 (2020) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claas Herrmann - Raskolnikow
+002. DJ Hugo Enrique - Underworld
+003. Tyler Schauman - Rosary (Original Mix)
+004. David Temessi - Into The Groove(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A345B47F4D169DF232FA7F6C695946AAEF131F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780358   (762016) от 25.04.2014
+
+VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Route 94 - My Love (feat. Jess Glynne)
+002. Click Click, Upstroke - Barricade (Original Mix)
+003. David Keno - Crusade (Original Mix)
+004. Freakme - Exual Groove (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D218803CA5B509F6F3B7F4EC304A1125075FCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214999   (761810) от 24.03.2018
+
+VA - The Official UK Top 40 Singles Chart 23.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan (03:19)
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
+03. Portugal. The Man - Feel It Still (02:44)
+04. Marshmello & Anne-Marie - Friends (03:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF391835BF615B530E09170692032C5444ED8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017368   (761231) от 17.05.2016
+
+VA - Late Night Lounge: Sexy Spring and Buddha Cafe Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urban Felix - Watch Me - Intimate Shower Relaxation Mix
+02. Eva McFly - Rhythm - Sunset and Downbeat Mix
+03. Cross Hearts - Bora Bora - Beach Cafe Chill Mix
+04. Marimba Gold - Asian Keys Dreaming - Buddha Medition London Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627D437CBA3B040A12276044F364FADF9A9511C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017519   (761218) от 17.05.2016
+
+VA - Guitar Del Sol: Balearic Summer Chill Beach Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polyopia - In My Mind - Beach Bar Instrumental
+02. Lounge Pilots - Any Lounge Color - Guitar Bar Classics Lounge Mix
+03. Massive Gold - Lost Lake
+04. Loungeotic - Lifetime - Beach Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE33D523972975F49B314F24111C02B4EDB6F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280503   (760544) от 03.02.2019
 
 VA - The Awakening (2019) [MP3|320 Kbps] <Psychedelic, Avangard Electronic>
@@ -606,151 +751,6 @@ VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96366B994DFD5A2D0BA4C164602B1DB8F91EF882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018514   (756021) от 20.05.2016
-
-VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756021.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Lounge Unlimited Orchestra - Violet
-002. Xeno Sound System - Free Run
-003. MrV - Sunset Landscapes
-004. Dario J - The Lounge Again(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018388   (756016) от 20.05.2016
-
-VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Heatbeat - It's Killing Me (Radio Edit) 3:27
-002. Overtune - How Does It Feel (Hp Remix) 5:43
-003. Curbi - Circus (Extended Mix) 3:56
-004. Dj Asperant - I'm In Miami Beach (Original Mix) 3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018397   (755933) от 20.05.2016
-
-VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Planer - Buddhas Eyes - Essential Bar and Lounge Version
-02. SynDication - Bondi Beach - Sydney Big City Chillout Cut
-03. Nafets Rules - Gin Tonic - Crystal Sky Electronic Ambient Cut
-04. Arcade Shadows - Perfect Gift - Deluxe 55 Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C0515B25E1ECC1C21183D6A1EC78FE2B12CF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018461   (755932) от 20.05.2016
-
-VA - Club Dance Switch Miracles (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755932.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bassjackers Vs. Breathe Carolina & Reez - Marco Polo (Extended Mix) 3:49
-002. Pulsedriver & DJ Fait - Surrender (Pulsedriver Edit) 3:40
-003. Bass Masters - Jump in a Place (Radio Edit) 3:05
-004. Bob Sinclar - Someone Who Needs Me (Club Mix) 4:11(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5F1696A83506C1DDC6A9B0DE79C8A364411E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018429   (755929) от 20.05.2016
-
-VA - Interference -  Hardstyle Techno Mix (2016) [MP3|320 кб/с] <Hardstyle, Hard Techno, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doozie & Blue Rose - Light 5:14
-02. Brennan Heart & Audiotricz Ft. Christon - Coming Home 3:02
-03. Dr Rude & Rebourne - Exhale 3:08
-04. Zatox & TNT - Ready To Rage 3:16(   Читать дальше...   )Жанр: Hardstyle, Hard Techno, DanceПродолжительность: 05:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842CE84511068F429298B841E004F26AB55AC10F
 ```
 
 https://mybot314.ru/tekegram_catalog/

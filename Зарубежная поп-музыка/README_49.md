@@ -1,3 +1,32 @@
+###  Публикация: 1160356   (475854) от 24.08.2017
+
+Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [MP3|320 Kbps] <Pop Rock, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doesn't Really Matter
+02. Standing in the Dark
+03. Sad Sad Rain
+04. Take It From Me(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A0580E951BC62BA6DCC95FC2B616EE14CC8C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939422   (475703) от 21.09.2015
 
 Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop>
@@ -757,35 +786,6 @@ Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE78D02F06D05DF75139252F36D52975D8247C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321446   (458937) от 24.08.2019
-
-Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Forgot That You Existed
-02. Cruel Summer
-03. Lover
-04. The Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236B1FB0165DEFA232A069459D0CA6BD3966BE25
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1525529   (738776) от 23.01.2022
+
+Ernesto Cortazar - Infinite Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Love (3:47)
+ 02. Fairy Tale (3:23)
+ 03. Forever Yours (4:57)
+ 04. Just Kiss Me (4:08)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BDECBE478D006E8AA6DCB96938BEEEF5EC67F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527037   (737335) от 27.01.2022
+
+Fausto Papetti - Playlist: Fausto Papetti (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What a Wonderful World (3:24)
+ 02. Night and Day (3:19)
+ 03. Almeno tu nell'universo (2:58)
+ 04. Smoke Gets in Your Eyes (3:49)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F62D5A6A93EBA8C5509FFC94047E788CF22449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397920   (737086) от 23.07.2020
+
+Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (Arr. C. Davis for Orchestra) (3:50)
+02. Voulez-Vous (Arr. C. Davis for Orchestra) (4:36)
+03. Super Trouper (Arr. C. Davis for Orchestra) (4:35)
+04. Money, Money, Money (Arr. C. Davis for Orchestra) (3:11)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6593371BD3133074682D8ACC5FDB011B110C2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837756   (736334) от 29.01.2022
+
+Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736334.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. London Fever (4:10)
+2. Medley - Samba Pa Ti (3:59)
+3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527858   (735838) от 30.01.2022
 
 Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
@@ -626,122 +742,6 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:181879192174FD9CD2A8CA09379D73B36B01C049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021371   (730681) от 31.05.2016
-
-Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, Rautalanka, Surf>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leskiaidin tyttaret-twist (Widow's Daughters Twist)
-02. Taivas itkee (Heaven's Crying)
-03. Muisto vain jaa (Only A Fool Breaks His Own Heart)
-04. Uudelleen jos luokses tulla voisin (Mr. Salanov Theme)(   Читать дальше...   )Жанр: Instrumental, Guitar, Beat, Rautalanka, SurfПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82D85A3DE3C898376A63D8B9EB130ABCA39A4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021432   (730495) от 31.05.2016
-
-Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [MP3|320 кб/с] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730495.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Seven Seas - 1984
-01. The Seven Seas (3:59)
-02. So Bad - Pipes of Peace (3:46)
-03. Thriller (4:22)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B9E73F9E4A0DD800F6F09BC2FE19427F6FB8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127461   (730477) от 22.04.2017
-
-Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Soundtrack, Classical, Epic, Instrumental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730477.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Battlecry Anthology» - оркестровые и инструментальные ремикс-версии с альбома «Battlecry». На саундтрек попало 43 композиции общей длительностью более 2-х часов. Подборка является компиляцией оригинальной музыки. Выпуском пластинки занимался лейбл Two Steps from Hell - американская компания по музыкальному продакшну, которая базируется в Санта-Монике, Калифорния. (   Читать дальше...   )01. Across The Blood Water (Instrumental) (3:34)
-02. Across The Blood Water (Orchestral) (3:40)
-03. Amaria Silverbird (Orchestral) (6:39)
-04. Victory (Instrumental) (5:22)(   Читать дальше...   )Жанр: New-Age, Soundtrack, Classical, Epic, InstrumentalПродолжительность: 02:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127723   (730358) от 22.04.2017
-
-Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Свадебное путешествие
-2. Страна дураков
-3. Белый месяц
-4. Посох шамана(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
 ```
 
 https://mybot314.ru/tekegram_catalog/

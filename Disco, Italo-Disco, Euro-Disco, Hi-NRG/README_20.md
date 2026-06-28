@@ -1,3 +1,61 @@
+###  Публикация: 1231576   (603201) от 21.06.2018
+
+Tobias Bernstrup - 4 Albums, 1 EP (2002-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, EBM, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Me Wrong (4:28)
+02. Trannies At Night (4:22)
+03. 27 (4:19)
+04. Videodrome (5:00)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, EBM, ElectroПродолжительность: 03:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606FB001D96B490DC9B5514CB28A1D4365C8D415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297713   (603086) от 24.04.2019
+
+Emly Starr - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мари-Кристин Марелс (нидерл. Marie-Christine Mareels; род. 5 сентября 1958 в Ларне, Бельгия) - бельгийская певица и киноактриса, более известная под псевдонимом Эмли Старр (нидерл. Emly Starr); представительница Бельгии на конкурсе песни Евровидение 1981.01. Do Svidaanja (4:07)
+02. Hey Aloha (Honolulu) (3:34)
+03. The Reason To Live (3:44)
+04. Up And Down (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6621AA80C0643E820C878E92AF54455611D0388B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231814   (602770) от 22.06.2018
 
 VA - Disco De Ouro 18/19 (2018) [MP3|320 Kbps] <Disco, Pop>
@@ -717,76 +775,6 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [MP3|320 кб/с]<Electro, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315C326AB3FA851F78C2B6F08477AB4622598B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806970   (592042) от 23.07.2014
-
-VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Daddy Cool 3:28
-02. Precious Wilson - Hold On I'm Coming 3:33
-03. The Touch feat.Terence Trent D'Arby - I Want To Know (International Lady) 5:14
-04. La Bouche - Be My Lover 4:00
-05. No Mercy - Where Do You Go 4:31
-06. Far Corporation - Stairway To Heaven (Single Version) 3:59
-07. Meat Loaf - One More Kiss (Night Of The Soft Parade) 5:36
-08. Boney M. - No Woman No Cry 4:57
-09. Eruption - One Way Ticket 3:57
-10. La Bouche - Forget Me Nots 3:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECBE74429BB28712A38FB26615D65DBDB45FD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806973   (592016) от 23.07.2014
-
-VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [MP3|320 кб/с]<EuroDisco-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (3:22)
-02. Modern Talking - You Can Win If You Want (3:46)
-03. Bonnie Tyler - Bitterblue (3:48)
-04. Blue System feat. Dionne Warwick - It's All Over (3:54)
-05. Blue System - Sorry Little Sarah (3:29)
-06. Touche - This Goodbye Is Not Forever (3:36)
-07. Millane Fernandez - Boom Boom (3:29)
-08. Isabel - Will My Heart Survive (3:01)
-09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
-10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: EuroDisco-PopПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30C231B4B14FC1B78DA7CC55EE2C17232206783
 ```
 
 https://mybot314.ru/tekegram_catalog/

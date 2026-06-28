@@ -1,3 +1,29 @@
+###  Публикация: 570011   (390991) от 04.11.2012
+
+Computer Desktop Wallpapers Collection (03.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F4B47097A8A3D71392B931E36220EEA8A2F234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570253   (390978) от 04.11.2012
 
 [Wallpapers] Moto Desktop Wallpapers Pack 1
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABEF5BB47070AB33225BF251BED3292E7A320D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575129   (370098) от 14.11.2012
-
-[Wallpapers] Обои для рабочего стола - League of Legends (Лига Легенд)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола - League of Legends (Лига Легенд)
-Собраны все чемпионы и их скины.
-(14.11.2012)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759CB1CCC5183B1E1DFF73582EC55CBBE12EE7C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

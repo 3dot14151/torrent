@@ -1,3 +1,124 @@
+###  Публикация: 1033381   (637942) от 11.07.2016
+
+Angus & Julia Stone - Angus & Julia Stone (2014) Deluxe Edition [FLAC|Lossless|tracks] <Indie Pop, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Heartbreak    04:16
+02.  My Word For It    04:08
+03.  Grizzly Bear    04:08
+04.  Heart Beats Slow    04:35(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AAC67873E89BCB55E9ADF857842D88669BAB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033573   (637776) от 11.07.2016
+
+ДиДюЛя - Grand Collection (2006) [FLAC|Lossless|image + .cue] <Pop,Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Винил 	05:59
+02. 	Поезд В Барселону 	03:54
+03. 	День 	06:53
+04. 	Сатиновые Берега 	04:24(   Читать дальше...   )Жанр: Pop,InstrumentalПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986CE49C6678B39AB26146F3E9465EC767BF2B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519212   (637601) от 06.07.2012
+
+David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637601.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:26) 1. Breathing
+(5:12) 2. Positive Thinking
+(4:38) 3. Peace
+(4:01) 4. Well-Being
+(4:18) 5. Vitality
+(4:02) 6. Resting
+(3:31) 7. Equilibrium
+(6:22) 8. Oxygenation
+(3:48) 9. TranquilityЖанр: New age, MeditativeПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20385C4FC6C51C133762CC7FC82FAEE47EFA8155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228250   (637510) от 31.05.2018
+
+Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Cafe
+02. Earth Halo
+03. Evolving the Distance
+04. Passion for Life(   Читать дальше...   )Жанр: New Age, Relax, ChilloutПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519466   (637490) от 06.07.2012
 
 Лала Хоперъ и ансамбль Цыганская кибитка - Душа просит праздника !!! (2010) [MP3|256 кб/с]<Folk>
@@ -686,122 +807,6 @@ The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034422   (634309) от 13.07.2016
-
-VA - Legends (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medwyn Goodall - The Legend
-02. Wychazel - Druid's Grove
-03. Medwyn Goodall - The Lands Beyond
-04. Jon Richards - The Triple Goddess(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033878   (634299) от 13.07.2016
-
-Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, Ambient, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gymnopedie No.1 6:11
-2. Etoile Polaire 7:08
-3. Budapest - Bukarest 6:18
-4. Summertime 7:20(   Читать дальше...   )Жанр: Electronic, Ambient, TranceПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034258   (634298) от 13.07.2016
-
-Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе образа игры, музыка была извлечена из самого образа игры и записаны отдельные треки, которые сложно было извлечь01. Menu
-02. Story
-03. Intro
-04. Mission Selection Screen(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D233031FD971BC6E7AC4F408836CDDACF2AEEE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228342   (633916) от 02.06.2018
-
-VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 La Jose - La Ruta
-02 Vasco Hernandez - Cal y Arena
-03 Los Alhama - Gitana
-04 Thomas Koch - Armonia(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DFC029A9EFF84D67003FB0D1570366CDAC589
 ```
 
 https://mybot314.ru/tekegram_catalog/

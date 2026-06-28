@@ -1,3 +1,55 @@
+###  Публикация: 1809505   (9840) от 30.07.2025
+
+Фоны - Envato - Vesper - Halftone Gradient Abstract Background - MKWLFAF [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя интригующую игру зернистых текстур и ярких градиентных цветов на этом динамичном абстрактном фоне.Формат: JPGРазрешение файлов: 3000 x 2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B74633AE7EE027C5799C90F61EBA1759C834B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810769   (9114) от 06.08.2025
+
+Паттерны - Envato - Painted Camo Spots - GBUG5PY [JPG, AI, SVG, EPS, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшовный паттерн с нарисованными вручную пятнами.Формат: JPG, AI, SVG, EPS, PATРазрешение файлов: 7559x7559
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E4F4BA325BA1A4128D7D2BBDB2A59611B95E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810768   (9096) от 06.08.2025
 
 Оверлеи - Envato - Gold Glitter Wings PNG Overlay, Sparkle Fairy wing - ZG97P8S [JPG, PNG]

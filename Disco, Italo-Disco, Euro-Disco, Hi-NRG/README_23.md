@@ -1,3 +1,61 @@
+###  Публикация: 1555364   (570348) от 03.06.2022
+
+Made In U.S.A. - Melodies (1977) Reissue, 2017, Octave Lab [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Let You Go (5:08)
+02. Try Once More (4:16)
+03. Sexy Lady (4:29)
+04. Try To Find A Way (3:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A270120F85ADD97513A97C8948A2EACDF8E76880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303895   (569423) от 23.05.2019
+
+Norman Harris - The Harris Machine (1980) LP [MP3|320 Kbps] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Don't Want To Be Lonely (5:54)
+02. Dodge City, Hit City (7:03)
+03. You Make Me Feel Brand New (6:11)
+04. Zack's Fanfare '80 (0:54)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B868E201B0449FF408424A53BD60D1E9E7159F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044157   (568920) от 18.08.2016
 
 VA - Disco Tape Vol 4 (2016) [MP3|320 Kbps] <Disco>
@@ -684,64 +742,6 @@ Black Sun - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C618904DF8E9FF6AD8F4ECD0CC0E520271206B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308560   (553725) от 15.06.2019
-
-The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage Into Space (4:50)
-02. Interplanetary Expedition (3:02)
-03. Look Out For Falling Meteors (2:30)
-04. The Galaxy Around Us (2:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308704   (553535) от 16.06.2019
-
-Uncle Louie - Uncle Louie's Here (1979) LP [MP3|320 Kbps] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full-Tilt Boogie (3:51)
-02. I Like Funky Music (4:07)
-03. Badd Motor Folk (4:05)
-04. We Came To Play (5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8661F0CCA6C709DBFF8BF4B755EEAEE2B3D7A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1454661   (1026133) от 16.03.2021
+
+Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Maze (6:32)
+02. Visions (6:00)
+03. Blind Cosmos (6:26)
+04. Misterious Book (6:45)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81862E18E2D7A006CA7AF6EA08C42674123FAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454890   (1025784) от 18.03.2021
+
+Jay-Jay Johanson - Rorschach Test (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Trip Hop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo (05:32)
+02. Why Wait Until Tomorrow (04:24)
+03. Vertigo (04:29)
+04. Amen (03:24)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D552760018F4613556EA188C89673C0C4B95BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 202238   (1025025) от 22.03.2021
+
+Goldfrapp - Head First (2010) [FLAC|Lossless|tracks + .cue]<Electro, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket 3:51
+02. Believer 3:43
+03. Alive 3:28
+04. Dreaming 5:07(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B733A970C18A9BD99578924D74D11F5C990F2C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457782   (1024240) от 27.03.2021
 
 Pet Shop Boys - Behaviour (1990) [FLAC|Lossless|tracks + .cue] <Synthpop>
@@ -491,6 +578,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468427   (1017256) от 07.05.2021
+
+New Order - Best Remixes (2005) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, New Wave, Electro, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jetstream (Richard X Remix) (7:43)
+ 02. Krafty (DJ Dan Vocal Remix) (8:18)
+ 03. Crystal (John Creamer & Stephane K Main Remix) (11:25)
+ 04. Spooky (Out Of Order Mix) (6:21)(   Читать дальше...   )Жанр: Alternative Rock, New Wave, Electro, SynthpopПродолжительность: 01:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76A6C817B64A468A0ABAE9E15E28B0C69F8CD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472532   (1014362) от 25.05.2021
 
 VA - Synthwave Dreams, Vol. 16 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -629,122 +745,6 @@ VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A1D28402F84C643B0D5531576729A265B78B85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349483   (1004395) от 01.01.2020
-
-VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Spacedisco, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pavel Kuznetsov - Introduction (1:15)
-02. TDHDriver - To the Heaven (5:28)
-03. AlimkhanOV A. - Pulsar (4:08)
-04. Laserlight - Intergalactic Flight (7:40)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Spacedisco, SynthdanceПродолжительность: 02:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF6917DF26C3F8D7A7D5A9969E51BA027CBC899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487208   (1003857) от 04.08.2021
-
-W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashbacks (feat. Dora Pereli) (4:38)
-02. California Days (feat. Dora Pereli) (3:19)
-03. Sunset To Sunrise (feat. Dora Pereli) (3:36)
-04. Crossroads (feat. Dora Pereli) (4:20)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF151BE958C55F1254001F1C0285563A2BFB2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350743   (1002988) от 07.01.2020
-
-Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Strike
-02. Joy Kill
-03. Feeder
-04. Silent(   Читать дальше...   )Жанр: SynthPop, SynthWaveПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4877E13A9945CECA8C7CE26110D634E9056CFF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351167   (1002479) от 09.01.2020
-
-The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Love Is Blind (Radio-Version) 3:51
-2 Love Is Blind (Long-Version) 5:40
-3 Love Is Blind (Club-Mix) 6:35
-4 On The Other Side 4:22Жанр: Synth-popПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
 ```
 
 https://mybot314.ru/tekegram_catalog/

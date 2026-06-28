@@ -1,3 +1,55 @@
+###  Публикация: 580221   (345421) от 24.11.2012
+
+Демотиваторы '220V' (24.11.12) [Графика]
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демотиваторы '220V'
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D00FDD7E06B24BCADEAC38E4C01A42E25F2004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580072   (345298) от 24.11.2012
+
+Artworks by Greg Olsen [Графика]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Greg Olsen
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E737144B4583B1E2A6F51F3316580D00A5A3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073486   (345077) от 16.11.2016
 
 Классическое искусство - The Art of John Fawcett [JPG]
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D17AAFAEA256748CA18484ECD963A59613B97C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581390   (341228) от 26.11.2012
-
-Majestic castles of the world Wallpapers (25.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EED7EF5E655EA47D68FCE6D049B4D23B69B5FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581391   (341110) от 26.11.2012
-
-OS Wallpapers (25.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA23D0BC4ACFFD5DBF310AD9AA3B2139EB7DBE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1658323   (191534) от 07.09.2023
+
+VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katy Perry - California Gurls (03:55)
+002. Avicii - Wake Me Up (Radio Edit) (04:06)
+003. PAENDA - Second Summer (02:46)
+004. Luis Fonsi - Despacito (Remix) (03:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD69C97CE2A5D56E3E4DC3C870808B5122FA8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589333   (190338) от 09.11.2022
 
 Master Genius - The Album (1984) LP [MP3|320 Kbps] <Electronic, Hip Hop, Disco, Electro>
@@ -716,35 +745,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595997   (174007) от 08.12.2022
-
-VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|320 Kbps] <Dance, Disco, Synthpop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Easy On Me
-02. Beyonce - Break My Soul
-03. Carolina Gaitan Mauro Castillo Adassa Rhenzy Feliz Diane Guerrero Stephanie Beatriz & Encanto Cast - We Dont Talk About Bruno
-04. David Guetta & Bebe Rexha - Im Good (Blue) (Extended Clean)(   Читать дальше...   )Жанр: Dance, Disco, Synthpop, R&BПродолжительность: 01:14:51 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1119772   (803268) от 30.03.2017
+
+Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okinawa Battlefield (03:59)
+02. I could Have Killed Him (02:20)
+03. A Calling (02:42)
+04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199039   (802813) от 14.01.2018
+
+David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathe (10:50)
+02.  Lightdancer (10:12)
+03.  Deep Blue (9:53)
+04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199178   (802713) от 14.01.2018
+
+Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sa Nah Piteva (6:48)
+02. Gayatri Mantra (6:45)
+03. Om Namah Shivaya (8:48)
+04. Mandu Samanavarcasa (6:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198731   (802711) от 14.01.2018
+
+Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dislodged (4:03)
+ 02.  Distant (2:36)
+ 03. Absent (2:28)
+ 04. Healing (1:58)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198624   (802705) от 14.01.2018
 
 Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Indian Classical, Experimental>
@@ -629,122 +745,6 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6089A73942D97E7935B6E0FB370AAD026222C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120763   (800551) от 02.04.2017
-
-Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весной Волга разольётся
-02. Гони, ямщик
-03. Это было давно
-04. Вы не вейтесь, чёрны кудри(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:54.38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121596   (800506) от 02.04.2017
-
-Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Utopia
-02. As It Should Be
-03. Cosmopolitan Skies
-04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120726   (800503) от 02.04.2017
-
-Раймонд Паулс - Музыка из кинофильма 'Двойной капкан' (1986) [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мотто
-02. Танец в баре
-03. Танец с накидкой
-04. Вдвоём(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121285   (800500) от 02.04.2017
-
-Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah and Volmer (04:35)
-02. Nobody Ever Leaves (01:49)
-03. Bicycle (02:00)
-04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
 ```
 
 https://mybot314.ru/tekegram_catalog/

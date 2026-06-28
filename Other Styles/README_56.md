@@ -1,3 +1,119 @@
+###  Публикация: 1017271   (763124) от 16.05.2016
+
+2002 - Believe (2012) [FLAC|Lossless|tracks + .cue] <NewAge, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Believe.
+02 - A Dream Creation.
+03 - Chain of Life.
+04 - We Meet Again.(   Читать дальше...   )Жанр: NewAge, RelaxПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86DA092D0753515235B091C21F6226B9F838119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214833   (763074) от 23.03.2018
+
+Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naher zu mir (To be one) (03:53)
+ 02. So sicher wie im Himmel (04:42)
+ 03. Good Time (04:19)
+ 04. Segel im Wind (03:17)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017084   (762832) от 16.05.2016
+
+Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кай ёнэ
+02. Настенька
+03. Нанэ мандэ родо
+04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280320   (762003) от 02.02.2019
+
+Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Condor Pasa
+02. Ave Maria
+03. Amazing Grace
+04. Don't Cry for Me Argentina(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280247   (761997) от 02.02.2019
 
 Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Classical>
@@ -629,122 +745,6 @@ Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0528A4B33CB44D67AA7F825CB0306635A79FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663023   (754996) от 31.05.2013
-
-Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manschoud (6:31)
-02. Timeless (3:46)
-03. Safi (5:46)
-04. People (7:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322114   (754925) от 10.07.2020
-
-Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man With The Harmonica (2:56)
-02. Chi Mai (5:06)
-03. Cockey's Song (4:05)
-04. For A Few Dollars More (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77E5E8C422EB56614DBCE94D6552E28500D52DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182244   (754923) от 10.07.2020
-
-Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
-02. Once Upon A Time In The West (2:57)
-03. Here's To You (From Sacco E Vanzetti) (3:57)
-04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216015   (754590) от 28.03.2018
-
-Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashem Vohu
-02. Aem Moi Idâ / Ye Vâxshayâns
-03. Jasa Me Avange Mazdao
-04. Humata(   Читать дальше...   )Жанр: Ethno folk, Lounge, JazzПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

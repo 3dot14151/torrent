@@ -1,3 +1,55 @@
+###  Публикация: 952153   (358270) от 31.10.2015
+
+Обои - Fantastic pictures part 58 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на фантастическую тему.Формат: JPGРазрешение файлов: 1680x1050 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48217A4B0B1A4C015E1754188D5C65786E8A44ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577473   (358222) от 19.11.2012
+
+Military Wallpapers (18.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B26791C3C933D0F23F4821D902AB863C87316E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577386   (357904) от 19.11.2012
 
 Stunning HD Digital Art Space Wallpapers (17.11.12) [Wallpapers]
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:766C4469418EABF3C7B64FF6D28BB61A26A172EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579483   (350351) от 22.11.2012
-
-Демотиваторы '220V' (21.11.12) [Графика]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BD56E8EBBDA7E257756F839EDA934120998F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579484   (350334) от 22.11.2012
-
-Демотиваторы '220V' (22.11.12) [Графика]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7775F46A55333085DF3FDF3B1CC54162344E252
 ```
 
 https://mybot314.ru/tekegram_catalog/

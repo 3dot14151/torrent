@@ -1,3 +1,177 @@
+###  Публикация: 1503247   (821453) от 18.10.2021
+
+VA - Spacedance, Vol. 2 (2021) [AAC|~340 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight - Atomic World (Laser Version 12") (5:31)
+02. Based on Bass - Space Odyssey (Extended Mix) (4:58)
+03. Humphrey Robertson - Eternity (Sd1 Version) (4:22)
+04. Daylight - Digital Power Control (5:36)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B425C8CE8D43C7F7E55A2218422E9FD0AAA094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503188   (821449) от 18.10.2021
+
+Jazzy System - Answer Me (2020) [AAC|~313 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High (3:33)
+02. Atlanta (4:47)
+03. Hybrid Jazz (3:21)
+04. Simple Things (3:46)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF20BF15ADB45FB5AEA754310F2D669E7B8E9D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503185   (821442) от 18.10.2021
+
+Jazzy System - Another World (2019) [AAC|~266 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday 3 AM (3:30)
+02. Live Or Die (4:03)
+03. Strange Things (4:52)
+04. The Next Morning (4:18)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1313B76C8CF003C91A54B51B7876A0A65392509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503244   (821438) от 18.10.2021
+
+VA - Spacedance, Vol. 1 (2021) [AAC|~356 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on Bass - Magic World (Spacemix) (4:27)
+02. Daylight - Touring Space (5:21)
+03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
+04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CEA0136384F2529CAA43EAEA66BBBB2000DD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503251   (821436) от 18.10.2021
+
+VA - Spacedance, Vol. 3 (2021) [AAC|~322 Kbps] <Spacedance, Spacesynth, Retrowave>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on Bass - Automatic Control (Extended Mix) (5:11)
+02. Daylight - Colour of My Dreams (5:23)
+03. Humphrey Robertson - Coming to Earth (Sd3 Version) (4:45)
+04. Daylight - Dance Revolution (Extended Version) (5:44)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EF32AACE156500619BB0485EF1799704029215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503191   (821428) от 18.10.2021
+
+VA - Be Phazz-a-Delic. 20 Years of Musical Delightment (2021) [AAC|~336 Kbps] <Nu Jazz, Acid Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday People - Swing with Me (Ff-Edit) (3:55)
+02. Monophonic - I Looked at Clouds That Way (3:59)
+03. De-Phazz - No Lie (3:45)
+04. Paum - My Pretty (3:30)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, LoungeПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15B4359CC717A72FCED6980142420AE35939B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882152   (820977) от 27.03.2015
 
 Книга жизни / The Book of Life (2014) BDRip [1080p] ATV
@@ -553,168 +727,6 @@ The Cranberries - Remembering Dolores (2021) [AAC|~341 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D821EC7C49C2B7939301C4B510135AB6FC5E398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503331   (819477) от 19.10.2021
-
-Ольга Бузова - Принимай меня (2018) [AAC|~332 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Принимай меня (3:42)
-02. По сердцу (3:07)
-03. АтоМы (3:24)
-04. Алкоголь (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9FC3591CD93C6557B421E36473BBA2FC685399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503334   (819394) от 19.10.2021
-
-Ольга Бузова - Вот она я (2021) [AAC|~329 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вот она я (3:10)
-02. Выключим рассвет (3:58)
-03. Феромоны (2:40)
-04. Без дел (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E97EE15C884D9AF4E9A1D8370A5874D0C75FB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655672   (819141) от 13.05.2013
-
-ДухLess (2012) [1080p] ATV3
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма — 29-летний топ-менеджер крупного международного банка по имени Макс. Он уверен, что жизнь удалась, ведь у него есть то, о чём многие не могут даже и мечтать: дорогая машина, пентхаус и вечеринки. Свою жизнь Максим тратит на зарабатывание денег, а деньги — на ночные клубы, шикарных девушек, кокаин и прочие атрибуты гламурной жизни. Но в какой-то (   Читать дальше...   )Производство: Россия / Art Pictures Studio, Фонд кино, КинословоЖанр: ДрамаРежиссер: Роман ПрыгуновАктеры: Данила Козловский, Мария Андреева, Артем Михалков, Никита Панфилов, Артур Смольянинов, Михаил Ефремов, Мария Кожевникова, Сергей Белоголовцев, Саша Бурдо, Дмитрий ДороховПеревод: ОтсутствуетСубтитры: ОтсутствуетПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007894   (818711) от 16.04.2016
-
-Дедушка легкого поведения / Dirty Grandpa (2016) WEB-DLRip [576p] iPad [Line]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейсон, покладистый правильный парень, накануне свадьбы вляпывается в увеселительную поездку к морю со своим дедом, отставным генералом с легким нравом, бурной фантазией и вполне определенными потребностями… И, похоже, дедские каникулы изменят жизнь Джейсона навсегда!Производство: СШАЖанр: КомедияРежиссер: Дэн МазерАктеры: Роберт Де Ниро, Зак Эфрон, Зои Дойч, Обри Плаза, Джейсон Манцукас, Дермот Малруни, Джулианна Хаф, Джеффри Бауэр-Чепман, Брэндон Майкал Смит, Джейк ПикингПеревод: Дублированный (LINE)Субтитры: НетПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1A6014AA9A0245744F6636E5EEEB90C623FB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882385   (818631) от 28.03.2015
-
-Петля времени / Looper (2012) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, Китай / © 2012 Looper Distribution, LLC. All Rights Reserved.Жанр: фантастика, боевик, триллер, криминалРежиссер: Райан ДжонсонАктеры: Джозеф Гордон-Левитт, Брюс Уиллис, Эмили Блант, Джефф Дэниелс, Ной Сеган, Пирс Гэнон, Пол Дано, Пайпер Перабо, Квинг Ксу, Трейси ТомсПеревод: ДублированныйОзвучка / Автор перевода: (BD RU)Язык субтитров: Русский, Английский (full, SDH)Продолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F7A1B146DFB44E3B3365B11D2CA51E936207E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882386   (818618) от 28.03.2015
-
-Петля времени / Looper (2012) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, Китай / © 2012 Looper Distribution, LLC. All Rights Reserved.Жанр: фантастика, боевик, триллер, криминалРежиссер: Райан ДжонсонАктеры: Джозеф Гордон-Левитт, Брюс Уиллис, Эмили Блант, Джефф Дэниелс, Ной Сеган, Пирс Гэнон, Пол Дано, Пайпер Перабо, Квинг Ксу, Трейси ТомсПеревод: ДублированныйОзвучка / Автор перевода: (BD RU)Язык субтитров: Русский, Английский (full, SDH)Продолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF83A5517DDDF2640BFD7ACAF0B3D55F27B1885E
 ```
 
 https://mybot314.ru/tekegram_catalog/

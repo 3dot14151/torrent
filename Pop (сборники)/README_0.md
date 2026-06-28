@@ -1,3 +1,119 @@
+###  Публикация: 1871187   (1069394) от 15.05.2026
+
+Aurum Project - Out Of The Shadows (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need Is You (5:29)
+02. Broken Wings (5:16)
+03. Dance With Me Tonight (4:49)
+04. Dancing Like The World Ends At Dawn (3:16)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CC2A0F7D5EA808A21F8F8C9149274750EB514D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871184   (1069393) от 15.05.2026
+
+Aurum Project - Let The Party Go On (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever In Your Eyes (3:42)
+02. Only You My Love (3:39)
+03. Midnight Lover (3:44)
+04. Hope (3:21)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834075BCCC671F524D5651A6A8D13C02F68FB16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871181   (1069392) от 15.05.2026
+
+Aurum Project - Hunters Of The Night (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cry In The Night (4:34)
+02. Acapulco (3:47)
+03. And One Day (4:32)
+04. Angel Eyes (3:48)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A101B82C8C7A4E700B00F26D40A6A5F73FA5037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871178   (1069389) от 15.05.2026
+
+Aurum Project - Just Like An Angel (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Never Let You Go (7:13)
+02. Somebody Like You (7:08)
+03. No More Goodbye (7:04)
+04. Keegi nagu Sina (Special Version) (7:04)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 02:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9547BD5320933EAE34F7C0486532F65C7F8290FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870994   (1069297) от 15.05.2026
 
 Josh Groban - Compilation (2001-2026) [MP3|320 Kbps] <Vocal, Crossover, Operatic pop>
@@ -629,122 +745,6 @@ Tabitha Kermorvant - Tabitha Kermorvant (2026) [MP3|320 Kbps] <Pop, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65F9AE7258ADE213B8557ABE3D4A482F87578BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864952   (1064867) от 13.04.2026
-
-Rudolf Kinski Project - V (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Until Dawn (3:25)
-02. Beat Drive (2:55)
-03. Captain Flash (3:21)
-04. Carry On Together (3:42)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C095321C979B1DC53C756029A325B16DF5A494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864585   (1064793) от 
-
-Rudolf Kinski Project - XIII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Fly (3:13)
-02. Black Roses (Rudolf Version) (3:00)
-03. Night Shadows (4:09)
-04. No Me Rendire Contigo (Oksana Version) (2:37)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E7199BB7F4B8F0D1B62D7AF2CB34166EC6F403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862228   (1064277) от 29.03.2026
-
-VA - Весна на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klangkarussell - Ride (3:46)
-02. Sonny Fodera & D.O.D & Poppy Baskcomb - Think About Us (2:58)
-03. Sombr - Homewrecker (3:29)
-04. Alan Walker & Isabella Melkman & Katherine O'Ryan - Broken Strings (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388E99956984E16D2D31F4F01D394BCB0C6F0C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861641   (1063955) от 31.03.2026
-
-Rudolf Kinski Project - IV (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Takes What She Wants (3:29)
-02. No Me Rendire (4:33)
-03. Cosmic Love Ignite (3:32)
-04. Feel The Pulse (2:47)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184EC1D8F516A3E740B86F7FBEB2FD747304E2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

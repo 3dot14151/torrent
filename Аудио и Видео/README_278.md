@@ -1,3 +1,177 @@
+###  Публикация: 1525415   (129512) от 20.01.2022
+
+VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Omar - Dile (3:27)
+02. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
+03. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)
+04. Cali Y El Dandee - Ay Corazón (3:10)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525362   (129508) от 20.01.2022
+
+VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luc Forlorn - Love Hope (6:49)
+02. Remundo - Zone Desert (3:38)
+03. Dr. Beat - D melo (4:05)
+04. Mr. Groove - You Can t Stop Me (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C13C2B3284BAEC06BF6C2A96E6ED2FC527ADA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525422   (129505) от 20.01.2022
+
+VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kieloval - Space Thoughts (5:53)
+02. Pique Dame - Souvenir de Bordeaux (6:14)
+03. Ackeret - Unofficial Meeting (6:03)
+04. Duenec - Innuendo (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC67F0DB42F69DE2FC87FF77DD19AEBE06AE070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525417   (129496) от 20.01.2022
+
+VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
+02. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
+03. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)
+04. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525370   (129494) от 20.01.2022
+
+VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Koletzki - Get on the Bus (3:45)
+02. Deorbiting - Ocean Drive Miami 84 (7:00)
+03. Deer Jade - Perfect Place Perfect Time (5:43)
+04. Daniel Rateuke - Godana (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525425   (129490) от 20.01.2022
+
+VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo, Soulfull House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew Daniel, Lina Loi - Joy (Alternative Version) (3:00)
+02. Svendaq - Sweep Melodies (Original Mix) (4:18)
+03. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)
+04. Stepo Del Sol - Paris at Night (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, Soulfull HouseПродолжительность: 02:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525366   (129480) от 20.01.2022
 
 VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressive House, Organic House>
@@ -568,180 +742,6 @@ VA - Buddah's Chill 8 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01B4DDC0E3320646E3272E5A85DF783D67CA1164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525683   (129128) от 21.01.2022
-
-VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream One - Southern Light (Original Mix) (4:50)
-02. Cinemascope - Chanson du Chine (Original Mix) (7:15)
-03. Simon Le Grec - Its Only Love (Radio Edit) (4:00)
-04. Beatkonexion - Wavin' HiFi (Original Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9C7F81CBC25826FB88BFC8665F5AF55400C07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525787   (129109) от 21.01.2022
-
-VA - Ibiza Lounge (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wermuth - Intertwining Lives (5:46)
-02. Élan Vital - Extravagance (5:55)
-03. Fascinating Case - Immersive Experiences (5:40)
-04. Lovers in Motion - A Matter of When (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7511A94659F37F9E16232FA6CB83B2D900DE8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525543   (129108) от 21.01.2022
-
-VA - The Very Best of Chill Out, Vol. 2 (2015) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But & Memo - Black Betty (Alexander Metzger Chillout Mix) (6:30)
-02. Alexandru Florea - Secrets from Your Lips (Ancient Culture Mix) (6:16)
-03. Arshia Alipour - Waiting for You (3:00)
-04. Five Seasons - Floating Spell (3:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD0F953676F2650497361D5F374DAD3C1C9D87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525783   (129107) от 21.01.2022
-
-Marc Hartman - Jigzaw (2022) [AAC|~327 Kbps] <Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Will Rise Again (6:19)
-02. I'll Never (4:11)
-03. Merlin (4:14)
-04. When The Day Came (3:57)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260A39EECD911D209C1D923FF5C83792727F14EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525718   (129105) от 21.01.2022
-
-VA - Buddah's Chill 7 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Maddison - Maldives Night (4:31)
-02. Yantra Mantra - Raga Sundara (4:07)
-03. Djadi - Open Sesame (3:06)
-04. Katoey - Pattaya Hood (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFA26418821B3E7FA00E8DD96340D6685EDDC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525685   (129103) от 21.01.2022
-
-VA - Buddah's Chill 2 (2013) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thai Connection - The Red Deluxe Intro (1:46)
-02. Katoey - Pattaya Hood (3:42)
-03. Euphonic Traveller - Pacifica (8:38)
-04. Michael e - Downtown (3:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18886950B68812A68EE0517F13263E2FC32E78F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

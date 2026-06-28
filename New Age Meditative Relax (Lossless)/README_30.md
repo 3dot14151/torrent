@@ -1,3 +1,90 @@
+###  Публикация: 1799064   (66430) от 29.05.2025
+
+Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chinmoy, Шри Чинмой) - Gratitude (2014) [FLAC|Lossless|tracks + .cue] <New Age, World, Orchestral>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundara Hate
+02. Purna Kariya
+03. Sonali Jyotir, Mishe Phulla Dale, Oi Akashe, Sukhero Lagiya, Chitta Dolai
+04. I Can Lift Up 240 Pounds(   Читать дальше...   )Жанр: New Age, World, OrchestralПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D877FBB8B566AFC58C89FBA4333ACC77ACC8FC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802786   (65998) от 19.06.2025
+
+Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|WEB-DL|tracks] <World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utpatti(Creation) (9:08)
+02. Utsav(Celebration) (9:16)
+03. Ranjha(Colour Of Love) (9:25)
+04. Benares(Back To Life) (6:42)(   Читать дальше...   )Жанр: WorldПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974EB8073DE173C7986DEF7432F028A79A0C6B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803429   (65819) от 24.06.2025
+
+George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <Meditative, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Waters    [0:06:03.60]
+02. Zen Tranquility    [0:02:55.42]
+03. Willow Breeze    [0:04:16.01]
+04. Bamboo Fields    [0:03:11.13](   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF594A5C1502347772390D246290CF6799253649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512148   (63124) от 13.03.2024
 
 Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
@@ -659,94 +746,6 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13244FF8ED4AFFABC099B308D36D0AEC07410375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780259   (27292) от 17.02.2025
-
-Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit of the Earth
-02. Promised Land
-03. The Master of Souls
-04. Window to Paradise(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780265   (27290) от 17.02.2025
-
-Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portal
-02. Following the Voice
-03. Echo of Time
-04. Till the Last Breath (Ragnarök)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789817   (19610) от 02.05.2025
-
-Виктория ПреобРАженская - Дискография - 43 Альбома (1998-2025) [FLAC|Lossless|tracks] <Сакральные Песни-мистерии, Космическая Музыка для медитаций и исцеления души>
-
->>След.
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космические Альбомы Виктории ПреобРАженской — это Высочайшее Искусство Владения Музыкой Света. Её Произведения Сотканы из Абсолютных Световых ВибРАций — Квантовых Частиц — Целительных для землян и Являются Эталоном Высочайшего Музыкального Тварения.
-Многоуровневая модуляция звука позволит слушателю уловить Тончайшие ВибРАции СветоЗвука Подлунного Мира и неограниченного (   Читать дальше...   )01. Вступление (02:11)
-02. Белые Свечи Пастыря (07:13)
-03. Посвящение (05:14)
-04. Моему Блаженству Преосвященному (И.Б.) (04:11)(   Читать дальше...   )Жанр: Сакральные Песни-мистерии, Космическая Музыка для медитаций и исцеления душиПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB404B043E8B3CCA94AF78C168DCD591A6E0CF2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

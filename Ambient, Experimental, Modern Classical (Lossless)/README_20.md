@@ -1,3 +1,90 @@
+###  Публикация: 1344008   (214951) от 08.12.2019
+
+Aksemetrix - Aqua Perception (2018) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Perception (03:58)
+ 02. Star Shepherd (04:16)
+ 03. Slow Motion (02:34)
+ 04. Light In The Sky (03:51)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2820FACA62E8875EB56D7134B0B1D65C20870F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426439   (214287) от 24.11.2020
+
+Lars Leonhard - Spaceflight (2020) Synphaera [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spaceflight (06:10)
+ 02. Dragon Spacecraft (07:26)
+ 03. Gamma Ray Burst (06:22)
+ 04. Space Phenomena (06:40)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242583E2AA91B7CB1810A66F59AF2164ECF0E4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344049   (213693) от 09.12.2019
+
+Blank & Jones (feat. Marcus Loeber) - Silent Piano (Hourglass EP) (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hourglass (Solo Piano) (5:23)
+ 02. I Love You (Solo Piano) (4:30)
+ 03. Let It Go (Solo Piano) (5:37)
+ 04. Leaves (Solo Piano) (6:32)(   Читать дальше...   )Жанр: Modern Classical, Solo Piano, AmbientПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0434ABC8DB82CD394B24F05D026BEE9048C93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601908   (210931) от 03.01.2023
 
 Moby - Ambient 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
@@ -651,90 +738,6 @@ Moby - Long Ambients Two (2019) Little Idiot [FLAC 2.0|44.1/24|tracks|WEB-DL] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5627849CA270B2C756DDCB11C90893511A02BFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433434   (161267) от 20.12.2020
-
-Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mickey Mouse Strut (7:58)
-02. The Prairie (7:36)
-03. Words Of Wonder (3:30)
-04. Theme From (4:19)(   Читать дальше...   )Производство: Mélodic - 5060168041739Жанр: Ambient, Dark Jazz, Post Rock, Electronic, InstrumentalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA723AD7FA4C2BB0922CC8E5AC2EE15FEC3EB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599567   (159624) от 24.12.2022
-
-Sarah Belle Reid & David Rosenboom - Nows (2022) [FLAC|Lossless|tracks + .cue] <Experimental, Electroacoustic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Know Night Ears
-02. Accelerated Mitosis
-03. Bowing Stream Invitation
-04. Morphcycle(   Читать дальше...   )Жанр: Experimental, ElectroacousticПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64283A8C4D6F90009651C54BEB2B499F73B1ABE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968113   (158245) от 22.12.2015
-
-VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient, Modern Classical, IDM, Post-Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient, Modern Classical, IDM, Post-Rock |Продолжительность: 00:52:55+00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
 ```
 
 https://mybot314.ru/tekegram_catalog/
